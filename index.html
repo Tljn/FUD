@@ -1,0 +1,959 @@
+<!DOCTYPE html>
+<html lang="fa" dir="rtl" data-theme="dark">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0, viewport-fit=cover">
+    <meta name="theme-color" content="#0d1117">
+    <meta name="apple-mobile-web-app-capable" content="yes">
+    <meta name="apple-mobile-web-app-status-bar-style" content="black-translucent">
+    <title>TeleMirror</title>
+    <style>
+        /* ==============================================
+           CSS CUSTOM PROPERTIES - تم دارک/لایت
+           ============================================== */
+        :root {
+            --glass-bg: rgba(22, 27, 34, 0.7);
+            --glass-border: rgba(255, 255, 255, 0.08);
+            --glass-shadow: 0 8px 32px rgba(0,0,0,0.4);
+            --surface: #161b22;
+            --surface2: #21262d;
+            --surface3: #30363d;
+            --text: #e6edf3;
+            --text2: #8b949e;
+            --text3: #6e7681;
+            --accent: #58a6ff;
+            --accent2: #79c0ff;
+            --accent-glow: rgba(88,166,255,0.3);
+            --danger: #f85149;
+            --success: #3fb950;
+            --warning: #d2991d;
+            --online: #3fb950;
+            --bubble-out: #1f2937;
+            --bubble-in: #111827;
+            --blur: blur(16px);
+            --radius: 16px;
+            --radius-sm: 10px;
+            --nav-height: 68px;
+        }
+
+        [data-theme="light"] {
+            --glass-bg: rgba(255,255,255,0.7);
+            --glass-border: rgba(0,0,0,0.08);
+            --glass-shadow: 0 8px 32px rgba(0,0,0,0.08);
+            --surface: #ffffff;
+            --surface2: #f6f8fa;
+            --surface3: #e1e4e8;
+            --text: #1f2328;
+            --text2: #656d76;
+            --text3: #8b949e;
+            --accent: #0969da;
+            --accent2: #0550ae;
+            --accent-glow: rgba(9,105,218,0.2);
+            --bubble-out: #ddf4ff;
+            --bubble-in: #ffffff;
+        }
+
+        * { margin:0; padding:0; box-sizing:border-box; -webkit-tap-highlight-color:transparent; }
+        html, body { height:100%; overflow:hidden; background:var(--surface); }
+        body {
+            font-family: 'Vazirmatn', -apple-system, system-ui, sans-serif;
+            color: var(--text);
+            display: flex;
+            flex-direction: column;
+            user-select: none;
+            -webkit-user-select: none;
+            background-image: 
+                radial-gradient(ellipse at 20% 50%, rgba(88,166,255,0.08) 0%, transparent 60%),
+                radial-gradient(ellipse at 80% 20%, rgba(63,185,80,0.06) 0%, transparent 50%);
+        }
+
+        /* ============ HEADER GLASS ============ */
+        .header {
+            height: 64px;
+            display: flex;
+            align-items: center;
+            padding: 8px 16px;
+            gap: 12px;
+            background: var(--glass-bg);
+            backdrop-filter: var(--blur);
+            -webkit-backdrop-filter: var(--blur);
+            border-bottom: 1px solid var(--glass-border);
+            flex-shrink: 0;
+            z-index: 50;
+        }
+        .header-back, .header-action {
+            width: 40px; height: 40px;
+            border-radius: 50%;
+            border: none;
+            background: var(--surface2);
+            color: var(--text);
+            font-size: 1.3rem;
+            cursor: pointer;
+            display: flex;
+            align-items: center;
+            justify-content: center;
+            transition: 0.2s;
+        }
+        .header-back:active, .header-action:active { transform: scale(0.9); background: var(--surface3); }
+        .header-avatar {
+            width: 42px; height: 42px;
+            border-radius: 50%;
+            background: linear-gradient(135deg, #58a6ff, #3fb950);
+            display: flex; align-items: center; justify-content: center;
+            font-size: 1.3rem; flex-shrink: 0;
+            box-shadow: 0 0 20px var(--accent-glow);
+        }
+        .header-info { flex:1; min-width:0; }
+        .header-title {
+            font-size: 1rem; font-weight: 700; overflow:hidden;
+            text-overflow: ellipsis; white-space: nowrap;
+        }
+        .header-subtitle {
+            font-size: 0.7rem; color: var(--text2);
+            overflow:hidden; text-overflow:ellipsis; white-space:nowrap;
+        }
+
+        /* ============ SCREENS ============ */
+        .screen { display:none; flex:1; flex-direction:column; overflow:hidden; }
+        .screen.active { display:flex; }
+
+        /* ============ TAB BAR ============ */
+        .tab-bar {
+            display: flex;
+            gap: 4px;
+            padding: 8px 12px;
+            background: var(--glass-bg);
+            backdrop-filter: var(--blur);
+            -webkit-backdrop-filter: var(--blur);
+            border-bottom: 1px solid var(--glass-border);
+            flex-shrink: 0;
+        }
+        .tab-btn {
+            flex:1;
+            padding: 8px 6px;
+            border-radius: 20px;
+            border: none;
+            background: transparent;
+            color: var(--text2);
+            font-size: 0.75rem;
+            font-weight: 600;
+            cursor: pointer;
+            transition: 0.3s;
+            white-space: nowrap;
+            font-family: inherit;
+        }
+        .tab-btn.active {
+            background: var(--accent);
+            color: #fff;
+            box-shadow: 0 4px 16px var(--accent-glow);
+        }
+
+        /* ============ POST LIST ============ */
+        .post-list {
+            flex:1;
+            overflow-y:auto;
+            padding: 8px 6px 12px;
+            display: flex;
+            flex-direction: column;
+            gap: 6px;
+            scroll-behavior: smooth;
+        }
+        .post-list::-webkit-scrollbar { width: 3px; }
+        .post-list::-webkit-scrollbar-thumb { background: var(--surface3); border-radius: 10px; }
+
+        /* ============ POST CARD ============ */
+        .post-card {
+            background: var(--glass-bg);
+            backdrop-filter: blur(12px);
+            -webkit-backdrop-filter: blur(12px);
+            border: 1px solid var(--glass-border);
+            border-radius: var(--radius);
+            padding: 14px;
+            box-shadow: var(--glass-shadow);
+            animation: cardIn 0.4s ease-out both;
+            transition: 0.2s;
+            cursor: pointer;
+        }
+        .post-card:active { transform: scale(0.98); }
+        @keyframes cardIn { from { opacity:0; transform:translateY(20px); } to { opacity:1; transform:translateY(0); } }
+
+        .post-header {
+            display: flex;
+            align-items: center;
+            gap: 8px;
+            margin-bottom: 10px;
+        }
+        .post-channel {
+            font-size: 0.8rem;
+            font-weight: 700;
+            color: var(--accent2);
+        }
+        .post-date {
+            font-size: 0.65rem;
+            color: var(--text3);
+            margin-right: auto;
+        }
+        .post-badge {
+            font-size: 0.6rem;
+            padding: 3px 8px;
+            border-radius: 12px;
+            font-weight: 700;
+        }
+        .badge-proxy { background: rgba(63,185,80,0.2); color: var(--success); }
+        .badge-news { background: rgba(88,166,255,0.2); color: var(--accent); }
+        .badge-media { background: rgba(210,153,29,0.2); color: var(--warning); }
+
+        .post-content {
+            font-size: 0.88rem;
+            line-height: 1.7;
+            color: var(--text);
+            max-height: 120px;
+            overflow: hidden;
+            position: relative;
+        }
+        .post-content.expanded { max-height: none; }
+        .post-content-fade {
+            position: absolute;
+            bottom:0; left:0; right:0;
+            height: 40px;
+            background: linear-gradient(transparent, var(--surface2));
+            pointer-events: none;
+        }
+        .post-content.expanded .post-content-fade { display: none; }
+
+        .post-code {
+            background: var(--surface2);
+            border: 1px solid var(--surface3);
+            border-radius: var(--radius-sm);
+            padding: 10px 12px;
+            margin-top: 8px;
+            font-family: 'JetBrains Mono', 'Fira Code', monospace;
+            font-size: 0.7rem;
+            direction: ltr;
+            text-align: left;
+            word-break: break-all;
+            color: var(--success);
+            max-height: 60px;
+            overflow-y: auto;
+            position: relative;
+        }
+        .post-code::-webkit-scrollbar { width: 2px; }
+        .post-code::-webkit-scrollbar-thumb { background: var(--surface3); border-radius: 10px; }
+
+        .post-actions {
+            display: flex;
+            gap: 6px;
+            margin-top: 10px;
+            flex-wrap: wrap;
+        }
+        .btn {
+            padding: 8px 16px;
+            border-radius: 20px;
+            font-size: 0.7rem;
+            font-weight: 700;
+            border: none;
+            cursor: pointer;
+            display: inline-flex;
+            align-items: center;
+            gap: 4px;
+            transition: 0.2s;
+            font-family: inherit;
+            white-space: nowrap;
+        }
+        .btn:active { transform: scale(0.94); }
+        .btn-primary {
+            background: var(--accent);
+            color: #fff;
+            box-shadow: 0 4px 12px var(--accent-glow);
+        }
+        .btn-outline {
+            background: transparent;
+            border: 1.5px solid var(--surface3);
+            color: var(--text);
+        }
+        .btn-copy {
+            background: var(--surface2);
+            color: var(--text);
+            border: 1px solid var(--surface3);
+        }
+
+        .post-image {
+            max-width: 100%;
+            border-radius: var(--radius-sm);
+            margin-top: 8px;
+            cursor: pointer;
+        }
+
+        /* ============ SEARCH BAR ============ */
+        .search-container {
+            padding: 10px 12px;
+            flex-shrink: 0;
+        }
+        .search-input {
+            width: 100%;
+            padding: 12px 16px;
+            border-radius: 24px;
+            border: 1.5px solid var(--surface3);
+            background: var(--surface2);
+            color: var(--text);
+            font-size: 0.85rem;
+            outline: none;
+            font-family: inherit;
+            transition: 0.3s;
+        }
+        .search-input:focus {
+            border-color: var(--accent);
+            box-shadow: 0 0 0 4px var(--accent-glow);
+        }
+        .search-input::placeholder { color: var(--text3); }
+
+        /* ============ BOTTOM NAV ============ */
+        .bottom-nav {
+            display: flex;
+            background: var(--glass-bg);
+            backdrop-filter: var(--blur);
+            -webkit-backdrop-filter: var(--blur);
+            border-top: 1px solid var(--glass-border);
+            padding: 4px 8px calc(env(safe-area-inset-bottom, 8px) + 4px);
+            flex-shrink: 0;
+            z-index: 50;
+        }
+        .nav-item {
+            flex: 1;
+            display: flex;
+            flex-direction: column;
+            align-items: center;
+            gap: 3px;
+            padding: 8px 4px;
+            border-radius: 16px;
+            cursor: pointer;
+            font-size: 0.6rem;
+            font-weight: 600;
+            color: var(--text3);
+            border: none;
+            background: transparent;
+            transition: 0.3s;
+            font-family: inherit;
+            position: relative;
+        }
+        .nav-item.active { color: var(--accent); }
+        .nav-item.active::before {
+            content: '';
+            position: absolute;
+            top: 0;
+            width: 24px;
+            height: 3px;
+            background: var(--accent);
+            border-radius: 0 0 4px 4px;
+        }
+        .nav-icon { font-size: 1.3rem; }
+        .nav-badge {
+            position: absolute;
+            top: 4px;
+            right: calc(50% - 14px);
+            background: var(--danger);
+            color: #fff;
+            font-size: 0.55rem;
+            min-width: 18px;
+            height: 18px;
+            border-radius: 9px;
+            display: flex;
+            align-items: center;
+            justify-content: center;
+            font-weight: 700;
+        }
+
+        /* ============ THEME TOGGLE ============ */
+        .theme-fab {
+            position: fixed;
+            bottom: calc(var(--nav-height) + 20px);
+            right: 16px;
+            width: 44px; height: 44px;
+            border-radius: 50%;
+            background: var(--glass-bg);
+            backdrop-filter: var(--blur);
+            border: 1px solid var(--glass-border);
+            box-shadow: var(--glass-shadow);
+            cursor: pointer;
+            z-index: 60;
+            font-size: 1.2rem;
+            display: flex;
+            align-items: center;
+            justify-content: center;
+            transition: 0.3s;
+            color: var(--text);
+        }
+        .theme-fab:active { transform: scale(0.9) rotate(30deg); }
+
+        /* ============ TOAST ============ */
+        .toast {
+            position: fixed;
+            bottom: 100px;
+            left: 50%;
+            transform: translateX(-50%) translateY(20px);
+            background: var(--surface2);
+            border: 1px solid var(--surface3);
+            color: var(--text);
+            padding: 10px 20px;
+            border-radius: 24px;
+            font-size: 0.8rem;
+            font-weight: 600;
+            z-index: 200;
+            opacity: 0;
+            pointer-events: none;
+            transition: 0.3s;
+            box-shadow: 0 8px 24px rgba(0,0,0,0.3);
+            font-family: inherit;
+        }
+        .toast.show { opacity: 1; transform: translateX(-50%) translateY(0); }
+
+        /* ============ RESPONSIVE ============ */
+        @media (min-width: 600px) {
+            .post-list { padding: 12px 16px; }
+            .post-card { padding: 18px; }
+        }
+    </style>
+    <link href="https://cdn.jsdelivr.net/gh/rastikerdar/vazirmatn@v33.003/Vazirmatn-font-face.css" rel="stylesheet" type="text/css"/>
+</head>
+<body>
+
+<!-- ============ HEADER ============ -->
+<header class="header" id="header">
+    <button class="header-back" id="btnBack" onclick="goHome()" style="display:none;">‹</button>
+    <div class="header-avatar" id="headerAvatar">📡</div>
+    <div class="header-info">
+        <div class="header-title" id="headerTitle">TeleMirror</div>
+        <div class="header-subtitle" id="headerSubtitle">پل ارتباطی تلگرام</div>
+    </div>
+    <button class="header-action" id="themeToggle" onclick="toggleTheme()">🌓</button>
+</header>
+
+<!-- ============ SCREEN: HOME ============ -->
+<div class="screen active" id="screenHome">
+    <div class="tab-bar" id="tabBar">
+        <button class="tab-btn active" data-filter="all">همه</button>
+        <button class="tab-btn" data-filter="proxy">🛡️ پروکسی</button>
+        <button class="tab-btn" data-filter="config">⚙️ کانفیگ</button>
+        <button class="tab-btn" data-filter="news">📰 خبری</button>
+    </div>
+    <div class="post-list" id="postList"></div>
+</div>
+
+<!-- ============ SCREEN: SEARCH ============ -->
+<div class="screen" id="screenSearch">
+    <div class="search-container">
+        <input type="text" class="search-input" id="searchInput" placeholder="🔍 جستجو در همه پست‌ها..." oninput="doSearch()">
+    </div>
+    <div class="post-list" id="searchResults"></div>
+</div>
+
+<!-- ============ SCREEN: CHANNELS ============ -->
+<div class="screen" id="screenChannels">
+    <div class="post-list" id="channelsList"></div>
+</div>
+
+<!-- ============ BOTTOM NAV ============ -->
+<nav class="bottom-nav">
+    <button class="nav-item active" data-screen="home" onclick="switchScreen('home')">
+        <span class="nav-icon">🏠</span>
+        <span>خانه</span>
+    </button>
+    <button class="nav-item" data-screen="search" onclick="switchScreen('search')">
+        <span class="nav-icon">🔍</span>
+        <span>جستجو</span>
+    </button>
+    <button class="nav-item" data-screen="channels" onclick="switchScreen('channels')">
+        <span class="nav-icon">📢</span>
+        <span>کانال‌ها</span>
+    </button>
+</nav>
+
+<!-- ============ TOAST ============ -->
+<div class="toast" id="toast"></div>
+
+<script>
+// ============================================
+// TeleMirror - نسل جدید
+// ============================================
+
+const CONFIG = {
+    repoOwner: 'ehsan-golshani',
+    repoName: 'aio-downloader',
+    mdFile: 'telegram.md',
+    channelsFile: 'telegram/channels.json',
+    rawBase: 'https://raw.githubusercontent.com',
+    refreshInterval: 300000, // 5 دقیقه
+};
+
+let allPosts = [];
+let currentFilter = 'all';
+let currentScreen = 'home';
+let channels = [];
+
+// ============ DOM REFS ============
+const $ = (s) => document.querySelector(s);
+const $$ = (s) => document.querySelectorAll(s);
+
+// ============ INIT ============
+async function init() {
+    setupTabListeners();
+    setupNavListeners();
+    detectTheme();
+    await loadChannels();
+    await loadPosts();
+    setInterval(loadPosts, CONFIG.refreshInterval);
+    updateProxyBadge();
+}
+
+// ============ THEME ============
+function detectTheme() {
+    const prefersDark = window.matchMedia('(prefers-color-scheme: dark)').matches;
+    document.documentElement.setAttribute('data-theme', prefersDark ? 'dark' : 'light');
+}
+
+function toggleTheme() {
+    const current = document.documentElement.getAttribute('data-theme');
+    const next = current === 'dark' ? 'light' : 'dark';
+    document.documentElement.setAttribute('data-theme', next);
+    localStorage.setItem('theme', next);
+    toast(next === 'dark' ? '🌙 تم تاریک' : '☀️ تم روشن');
+}
+
+// بارگذاری تم ذخیره‌شده
+(function() {
+    const saved = localStorage.getItem('theme');
+    if (saved) document.documentElement.setAttribute('data-theme', saved);
+})();
+
+// ============ NAVIGATION ============
+function setupNavListeners() {
+    $$('.nav-item').forEach(item => {
+        item.addEventListener('click', () => {
+            switchScreen(item.dataset.screen);
+        });
+    });
+}
+
+function switchScreen(screen) {
+    currentScreen = screen;
+    $$('.screen').forEach(s => s.classList.remove('active'));
+    $$('.nav-item').forEach(n => n.classList.remove('active'));
+
+    if (screen === 'home') {
+        $('#screenHome').classList.add('active');
+        $('.nav-item[data-screen="home"]').classList.add('active');
+        $('#btnBack').style.display = 'none';
+        $('#headerTitle').textContent = 'TeleMirror';
+        $('#headerSubtitle').textContent = 'پل ارتباطی تلگرام';
+        $('#tabBar').style.display = 'flex';
+    } else if (screen === 'search') {
+        $('#screenSearch').classList.add('active');
+        $('.nav-item[data-screen="search"]').classList.add('active');
+        $('#btnBack').style.display = 'none';
+        $('#headerTitle').textContent = 'جستجو';
+        $('#headerSubtitle').textContent = 'در بین همه پست‌ها';
+        $('#tabBar').style.display = 'none';
+        setTimeout(() => $('#searchInput').focus(), 300);
+    } else if (screen === 'channels') {
+        $('#screenChannels').classList.add('active');
+        $('.nav-item[data-screen="channels"]').classList.add('active');
+        $('#btnBack').style.display = 'none';
+        $('#headerTitle').textContent = 'کانال‌ها';
+        $('#headerSubtitle').textContent = `${channels.length} کانال فعال`;
+        $('#tabBar').style.display = 'none';
+        renderChannelsScreen();
+    }
+}
+
+function goHome() {
+    switchScreen('home');
+}
+
+// ============ TABS ============
+function setupTabListeners() {
+    $('#tabBar').addEventListener('click', (e) => {
+        if (e.target.classList.contains('tab-btn')) {
+            $$('.tab-btn').forEach(b => b.classList.remove('active'));
+            e.target.classList.add('active');
+            currentFilter = e.target.dataset.filter;
+            renderPosts(allPosts);
+        }
+    });
+}
+
+// ============ LOAD DATA ============
+async function loadChannels() {
+    try {
+        const url = `${CONFIG.rawBase}/${CONFIG.repoOwner}/${CONFIG.repoName}/main/${CONFIG.channelsFile}`;
+        const res = await fetch(url);
+        if (res.ok) {
+            const data = await res.json();
+            channels = Array.isArray(data) ? data : (data.channels || data);
+        }
+    } catch (e) {
+        console.log('Channels file not found, using embedded list');
+        channels = [];
+    }
+}
+
+async function loadPosts() {
+    try {
+        const url = `${CONFIG.rawBase}/${CONFIG.repoOwner}/${CONFIG.repoName}/main/${CONFIG.mdFile}`;
+        const res = await fetch(url);
+        if (!res.ok) throw new Error('Failed to load');
+        const md = await res.text();
+        allPosts = parseMarkdown(md);
+        if (currentScreen === 'home') renderPosts(allPosts);
+        updateProxyBadge();
+        $('#headerSubtitle').textContent = `${allPosts.length} پست | بروز: ${new Date().toLocaleTimeString('fa-IR')}`;
+    } catch (e) {
+        console.error('Load error:', e);
+        if (allPosts.length === 0) {
+            $('#postList').innerHTML = `
+                <div style="text-align:center;padding:40px;color:var(--text2);">
+                    <div style="font-size:3rem;margin-bottom:16px;">📡</div>
+                    <div style="font-weight:700;">در حال بارگذاری...</div>
+                    <div style="font-size:0.7rem;margin-top:8px;">اتصال به مخزن aio-downloader</div>
+                </div>`;
+        }
+    }
+}
+
+// ============ MARKDOWN PARSER ============
+function parseMarkdown(md) {
+    const posts = [];
+    const lines = md.split('\n');
+    let currentPost = null;
+
+    const headerRegex = /^##\s+(\d{4}\/\d{2}\/\d{2})\s+(\d{2}:\d{2})\s*—\s*(.+)$/;
+    const imageRegex = /!\[.*?\]\((.*?)\)/;
+    const videoRegex = /\[🎬\s*Video\]\((.*?)\)/;
+    const quoteRegex = /^>\s+(.*)/;
+
+    for (let i = 0; i < lines.length; i++) {
+        const line = lines[i];
+        const headerMatch = line.match(headerRegex);
+
+        if (headerMatch) {
+            if (currentPost) posts.push(currentPost);
+            currentPost = {
+                date: headerMatch[1],
+                time: headerMatch[2],
+                channel: headerMatch[3].trim(),
+                text: '',
+                images: [],
+                videos: [],
+                codes: [],
+                types: []
+            };
+            continue;
+        }
+
+        if (!currentPost) continue;
+
+        const imgMatch = line.match(imageRegex);
+        if (imgMatch && !line.includes('🎬')) {
+            currentPost.images.push(imgMatch[1]);
+            continue;
+        }
+
+        const vidMatch = line.match(videoRegex);
+        if (vidMatch) {
+            currentPost.videos.push(vidMatch[1]);
+            continue;
+        }
+
+        const quoteMatch = line.match(quoteRegex);
+        if (quoteMatch) {
+            currentPost.text += (currentPost.text ? '\n' : '') + quoteMatch[1];
+            continue;
+        }
+
+        // تشخیص کد بلاک
+        if (line.startsWith('```') || line.startsWith('`')) {
+            let codeContent = '';
+            i++;
+            while (i < lines.length && !lines[i].startsWith('```') && !lines[i].startsWith('`')) {
+                codeContent += (codeContent ? '\n' : '') + lines[i];
+                i++;
+            }
+            if (codeContent.trim()) {
+                currentPost.codes.push(codeContent.trim());
+            }
+            continue;
+        }
+
+        // خطوط خالی رو رد کن
+        if (line.trim() === '') continue;
+
+        // متن عادی
+        if (line.trim() && !line.startsWith('#') && !line.startsWith('!') && !line.startsWith('[')) {
+            currentPost.text += (currentPost.text ? '\n' : '') + line.trim();
+        }
+    }
+
+    if (currentPost) posts.push(currentPost);
+
+    // تشخیص نوع هر پست
+    posts.forEach(post => {
+        const fullText = post.text + ' ' + post.codes.join(' ');
+        post.isProxy = detectProxy(fullText);
+        post.isConfig = detectConfig(fullText);
+        post.isNews = !post.isProxy && !post.isConfig && post.text.length > 20;
+        post.hasMedia = post.images.length > 0 || post.videos.length > 0;
+
+        if (post.isProxy) post.types.push('proxy');
+        if (post.isConfig) post.types.push('config');
+        if (post.isNews) post.types.push('news');
+    });
+
+    // مرتب‌سازی بر اساس تاریخ (جدیدترین اول)
+    posts.sort((a, b) => {
+        const dateA = a.date + ' ' + a.time;
+        const dateB = b.date + ' ' + b.time;
+        return dateB.localeCompare(dateA);
+    });
+
+    return posts;
+}
+
+function detectProxy(text) {
+    const patterns = [
+        /tg:\/\/proxy\?/i,
+        /mtproto/i,
+        /socks5?/i,
+        /secret=/i,
+        /proxy\s*server/i,
+        /پروکسی\s*(mtproto|ساکس|http)/i,
+    ];
+    return patterns.some(p => p.test(text));
+}
+
+function detectConfig(text) {
+    const patterns = [
+        /vmess:\/\//i,
+        /vless:\/\//i,
+        /trojan:\/\//i,
+        /ss:\/\//i,
+        /ssr:\/\//i,
+        /wireguard:\/\//i,
+        /slipnet:\/\//i,
+        /napsternet:\/\//i,
+        /کانفیگ/i,
+        /config/i,
+    ];
+    return patterns.some(p => p.test(text));
+}
+
+// ============ RENDER POSTS ============
+function renderPosts(posts) {
+    let filtered = posts;
+
+    if (currentFilter === 'proxy') filtered = posts.filter(p => p.isProxy);
+    else if (currentFilter === 'config') filtered = posts.filter(p => p.isConfig);
+    else if (currentFilter === 'news') filtered = posts.filter(p => p.isNews);
+
+    if (filtered.length === 0) {
+        $('#postList').innerHTML = `
+            <div style="text-align:center;padding:40px;color:var(--text2);">
+                <div style="font-size:3rem;">🤷</div>
+                <div>پستی یافت نشد</div>
+            </div>`;
+        return;
+    }
+
+    let html = '';
+    filtered.forEach((post, i) => {
+        const badges = [];
+        if (post.isProxy) badges.push('<span class="post-badge badge-proxy">🛡️ پروکسی</span>');
+        if (post.isConfig) badges.push('<span class="post-badge badge-proxy">⚙️ کانفیگ</span>');
+        if (post.isNews) badges.push('<span class="post-badge badge-news">📰 خبری</span>');
+
+        const codesHtml = post.codes.map(code => `
+            <div class="post-code" onclick="copyCode(this, '${escapeHtml(code)}')" title="کلیک برای کپی">
+                ${escapeHtml(code.length > 100 ? code.substring(0, 100) + '...' : code)}
+            </div>
+        `).join('');
+
+        const imagesHtml = post.images.map(img => `
+            <img src="${img}" class="post-image" loading="lazy" onclick="window.open('${img}')" alt="تصویر">
+        `).join('');
+
+        const videosHtml = post.videos.map(vid => `
+            <div style="margin-top:8px;">
+                <a href="${vid}" target="_blank" class="btn btn-outline">🎬 مشاهده ویدیو</a>
+            </div>
+        `).join('');
+
+        const hasCode = post.codes.length > 0;
+        const firstCode = hasCode ? post.codes[0] : '';
+
+        html += `
+            <div class="post-card" style="animation-delay:${i * 0.03}s" onclick="toggleExpand(this)">
+                <div class="post-header">
+                    <span class="post-channel">📢 ${post.channel}</span>
+                    ${badges.join(' ')}
+                    <span class="post-date">${post.date} ${post.time}</span>
+                </div>
+                ${post.text ? `<div class="post-content">${escapeHtml(post.text)}<div class="post-content-fade"></div></div>` : ''}
+                ${codesHtml}
+                ${imagesHtml}
+                ${videosHtml}
+                ${hasCode ? `
+                <div class="post-actions" onclick="event.stopPropagation()">
+                    <button class="btn btn-primary" onclick="copyCode(this, '${escapeJs(firstCode)}')">📋 کپی</button>
+                    ${post.isProxy && firstCode.startsWith('tg://') ? 
+                        `<a href="${firstCode}" class="btn btn-outline" target="_blank">⚡ افزودن به تلگرام</a>` : ''}
+                </div>` : ''}
+            </div>
+        `;
+    });
+
+    $('#postList').innerHTML = html;
+    $('#postList').scrollTop = 0;
+}
+
+function renderChannelsScreen() {
+    if (channels.length === 0) {
+        $('#channelsList').innerHTML = `
+            <div style="text-align:center;padding:40px;color:var(--text2);">
+                <div style="font-size:3rem;">📢</div>
+                <div>کانالی یافت نشد</div>
+                <div style="font-size:0.7rem;">فایل telegram/channels.json را بررسی کنید</div>
+            </div>`;
+        return;
+    }
+
+    let html = '';
+    channels.forEach((ch, i) => {
+        const count = allPosts.filter(p => p.channel === ch).length;
+        html += `
+            <div class="post-card" style="animation-delay:${i * 0.03}s;display:flex;align-items:center;gap:12px;">
+                <div class="header-avatar" style="width:48px;height:48px;">📢</div>
+                <div style="flex:1;">
+                    <div style="font-weight:700;">${ch}</div>
+                    <div style="font-size:0.7rem;color:var(--text2);">${count} پست | t.me/${ch}</div>
+                </div>
+            </div>
+        `;
+    });
+    $('#channelsList').innerHTML = html;
+}
+
+// ============ SEARCH ============
+function doSearch() {
+    const query = $('#searchInput').value.trim().toLowerCase();
+    if (!query) {
+        $('#searchResults').innerHTML = `
+            <div style="text-align:center;padding:40px;color:var(--text2);">
+                <div style="font-size:3rem;">🔍</div>
+                <div>چیزی بنویسید تا جستجو کنم</div>
+            </div>`;
+        return;
+    }
+
+    const results = allPosts.filter(p => {
+        const searchable = (p.text + ' ' + p.codes.join(' ') + ' ' + p.channel).toLowerCase();
+        return searchable.includes(query);
+    });
+
+    if (results.length === 0) {
+        $('#searchResults').innerHTML = `
+            <div style="text-align:center;padding:40px;color:var(--text2);">
+                <div style="font-size:3rem;">😕</div>
+                <div>نتیجه‌ای یافت نشد</div>
+            </div>`;
+        return;
+    }
+
+    let html = '';
+    results.forEach((post, i) => {
+        html += `
+            <div class="post-card" style="animation-delay:${i * 0.03}s" onclick="toggleExpand(this)">
+                <div class="post-header">
+                    <span class="post-channel">📢 ${post.channel}</span>
+                    <span class="post-date">${post.date} ${post.time}</span>
+                </div>
+                <div class="post-content">${highlightMatch(escapeHtml(post.text), query)}<div class="post-content-fade"></div></div>
+                ${post.codes.map(c => `<div class="post-code">${highlightMatch(escapeHtml(c), query)}</div>`).join('')}
+            </div>
+        `;
+    });
+    $('#searchResults').innerHTML = html;
+}
+
+function highlightMatch(text, query) {
+    const regex = new RegExp(`(${query})`, 'gi');
+    return text.replace(regex, '<mark style="background:var(--warning);color:#000;padding:1px 4px;border-radius:3px;">$1</mark>');
+}
+
+// ============ POST ACTIONS ============
+function toggleExpand(card) {
+    const content = card.querySelector('.post-content');
+    if (content) {
+        content.classList.toggle('expanded');
+    }
+}
+
+function copyCode(el, code) {
+    const decoded = code.replace(/&amp;/g, '&').replace(/&lt;/g, '<').replace(/&gt;/g, '>').replace(/&quot;/g, '"');
+    if (navigator.clipboard) {
+        navigator.clipboard.writeText(decoded).then(() => toast('✅ کپی شد!'));
+    } else {
+        const ta = document.createElement('textarea');
+        ta.value = decoded;
+        ta.style.cssText = 'position:fixed;opacity:0';
+        document.body.appendChild(ta);
+        ta.select();
+        document.execCommand('copy');
+        document.body.removeChild(ta);
+        toast('✅ کپی شد!');
+    }
+
+    // افکت بازخورد
+    el.style.transform = 'scale(0.95)';
+    setTimeout(() => el.style.transform = '', 150);
+}
+
+// ============ UTILS ============
+function escapeHtml(text) {
+    const div = document.createElement('div');
+    div.textContent = text;
+    return div.innerHTML;
+}
+
+function escapeJs(text) {
+    return text.replace(/'/g, "\\'").replace(/"/g, '\\"').replace(/\n/g, '\\n');
+}
+
+function toast(msg) {
+    const el = $('#toast');
+    el.textContent = msg;
+    el.classList.add('show');
+    clearTimeout(window._toastTimer);
+    window._toastTimer = setTimeout(() => el.classList.remove('show'), 2000);
+}
+
+function updateProxyBadge() {
+    const proxyCount = allPosts.filter(p => p.isProxy || p.isConfig).length;
+    // آپدیت نمی‌کنیم badge چون در تب‌ها هست
+}
+
+// ============ TOUCH/SWIPE (اختیاری) ============
+let touchStartX = 0;
+document.addEventListener('touchstart', (e) => { touchStartX = e.touches[0].clientX; });
+document.addEventListener('touchend', (e) => {
+    const diff = e.changedTouches[0].clientX - touchStartX;
+    if (Math.abs(diff) > 80 && currentScreen === 'home') {
+        // swipe gesture - می‌تونی اینجا کار خاصی بکنی
+    }
+});
+
+// ============ BOOT ============
+init();
+console.log('🚀 TeleMirror v2.0 — Powered by aio-downloader');
+console.log('📡 Connect to GitHub:', `${CONFIG.rawBase}/${CONFIG.repoOwner}/${CONFIG.repoName}/main/`);
+</script>
+
+</body>
+</html>
