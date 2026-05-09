@@ -7,6 +7,30 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 12:18
+---
+
+## tasiyanc — post 4078
+
+<div align="center">
+  <a href="https://t.me/tasiyanc/4078" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور جدید
+
+📶  اختصاصی تاسیان تست شده   
+📶
+
+
+📱 برای اتصال باید صبور باشید
+
+🔺Use proxy
+
+@Tasiyanc‌
+☑️
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 12:11
 ---
 
