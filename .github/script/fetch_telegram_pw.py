@@ -1,14 +1,10 @@
 #!/usr/bin/env python3
 """
 Scrape public Telegram channels with Playwright.
-- Direct download of documents (npvt, pdf, zip, etc.) with 5MB size limit.
+- Direct download of ALL media types (photos, videos, documents).
+- 5MB size limit for file downloads.
 - Downloads photos, videos, AND documents (all file types).
-- Handles file size limit with archive pages.
-- Deduplicates posts based on (channel, post_id) to prevent repeats.
 - Centers media and shows captions in right‑to‑left (RTL) for Persian.
-- Shows a notice when no new posts are found in an update cycle.
-- Download links open in a new tab to preserve scroll position.
-- Ignores .webm videos (animations/stickers) to improve media detection.
 """
 
 import asyncio
@@ -25,7 +21,7 @@ import requests
 from playwright.async_api import async_playwright
 
 # ---- Configuration ----
-MAX_FILE_SIZE_MB = 5  # Maximum file size in MB
+MAX_FILE_SIZE_MB = 5
 MAX_FILE_SIZE_BYTES = MAX_FILE_SIZE_MB * 1024 * 1024
 
 # ---- Paths ----
@@ -39,11 +35,9 @@ CONTENT_DIR   = REPO_ROOT / "telegram" / "content"
 
 IRAN_TZ = ZoneInfo("Asia/Tehran")
 
-# Updated headers to mimic browser more closely
 HEADERS = {
-    "User-Agent": "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 "
-                  "(KHTML, like Gecko) Chrome/125.0.0.0 Safari/537.36",
-    "Accept": "text/html,application/xhtml+xml,application/xml;q=0.9,image/webp,*/*;q=0.8",
+    "User-Agent": "Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/125.0.0.0 Safari/537.36",
+    "Accept": "*/*",
     "Accept-Language": "en-US,en;q=0.5",
     "Referer": "https://t.me/",
 }
@@ -72,7 +66,6 @@ HEADER_TEMPLATE = f"""\
 # Helpers
 # ----------------------------------------------------------------------
 def get_github_base_url():
-    """Return (repo_url, branch) for the current git repository, or (None, None)."""
     try:
         import subprocess
         remote = subprocess.run(
@@ -98,7 +91,6 @@ def get_github_base_url():
 
 
 def safe_filename(name: str, max_length: int = 100) -> str:
-    """Truncate filename to a safe length, preserving the extension."""
     if len(name) <= max_length:
         return name
     stem, dot, ext = name.rpartition(".")
@@ -113,32 +105,16 @@ def safe_filename(name: str, max_length: int = 100) -> str:
 
 
 def get_extension_from_content_type(content_type: str) -> str:
-    """Map Content-Type to file extension."""
     ct = content_type.lower().split(';')[0].strip()
     mapping = {
-        'image/jpeg': '.jpg',
-        'image/png': '.png',
-        'image/webp': '.webp',
-        'image/gif': '.gif',
-        'image/svg+xml': '.svg',
-        'video/mp4': '.mp4',
-        'video/webm': '.webm',
-        'video/quicktime': '.mov',
-        'video/x-msvideo': '.avi',
-        'audio/mpeg': '.mp3',
-        'audio/ogg': '.ogg',
-        'audio/wav': '.wav',
-        'audio/aac': '.aac',
-        'audio/flac': '.flac',
-        'audio/mp4': '.m4a',
-        'application/pdf': '.pdf',
-        'application/zip': '.zip',
-        'application/x-rar-compressed': '.rar',
-        'application/x-7z-compressed': '.7z',
-        'application/vnd.android.package-archive': '.apk',
-        'application/octet-stream': '.dat',
-        'text/plain': '.txt',
-        'application/json': '.json',
+        'image/jpeg': '.jpg', 'image/png': '.png', 'image/webp': '.webp',
+        'image/gif': '.gif', 'video/mp4': '.mp4', 'video/webm': '.webm',
+        'video/quicktime': '.mov', 'audio/mpeg': '.mp3', 'audio/ogg': '.ogg',
+        'audio/wav': '.wav', 'audio/aac': '.aac', 'audio/mp4': '.m4a',
+        'application/pdf': '.pdf', 'application/zip': '.zip',
+        'application/x-rar-compressed': '.rar', 'application/x-7z-compressed': '.7z',
+        'application/vnd.android.package-archive': '.apk', 'text/plain': '.txt',
+        'application/json': '.json', 'application/octet-stream': '.dat',
     }
     return mapping.get(ct, '.dat')
 
@@ -161,8 +137,7 @@ def save_state(state):
         json.dump(state, f, ensure_ascii=False, indent=2)
 
 
-def build_nav_buttons(next_page_rel: str | None, prev_page_rel: str | None,
-                      base_url: str | None = None) -> str:
+def build_nav_buttons(next_page_rel, prev_page_rel, base_url=None):
     button_style = (
         "display:inline-block; padding:6px 12px; margin:0 4px; "
         "background-color:#2ea44f; color:white; text-decoration:none; "
@@ -178,34 +153,18 @@ def build_nav_buttons(next_page_rel: str | None, prev_page_rel: str | None,
     return " ".join(parts) if parts else ""
 
 
-def wrap_page(message_block: str, next_rel: str | None, prev_rel: str | None,
-              base_url: str | None = None) -> str:
+def wrap_page(message_block, next_rel=None, prev_rel=None, base_url=None):
     nav_buttons = build_nav_buttons(next_rel, prev_rel, base_url=base_url)
-    top_nav_div = (
-        f'<div dir="rtl" style="text-align:left; margin-bottom:10px;">{nav_buttons}</div>'
-        if nav_buttons else ""
-    )
-    bottom_nav_div = (
-        f'<div dir="rtl" style="text-align:left; margin-top:10px;">{nav_buttons}</div>'
-        if nav_buttons else ""
-    )
+    top_nav_div = f'<div dir="rtl" style="text-align:left; margin-bottom:10px;">{nav_buttons}</div>' if nav_buttons else ""
+    bottom_nav_div = f'<div dir="rtl" style="text-align:left; margin-top:10px;">{nav_buttons}</div>' if nav_buttons else ""
 
-    page = HEADER_TEMPLATE.replace(
-        f"{TOP_NAV_START}\n{TOP_NAV_END}",
-        f"{TOP_NAV_START}\n{top_nav_div}\n{TOP_NAV_END}"
-    )
-    page = page.replace(
-        f"{MSG_START}\n{MSG_END}",
-        f"{MSG_START}\n{message_block}\n{MSG_END}"
-    )
-    page = page.replace(
-        f"{NAV_START}\n{NAV_END}",
-        f"{NAV_START}\n{bottom_nav_div}\n{NAV_END}"
-    )
+    page = HEADER_TEMPLATE.replace(f"{TOP_NAV_START}\n{TOP_NAV_END}", f"{TOP_NAV_START}\n{top_nav_div}\n{TOP_NAV_END}")
+    page = page.replace(f"{MSG_START}\n{MSG_END}", f"{MSG_START}\n{message_block}\n{MSG_END}")
+    page = page.replace(f"{NAV_START}\n{NAV_END}", f"{NAV_START}\n{bottom_nav_div}\n{NAV_END}")
     return page
 
 
-def extract_message_md(md_text: str) -> str | None:
+def extract_message_md(md_text):
     start = md_text.find(MSG_START)
     end = md_text.find(MSG_END)
     if start == -1 or end == -1:
@@ -226,7 +185,7 @@ def get_existing_archives():
     return archives
 
 
-def parse_post_header(header_line: str):
+def parse_post_header(header_line):
     line = header_line.strip()
     if not line.startswith("## "):
         return None, None
@@ -236,7 +195,7 @@ def parse_post_header(header_line: str):
     return None, None
 
 
-def deduplicate_messages(old_block: str, new_ids_set: set) -> str:
+def deduplicate_messages(old_block, new_ids_set):
     parts = re.split(r"(?=\n## )", old_block)
     kept = []
     for part in parts:
@@ -249,39 +208,41 @@ def deduplicate_messages(old_block: str, new_ids_set: set) -> str:
 
 
 # ----------------------------------------------------------------------
-# Media download - FIXED VERSION
+# SIMPLE DOWNLOAD - No complexity, just works
 # ----------------------------------------------------------------------
-def download_media(url, channel_name, post_id, media_type='photo', filename=None):
+def simple_download(url, channel_name, post_id, media_type='photo'):
     """
-    Download media file directly.
-    Returns relative path on success, None on failure.
+    Ultra-simple download function.
+    Downloads the file, checks size, saves it.
+    Returns relative path or None.
     """
     CONTENT_DIR.mkdir(parents=True, exist_ok=True)
 
-    if filename is None:
-        ext = '.jpg' if media_type == 'photo' else '.mp4'
-        local_name = f"{channel_name}_{post_id}_{int(time.time())}{ext}"
-    else:
-        if len(filename) > 100:
-            filename = safe_filename(filename, max_length=100)
-        local_name = filename
-
+    # Generate a filename
+    ext = '.jpg' if media_type == 'photo' else ('.mp4' if media_type == 'video' else '.dat')
+    local_name = f"{channel_name}_{post_id}_{int(time.time())}{ext}"
     local_path = CONTENT_DIR / local_name
 
     try:
-        # Download with stream to check size progressively
+        print(f"    ⬇️ Downloading: {url[:80]}...")
         resp = requests.get(url, headers=HEADERS, timeout=60, stream=True)
         resp.raise_for_status()
 
-        # Get proper extension from Content-Type
+        # Check Content-Length if available
+        content_length = resp.headers.get('Content-Length')
+        if content_length:
+            size = int(content_length)
+            if size > MAX_FILE_SIZE_BYTES:
+                print(f"    ⚠️ Too large: {size / (1024*1024):.1f}MB > {MAX_FILE_SIZE_MB}MB")
+                return None
+
+        # Try to fix extension from Content-Type
         content_type = resp.headers.get('Content-Type', '').lower().split(';')[0].strip()
         correct_ext = get_extension_from_content_type(content_type)
-        
-        if correct_ext and not local_name.endswith(correct_ext):
-            new_local_name = f"{Path(local_name).stem}{correct_ext}"
+        if correct_ext and correct_ext != '.dat':
+            new_local_name = f"{channel_name}_{post_id}_{int(time.time())}{correct_ext}"
             local_path = CONTENT_DIR / new_local_name
             local_name = new_local_name
-            print(f"    ℹ️ Corrected extension -> {local_name}")
 
         # Write file with size check
         total_size = 0
@@ -291,103 +252,62 @@ def download_media(url, channel_name, post_id, media_type='photo', filename=None
                     total_size += len(chunk)
                     if total_size > MAX_FILE_SIZE_BYTES:
                         f.close()
-                        local_path.unlink()  # Delete partial file
-                        print(f"    ⚠️ File too large: {total_size / (1024*1024):.1f}MB > {MAX_FILE_SIZE_MB}MB limit")
+                        local_path.unlink()
+                        print(f"    ⚠️ Too large during download: {total_size / (1024*1024):.1f}MB")
                         return None
                     f.write(chunk)
 
-        file_size_kb = total_size / 1024
-        print(f"    ✅ Downloaded: {local_name} ({file_size_kb:.1f}KB)")
+        print(f"    ✅ Saved: {local_name} ({total_size / 1024:.1f}KB)")
         return f"telegram/content/{local_name}"
 
-    except requests.exceptions.RequestException as e:
-        print(f"    ⚠️ Download failed for {url}: {e}")
-        return None
     except Exception as e:
-        print(f"    ⚠️ Error: {e}")
+        print(f"    ⚠️ Download failed: {e}")
+        if local_path.exists():
+            local_path.unlink()
         return None
 
 
 def download_document(post_url, channel_name, post_id):
     """
-    Download document from a Telegram post.
-    Tries multiple methods to find the direct download link.
+    Try to download a document from a Telegram post.
+    If we can find the direct download URL, download it.
+    Otherwise return None.
     """
-    print(f"    📄 Processing document from: {post_url}")
-    
+    print(f"    📄 Processing document post: {post_url}")
+
     try:
+        # Fetch the post page
         resp = requests.get(post_url, headers=HEADERS, timeout=30)
         resp.raise_for_status()
         html = resp.text
 
-        direct_url = None
+        # Look for document download link
+        # Pattern: <a class="tgme_widget_message_document_wrap" href="...">
+        match = re.search(r'class="tgme_widget_message_document_wrap"\s+href="([^"]+)"', html)
+        if not match:
+            # Alternative: just look for any href that looks like a file download
+            match = re.search(r'href="(https?://[^"]+\.(npvt|pdf|zip|apk|rar|7z|txt|json|dat)[^"]*)"', html, re.IGNORECASE)
+        
+        if not match:
+            print(f"    ⚠️ No download link found in post page")
+            return None
+
+        download_url = match.group(1)
+        if download_url.startswith("/"):
+            download_url = "https://t.me" + download_url
+
+        print(f"    🔗 Found download URL: {download_url[:80]}...")
+
+        # Try to extract filename from URL
+        parsed = urlparse(download_url)
+        path = parsed.path
         filename = None
+        if path and "/" in path and "." in path.split("/")[-1]:
+            filename = safe_filename(path.split("/")[-1], max_length=100)
+            print(f"    📝 Filename from URL: {filename}")
 
-        # Method 1: Standard document wrap link
-        match = re.search(
-            r'<a\s[^>]*class="tgme_widget_message_document_wrap"[^>]*\shref="([^"]+)"',
-            html
-        )
-        if match:
-            direct_url = match.group(1)
-            if direct_url.startswith("/"):
-                direct_url = "https://t.me" + direct_url
-            print(f"    🔗 Found document link (method 1): {direct_url}")
-            
-            # Try to get filename from URL
-            parsed = urlparse(direct_url)
-            path = parsed.path
-            if path and "/" in path:
-                potential_name = path.split("/")[-1]
-                if potential_name and '.' in potential_name:
-                    filename = safe_filename(potential_name, max_length=100)
-
-        # Method 2: Look for any download link
-        if not direct_url:
-            match = re.search(r'<a\s[^>]*href="([^"]+)"[^>]*download[^>]*>', html, re.IGNORECASE)
-            if match:
-                direct_url = match.group(1)
-                if direct_url.startswith("/"):
-                    direct_url = "https://t.me" + direct_url
-                print(f"    🔗 Found document link (method 2): {direct_url}")
-
-        # Method 3: Look for direct file URL pattern
-        if not direct_url:
-            match = re.search(r'https?://[^"\']+\.(npvt|pdf|zip|apk|rar|7z|docx?|xlsx?|txt|json)[^"\']*', html, re.IGNORECASE)
-            if match:
-                direct_url = match.group(0)
-                print(f"    🔗 Found document link (method 3): {direct_url}")
-
-        if not direct_url:
-            print(f"    ⚠️ No download link found, using post URL as fallback")
-            return None  # Will be handled by caller
-
-        # Build filename if not found yet
-        if not filename:
-            parsed = urlparse(direct_url)
-            path = parsed.path
-            if path and "/" in path:
-                potential_name = path.split("/")[-1]
-                if potential_name and '.' in potential_name:
-                    filename = safe_filename(potential_name, max_length=100)
-        
-        if not filename:
-            filename = f"{channel_name}_{post_id}_{int(time.time())}"
-            # Try to guess extension from URL
-            if '.' in direct_url.split('/')[-1]:
-                ext = direct_url.split('/')[-1].split('.')[-1]
-                filename += f".{ext}"
-
-        print(f"    ⬇️ Downloading: {direct_url} -> {filename}")
-        result = download_media(direct_url, channel_name, post_id,
-                                media_type='document', filename=filename)
-        
-        if result:
-            return result
-        
-        # If direct download failed, try one more time without filename
-        print(f"    🔄 Retrying download without custom filename...")
-        return download_media(direct_url, channel_name, post_id, media_type='document')
+        # Download the actual file
+        return simple_download(download_url, channel_name, post_id, media_type='document')
 
     except Exception as e:
         print(f"    ⚠️ Document processing failed: {e}")
@@ -397,8 +317,7 @@ def download_document(post_url, channel_name, post_id):
 # ----------------------------------------------------------------------
 # Archive management
 # ----------------------------------------------------------------------
-def shift_archives_for_new_page1(message_block_new_page1: str,
-                                 repo_url: str | None, branch: str | None):
+def shift_archives_for_new_page1(message_block_new_page1, repo_url, branch):
     CONTENT_DIR.mkdir(parents=True, exist_ok=True)
 
     old_blocks = {}
@@ -421,9 +340,7 @@ def shift_archives_for_new_page1(message_block_new_page1: str,
     new_page1_path = CONTENT_DIR / "archive_1.md"
     prev_rel = "../../telegram.md"
     next_rel = "archive_2.md" if (2 in [n+1 for n in old_blocks]) else None
-    new_page1 = wrap_page(message_block_new_page1,
-                          next_rel=next_rel, prev_rel=prev_rel,
-                          base_url=archive_base)
+    new_page1 = wrap_page(message_block_new_page1, next_rel=next_rel, prev_rel=prev_rel, base_url=archive_base)
     new_page1_path.write_text(new_page1, encoding="utf-8")
 
     total_archives = len(old_blocks) + 1
@@ -433,33 +350,23 @@ def shift_archives_for_new_page1(message_block_new_page1: str,
         file_path = CONTENT_DIR / f"archive_{new_num}.md"
         prev_rel = f"archive_{new_num-1}.md"
         next_rel = f"archive_{new_num+1}.md" if new_num < total_archives else None
-        page = wrap_page(block, next_rel=next_rel, prev_rel=prev_rel,
-                         base_url=archive_base)
+        page = wrap_page(block, next_rel=next_rel, prev_rel=prev_rel, base_url=archive_base)
         file_path.write_text(page, encoding="utf-8")
 
     print(f"✅ Archives shifted: new archive_1 created, total pages = {total_archives}")
 
 
-def split_main_page(new_entries_block: str, old_messages_block: str,
-                    repo_url: str | None, branch: str | None):
+def split_main_page(new_entries_block, old_messages_block, repo_url, branch):
     test_page = wrap_page(new_entries_block, next_rel=None, prev_rel=None)
     if len(test_page.encode("utf-8")) <= 950 * 1024:
         shift_archives_for_new_page1(old_messages_block, repo_url, branch)
         next_rel_main = "telegram/content/archive_1.md"
         main_base = f"{repo_url}/blob/{branch}/" if repo_url and branch else None
-        main_page = wrap_page(new_entries_block,
-                              next_rel=next_rel_main, prev_rel=None,
-                              base_url=main_base)
+        main_page = wrap_page(new_entries_block, next_rel=next_rel_main, prev_rel=None, base_url=main_base)
         OUTPUT_FILE.write_text(main_page, encoding="utf-8")
         print("✅ Main page updated, old content moved to archive_1.md")
     else:
         print("⚠️ New entries alone exceed 950KB – emergency split.")
-        half = len(new_entries_block) // 2
-        head_block = new_entries_block[:half]
-        shift_archives_for_new_page1(old_messages_block, repo_url, branch)
-        main_page = wrap_page(head_block, next_rel=None,
-                              prev_rel="telegram/content/archive_1.md")
-        OUTPUT_FILE.write_text(main_page, encoding="utf-8")
 
 
 # ----------------------------------------------------------------------
@@ -497,12 +404,14 @@ async def scrape_channel_all(page, channel_name, last_id, max_scrolls):
 
                 let mediaUrl = null, mediaType = null;
 
+                // Video
                 const videoTag = el.querySelector('video');
                 if (videoTag && videoTag.src && !videoTag.src.startsWith('blob:')) {
                     mediaUrl = videoTag.src;
                     mediaType = 'video';
                 }
 
+                // Video wrapper
                 if (!mediaUrl) {
                     const videoWrap = el.querySelector('.tgme_widget_message_video_wrap');
                     if (videoWrap) {
@@ -518,6 +427,7 @@ async def scrape_channel_all(page, channel_name, last_id, max_scrolls):
                     }
                 }
 
+                // Photo
                 if (!mediaUrl) {
                     const photoWrap = el.querySelector('.tgme_widget_message_photo_wrap');
                     if (photoWrap) {
@@ -527,21 +437,7 @@ async def scrape_channel_all(page, channel_name, last_id, max_scrolls):
                     }
                 }
 
-                if (!mediaUrl) {
-                    const linkPhoto = el.querySelector('a.tgme_widget_message_photo_wrap');
-                    if (linkPhoto) {
-                        const videoInside = linkPhoto.querySelector('video');
-                        if (videoInside && videoInside.src && !videoInside.src.startsWith('blob:')) {
-                            mediaUrl = videoInside.src;
-                            mediaType = 'video';
-                        } else {
-                            const style = linkPhoto.getAttribute('style') || '';
-                            const match = style.match(/url\\('(.*?)'\\)/);
-                            if (match) { mediaUrl = match[1]; mediaType = 'photo'; }
-                        }
-                    }
-                }
-
+                // Document
                 if (!mediaUrl) {
                     const docWrap = el.querySelector('a.tgme_widget_message_document_wrap');
                     if (docWrap) {
@@ -567,16 +463,16 @@ async def scrape_channel_all(page, channel_name, last_id, max_scrolls):
                 all_messages.append(m)
                 new_added += 1
 
-        print(f"    Scroll {scroll_count}: total unique={len(all_messages)}, new this scroll={new_added}")
+        print(f"    Scroll {scroll_count}: total unique={len(all_messages)}, new={new_added}")
 
         if all_messages:
             oldest_id = min(msg["id"] for msg in all_messages)
             if oldest_id <= last_id:
-                print(f"    Reached last_id ({last_id}) – stopping scroll.")
+                print(f"    Reached last_id ({last_id}) – stopping.")
                 break
 
         if new_added == 0:
-            print("    No new messages added – end of history.")
+            print("    No new messages – end of history.")
             break
 
         await page.evaluate("window.scrollTo(0, document.body.scrollHeight)")
@@ -588,7 +484,7 @@ async def scrape_channel_all(page, channel_name, last_id, max_scrolls):
                 timeout=5000
             )
         except:
-            print("    No further messages loaded after scroll.")
+            print("    No further messages loaded.")
             break
 
     filtered = [m for m in all_messages if m["id"] > last_id]
@@ -601,7 +497,6 @@ async def main():
     channels = load_channels()
     state = load_state()
     is_first_run = not state
-
     scroll_limit = 15 if is_first_run else 50
 
     async with async_playwright() as p:
@@ -620,13 +515,12 @@ async def main():
 
             for m in msgs:
                 m["_channel"] = clean_name
-
             all_messages.extend(msgs)
             print(f"  ✅ {ch_name}: fetched {len(msgs)} new messages")
 
         await browser.close()
 
-    # Block .webm videos
+    # Block .webm
     for m in all_messages:
         if m.get("media_type") == "video" and m.get("media_url", "").lower().endswith(".webm"):
             m["media_url"] = None
@@ -634,11 +528,9 @@ async def main():
 
     repo_url, branch = get_github_base_url()
 
-    # Update timestamp
     now_jalali = jdatetime.datetime.now(IRAN_TZ)
     update_header = f"\n---\n📅 بروزرسانی: {now_jalali.strftime('%Y/%m/%d %H:%M')}\n---\n\n"
 
-    # Build new entries
     new_entries_list = []
     new_ids_set = set()
 
@@ -651,27 +543,27 @@ async def main():
         media_type = msg.get("media_type")
         media_url = msg.get("media_url")
 
-        if media_url and media_type in ("photo", "video"):
-            media_md = download_media(media_url, ch, pid, media_type=media_type)
-        elif media_url and media_type == "document":
-            media_md = download_document(media_url, ch, pid)
-            if not media_md:
-                # Fallback: use the original Telegram post link
-                media_md = media_url
+        if media_url:
+            if media_type in ("photo", "video"):
+                media_md = simple_download(media_url, ch, pid, media_type=media_type)
+            elif media_type == "document":
+                media_md = download_document(media_url, ch, pid)
+                if not media_md:
+                    # Keep the original URL as fallback
+                    media_md = media_url
 
         header = f"## {ch} — post {pid}\n\n"
         media_html = ""
+
         if media_md:
-            if media_type == "photo":
+            if media_type == "photo" and not media_md.startswith("http"):
                 media_html = f'<div align="center">\n  <img src="{media_md}" alt="Photo">\n</div>'
-            elif media_type == "video":
-                media_html = f'<div align="center">\n  <a href="{media_md}" target="_blank">🎬 Download video</a>\n</div>'
-            elif media_type == "document":
-                if media_md.startswith("http"):
-                    media_html = f'<div align="center">\n  <a href="{media_md}" target="_blank">📎 Download file (link)</a>\n</div>'
-                else:
-                    filename = media_md.split('/')[-1] if '/' in media_md else media_md
-                    media_html = f'<div align="center">\n  <a href="{media_md}" target="_blank" download>📎 {filename}</a>\n</div>'
+            elif media_type in ("video", "document") and not media_md.startswith("http"):
+                filename = media_md.split('/')[-1] if '/' in media_md else media_md
+                media_html = f'<div align="center">\n  <a href="{media_md}" target="_blank">📎 {filename}</a>\n</div>'
+            elif media_md.startswith("http"):
+                # Fallback link
+                media_html = f'<div align="center">\n  <a href="{media_md}" target="_blank">📎 Download file</a>\n</div>'
 
         caption = msg.get("text", "")
         caption_style = "dir='rtl' style='font-family: \"Vazirmatn\", Tahoma, sans-serif;'"
@@ -686,47 +578,32 @@ async def main():
         caption_style = "dir='rtl' style='font-family: \"Vazirmatn\", Tahoma, sans-serif;'"
         new_entries_block += f'<div {caption_style}>\nهیچ پیام جدیدی در این بروزرسانی ارسال نشد.\n</div>\n\n'
 
-    # Load existing messages
     old_messages_block = ""
     if OUTPUT_FILE.exists():
         old_raw = OUTPUT_FILE.read_text(encoding="utf-8")
         extracted = extract_message_md(old_raw)
-        if extracted is not None:
-            old_messages_block = extracted
-        else:
-            lines = old_raw.split("\n")
-            if lines and lines[0].startswith("# "):
-                old_messages_block = "\n".join(lines[1:]).strip()
-            else:
-                old_messages_block = old_raw.strip()
+        old_messages_block = extracted if extracted is not None else ""
 
     if old_messages_block.strip() and new_ids_set:
         old_messages_block = deduplicate_messages(old_messages_block, new_ids_set)
 
-    # Combine and write
     if new_entries_block or old_messages_block:
         main_base = f"{repo_url}/blob/{branch}/" if repo_url and branch else None
-
-        trial_page = wrap_page(new_entries_block + old_messages_block,
-                               next_rel=None, prev_rel=None, base_url=main_base)
+        trial_page = wrap_page(new_entries_block + old_messages_block, next_rel=None, prev_rel=None, base_url=main_base)
         size = len(trial_page.encode("utf-8"))
+
         if size > 950 * 1024 and old_messages_block.strip():
             split_main_page(new_entries_block, old_messages_block, repo_url, branch)
         else:
             archives = get_existing_archives()
-            next_rel_main = None
-            if archives:
-                next_rel_main = f"telegram/content/archive_{archives[0][0]}.md"
-            main_page = wrap_page(new_entries_block + old_messages_block,
-                                  next_rel=next_rel_main, prev_rel=None, base_url=main_base)
+            next_rel_main = f"telegram/content/archive_{archives[0][0]}.md" if archives else None
+            main_page = wrap_page(new_entries_block + old_messages_block, next_rel=next_rel_main, prev_rel=None, base_url=main_base)
             OUTPUT_FILE.write_text(main_page, encoding="utf-8")
             print("✅ Main page updated.")
     else:
         if not OUTPUT_FILE.exists():
             OUTPUT_FILE.write_text(wrap_page("", None, None))
-            print("ℹ️ No messages yet, empty page created.")
 
-    # Update state
     for ch_name in channels:
         clean_name = ch_name.lstrip("@")
         ch_msgs = [m for m in all_messages if m["_channel"] == clean_name]
@@ -735,7 +612,7 @@ async def main():
             state[ch_name] = max(state.get(ch_name, 0), max_id)
 
     save_state(state)
-    print("✅ State saved.")
+    print("✅ Done.")
 
 
 if __name__ == "__main__":
