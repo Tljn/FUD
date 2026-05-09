@@ -7,6 +7,46 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 10:29
+---
+
+## vasl_bashim — post 12829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiQHZhc2xfYmFzaGltIFsxXSIsInNlcnZlciI6eyJkb21haW4iOiJ0ZS5saW5rLWRha2hlbGktYXBwLnNob3AiLCJlbmNyeXB0aW9uX2tleSI6IlRlbGVncmFtQ2hhbm5lbEBsaW5rX2Rha2hlbGlfYXBwIiwiZW5jcnlwdGlvbl9tZXRob2QiOjF9fX0
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiQHZhc2xfYmFzaGltIFsyXSIsInNlcnZlciI6eyJkb21haW4iOiJldS5saW5rLWRha2hlbGktYXBwLnNob3AiLCJlbmNyeXB0aW9uX2tleSI6IlRlbGVncmFtQ2hhbm5lbEBsaW5rX2Rha2hlbGlfYXBwIiwiZW5jcnlwdGlvbl9tZXRob2QiOjF9fX0
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiQHZhc2xfYmFzaGltIFszXSIsInNlcnZlciI6eyJkb21haW4iOiJzci5saW5rLWRha2hlbGktYXBwLnNob3AiLCJlbmNyeXB0aW9uX2tleSI6IlRlbGVncmFtQ2hhbm5lbEBsaW5rX2Rha2hlbGlfYXBwIiwiZW5jcnlwdGlvbl9tZXRob2QiOjF9fX0
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiQHZhc2xfYmFzaGltIFs0XSIsInNlcnZlciI6eyJkb21haW4iOiJzLm80cy5zaG9wIiwiZW5jcnlwdGlvbl9rZXkiOiJUZWxlZ3JhbUNoYW5uZWxAbGlua19kYWtoZWxpX2FwcCIsImVuY3J5cHRpb25fbWV0aG9kIjoxfX19
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiQHZhc2xfYmFzaGltIFs1XSIsInNlcnZlciI6eyJkb21haW4iOiJzMi5vNXMuc2hvcCIsImVuY3J5cHRpb25fa2V5IjoiVGVsZWdyYW1DaGFubmVsQGxpbmtfZGFraGVsaV9hcHAiLCJlbmNyeXB0aW9uX21ldGhvZCI6MX19fQ
+
+
+5 کانفیگ برای برنامه Whitedns
+
+👍 آموزش این روش
+
+@vasl_bashim
+</div>
+
+## vasl_bashim — post 12828
+
+<div align="center">
+  <a href="telegram/content/vasl_bashim_12828_1778309967.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه جدید برنامه که همین امروز منتشر شده
+
+لینک دانلود داخلی : 
+😲
+https://punkpaste.ir/f/WhiteDNS-Beta7-unive-tqq67e
+
+
+💎 باتشکر از تیم خوب whiteDNS
+
+@vasl_bashim
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 09:47
 ---
 
@@ -1352,8 +1392,6 @@ slipnet-enc://AZde+B7SFM2soJx9RWW8NGeRqv9jH6mKbNvITXsVBHhhWmevFsxNeI+Bb1GXjBLqaX
 
 @MehdiBudam
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
