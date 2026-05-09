@@ -7,6 +7,66 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 11:11
+---
+
+## vasl_bashim — post 12834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡ آموزش تصویری whitedns :
+
+
+❇️. به بخش profiles بروید
+
+❇️. اگر کانفیگ متنی دارین import رو بزنین و اونو وارد کنین و اگر domain و encryption دارین create رو بزنین و اونو وارد کنین
+
+❇️. پروکسی مود رو روشن کنین
+
+❇️. ریزالور ها رو توی بخش 4 وارد کنین
+
+❇️. تنظیمات داده شده رو وارد بخش 5 کنید
+
+@vasl_bashim
+</div>
+
+## vasl_bashim — post 12832
+
+<div align="center">
+  <a href="telegram/content/vasl_bashim_12832_1778312466.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❣️ Resolver for storm dns
+
+📶 Tested by mci
+
+
+46.100.249.195
+2.186.122.56
+185.137.25.216
+77.104.115.152
+85.185.159.77
+2.188.184.19
+185.191.79.208
+81.91.147.3
+5.106.19.21
+10.160.155.9
+10.106.4.6
+77.104.115.190
+176.102.224.7
+193.111.235.42
+78.38.182.201
+10.185.68.113
+5.233.44.58
+217.219.182.42
+80.210.26.240
+10.104.204.80
+
+
+@vasl_bashim
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 10:29
 ---
 
