@@ -7,6 +7,186 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 11:53
+---
+
+## tasiyanc — post 4072
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وصل تست شده 
+📶
+VyDns 
+🇩🇪
+
+
+slipnet-enc://AS2ef6OQG7Gf7cQWp+x6lJeLzkWynaUBVH/gNv263DgDg7ekXR1ZTEHiuH2YqqMDu9+hc/tFyHszke/TX2bgKsF/0jlr7yx90s2bRaNyNm6Cdqej82xmmcGrYiHionOdRO3cUhp37V4kjT8Ipy7qeP622f6eh4P959Fd7j3pFHi7+x5umLjLS8G+eiiDhYsQHf/Bu2wD703gmAGIlf6Zhmfqhu68r0zaTCQOtm+HRetLbfzTWmhJdVd5I7NXZ61IYxsJgCICTSx+J2UmlbiANW95EPrgqs8aFABlO5ONKvZUG1mnTaoW1Avd/IbeiCYkFQ/w4MnyMzStemCzmByOr8B9czOWeVZkWLfWl4VEoWeWCEJKiyEJWj0DuqiWx26PCkS8Fb/ike0PJBfhZS4H2Fr04sSr3l5i19zlQpnngLg3T2gMHTmVcteNK2mb7KQMMAyqwyFVueme2tVgnDJXv9xP/2aud5pKF3aOOudO9TGmoxYQuhrl6SD4BG0Kx+8IB3ykIbBT1cZ6autybNjI6tQ6a/KnbUdvIhisfNiJN29oe14uXBvUokwfVBmPJwSap3NWO6HdsLmqskCQ5x3Eeo5R5zuPOgsrmgo3KzZOO+WDtyX1PkWD6MfSaWjLvu7PZwZIoePb38IvW0L5mlswHL7vlqhI895zs6eov2Qps2xlhmJas3XBsMJCZvdpuXhS
+
+@Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 4071
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟡جهت خرید ثبت سفارش کنین فروش بازه
+
+@StarTasiyan
+☑
+
+✅چنل اعتماد
+https://t.me/Ta300ann 
+☑️
+</div>
+
+## vasl_bashim — post 12838
+
+<div align="center">
+  <a href="telegram/content/vasl_bashim_12838_1778314991.webm" target="_blank">📎 vasl_bashim_12838_1778314991.webm</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡ whitedns config :
+stormdns://eyJzY2hlbWEiOiJ3aGl0ZWRucy5wcm9maWxlIiwidmVyc2lvbiI6MSwicHJvZmlsZSI6eyJuYW1lIjoiQHZhc2xfYmFzaGltIFs2XSIsInNlcnZlciI6eyJkb21haW4iOiJnMS5ybWZ0LnRlY2giLCJlbmNyeXB0aW9uX2tleSI6ImEzMzdlOWZhNzUxNjFjNDRiZWJlN2Q3MTdkYTM2YWZjIiwiZW5jcnlwdGlvbl9tZXRob2QiOjF9fX0
+
+
+❣️ Resolver :
+
+46.100.249.195
+2.186.122.56
+185.137.25.216
+77.104.115.152
+85.185.159.77
+2.188.184.19
+185.191.79.208
+81.91.147.3
+5.106.19.21
+10.160.155.9
+10.106.4.6
+77.104.115.190
+176.102.224.7
+193.111.235.42
+78.38.182.201
+10.185.68.113
+5.233.44.58
+217.219.182.42
+80.210.26.240
+10.104.204.80
+185.125.248.57
+185.212.51.144
+188.0.244.39
+188.121.146.226
+188.213.65.54
+195.245.70.210
+217.219.120.82
+92.246.146.61
+93.114.110.193
+93.115.122.144
+93.115.149.243
+93.115.151.135
+93.115.151.164
+93.118.127.60
+93.118.148.30
+93.126.19.125
+93.126.19.246
+93.126.22.206
+93.126.3.22
+93.126.5.100
+93.126.56.30
+94.182.18.137
+94.182.214.34
+94.182.49.131
+94.182.49.134
+94.182.54.7
+94.182.56.43
+94.183.124.194
+94.183.163.248
+94.184.10.131
+94.184.10.132
+94.184.10.133
+94.184.10.134
+94.184.10.135
+95.130.60.34
+95.38.142.34
+95.38.201.199
+95.38.27.53
+95.38.47.172
+37.75.245.131
+45.135.241.33
+45.135.243.61
+45.159.112.79
+45.81.19.13
+45.92.94.189
+45.92.94.208
+46.100.10.237
+46.100.11.168
+46.100.132.34
+46.100.164.112
+2.179.166.58
+2.180.31.171
+2.188.73.109
+2.188.166.75
+2.189.1.1
+2.189.1.2
+2.189.1.12
+2.189.1.19
+5.160.115.130
+5.160.171.36
+5.160.233.150
+5.202.53.21
+37.98.104.20
+37.98.104.129
+37.114.204.154
+37.148.35.89
+37.148.100.151
+37.156.10.40
+37.255.221.16
+45.81.19.16
+45.159.197.99
+46.100.14.182
+46.100.17.47
+46.100.58.243
+46.148.41.139
+46.245.68.179
+46.245.78.84
+77.237.78.178
+77.238.109.134
+80.191.110.161
+80.191.255.18
+80.210.54.68
+81.16.126.112
+85.133.184.69
+85.185.75.75
+86.107.8.153
+87.107.65.78
+87.107.184.98
+87.248.138.33
+88.218.16.67
+91.243.160.166
+93.115.151.131
+93.126.9.10
+93.126.18.95
+93.126.19.189
+94.182.56.254
+94.182.154.105
+178.252.145.62
+185.19.201.129
+185.105.102.172
+
+
+
+⚛️ Proxy :
+https://t.me/socks?server=127.0.0.1&port=10886
+
+
+👍 آموزش این روش
+
+👍 تنظیمات این روش
+
+@vasl_bashim
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 11:11
 ---
 
