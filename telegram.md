@@ -6,6 +6,87 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 13:39
+---
+
+## vasl_bashim — post 12857
+
+
+<div dir="rtl" style="font-family: \"Vazirmatn\", Tahoma, sans-serif;">
+تلگرام توی عراق رفع فیلتر شد.
+</div>
+
+## vasl_bashim — post 12856
+
+
+<div dir="rtl" style="font-family: \"Vazirmatn\", Tahoma, sans-serif;">
+vless://2cdadfd7-62b1-4f92-ae5b-54c05ec21cc2@th.gostargate.top:49961?encryption=none&type=tcp&headerType=http&path=%2F#%40vasl_bashim
+
+ترکیبی با سایفون
+👍 آموزش این روش
+
+@vasl_bashim
+</div>
+
+## vasl_bashim — post 12855
+
+
+<div dir="rtl" style="font-family: \"Vazirmatn\", Tahoma, sans-serif;">
+💎 خببب عشقای داداش تعداد محدودی سرور یه گیگی موجود شده با لینک ساب و پایداری خوب 🔥 1g ➡️ 292 t ❗️ اولویت با کسانی که زودتر پیام بدن 📱 @khodeDr
+</div>
+
+## vasl_bashim — post 12854
+
+
+<div dir="rtl" style="font-family: \"Vazirmatn\", Tahoma, sans-serif;">
+#ارسالی
+⚛️ Proxy :
+
+https://t.me/proxy?server=213.233.184.133&port=6777&secret=dd3b54584a0135f19594825070bb1450d0
+
+@vasl_bashim
+</div>
+
+## vasl_bashim — post 12851
+
+
+<div dir="rtl" style="font-family: \"Vazirmatn\", Tahoma, sans-serif;">
+زمان بدین متصل میشه 🎀
+
+بزنین اتصال بیاین تلگرام
+
+همه اوپراتور ها 🔥
+
+@vasl_bashim
+</div>
+
+## vasl_bashim — post 12849
+
+
+<div dir="rtl" style="font-family: \"Vazirmatn\", Tahoma, sans-serif;">
+زمان بدین متصل میشه ✔️
+
+بزنین اتصال بیاین تلگرام
+
+همه اوپراتور ها 🔥
+
+@vasl_bashim
+</div>
+
+## MehdiBudam — post 7954
+
+
+<div dir="rtl" style="font-family: \"Vazirmatn\", Tahoma, sans-serif;">
+82
+
+
+slipnet-enc://AbfGg+xTrCVv7bJB7RKeAXs2I0HZDJ/0H/MzOCSAh/3ExLhYm7Ah0FfamTrP35JpKAv9NsOS3NZim2jhSbkzx2+0r+n1C7y7SUT5/z34E7O7EgasAf/p9AW2Odw4L6JXDkHJddUy4vJIEVk0qAzstQzbt5Ty/BnPOXsO/FAw4zz7o2K1lLs2nYz0JRR1uIixIl799Xira+S0lr7GA66mQfbIBkG79vIW8wV0E1/coVRNr2Q+cR+du26/8dWKA12CbaHgZsExvG7BoBf7dps39pNG+apaXVG+FvN3EjofE93FYauFF7fAEAPZv1Uo4hfv54x6TDF71m0mS1JlYGJUvrT8CA8lL+DGAxWnPQCDPMj+qpSJElrbT8I7rvwqTnXz9ZonpZZOdpDW37FawrsV2Ggucd8ECSkeW7U3rWzyuFP+7Yve4g/LD7v0SlrgE1ZSerM0srSpGcV8Xo3pyJ94Qm8O1voAzz+C9UK7RpyRC0UF0A99F9Ij3bNLI8mke51GhXU7tK9zrASkXnHSTxTX1inDdijTmxlL/i7zZgyfIgOIAFPgjP9Tpau65VYIJ05B3M/QhBxdBaXzDZMpEra/F7c2dT4Ag2vbuD9s7OutrYpHT8AzRg3uIfKv7bZZiwaYuoCQI+v8NXisvcKazSY94VSt4hiNDPzTlMP3eKJcPaqteITS0xs0n2A0VemieijB4dOl4OLHNHdZMjL6boVx5nSf4q9AO4CheeIQkHIApf6Mh2SH1mkO3BVuzKYtwgUak58CzHj30i7EU7uxHdl/heemAZb6nUB7VhI=
+
+
+@MehdiBudam
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 12:41
 ---
 
@@ -1376,8 +1457,6 @@ slipnet-enc://AWioS2TSszLH5JxN74Sc0aAFaxvI74O3lZPYt1oZAnwHUbJrD3QcjB+nHh9FD859ep
 
 @MehdiBudam
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
