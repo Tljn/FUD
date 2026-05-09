@@ -1,6 +1,7 @@
 #!/usr/bin/env python3
 """
 Scrape public Telegram channels with Playwright.
+- Direct download of documents (npvt, pdf, zip, etc.) with 50MB size limit.
 - Adds a Hijri‑Shamsi update timestamp for each script run.
 - Downloads photos, videos, AND documents (all file types).
 - Sorts messages by ID (newest first) across channels.
@@ -27,6 +28,10 @@ from zoneinfo import ZoneInfo
 import jdatetime
 import requests
 from playwright.async_api import async_playwright
+
+# ---- Configuration ----
+MAX_FILE_SIZE_MB = 50  # Maximum file size to download in MB
+MAX_FILE_SIZE_BYTES = MAX_FILE_SIZE_MB * 1024 * 1024
 
 # ---- Paths ----
 SCRIPT_DIR = Path(__file__).resolve().parent
@@ -111,6 +116,41 @@ def safe_filename(name: str, max_length: int = 100) -> str:
     prefix = stem[:keep // 2]
     suffix = stem[-(keep - keep // 2):]
     return f"{prefix}...{suffix}.{ext}"
+
+
+def get_file_extension_from_url(url: str) -> str:
+    """Extract file extension from URL."""
+    parsed = urlparse(url)
+    path = parsed.path
+    if '.' in path:
+        return path.split('.')[-1].lower()
+    return ''
+
+
+def get_file_extension_from_content_type(content_type: str) -> str:
+    """Map Content-Type to file extension."""
+    ext_map = {
+        'image/jpeg': '.jpg',
+        'image/png': '.png',
+        'image/webp': '.webp',
+        'image/gif': '.gif',
+        'video/mp4': '.mp4',
+        'video/webm': '.webm',
+        'video/quicktime': '.mov',
+        'application/pdf': '.pdf',
+        'application/zip': '.zip',
+        'application/x-rar-compressed': '.rar',
+        'application/x-7z-compressed': '.7z',
+        'application/vnd.android.package-archive': '.apk',
+        'application/octet-stream': '.dat',
+        'text/plain': '.txt',
+        'audio/mpeg': '.mp3',
+        'audio/ogg': '.ogg',
+        'audio/wav': '.wav',
+        'audio/aac': '.aac',
+        'audio/flac': '.flac',
+    }
+    return ext_map.get(content_type, '.dat')
 
 
 def load_channels():
@@ -235,13 +275,15 @@ def deduplicate_messages(old_block: str, new_ids_set: set[tuple[str, int]]) -> s
 # Media download
 # ----------------------------------------------------------------------
 def download_media(url, channel_name, post_id, media_type='photo', filename=None):
+    """
+    Download media file directly.
+    Returns relative path on success, None on failure.
+    """
     CONTENT_DIR.mkdir(parents=True, exist_ok=True)
 
-    # --- choose initial extension based on media_type ---
-    ext_map = {'photo': '.jpg', 'video': '.mp4', 'document': '.dat'}
     if filename is None:
-        ext = ext_map.get(media_type, '.jpg')
-        local_name = f"{channel_name}_{post_id}_{int(time.time())}{ext}"
+        ext = get_file_extension_from_url(url) or '.dat'
+        local_name = f"{channel_name}_{post_id}_{int(time.time())}.{ext}"
     else:
         if len(filename) > 100:
             filename = safe_filename(filename, max_length=100)
@@ -250,55 +292,86 @@ def download_media(url, channel_name, post_id, media_type='photo', filename=None
     local_path = CONTENT_DIR / local_name
 
     try:
-        resp = requests.get(url, headers=HEADERS, timeout=30)
+        # First check file size with HEAD request
+        head_resp = requests.head(url, headers=HEADERS, timeout=15, allow_redirects=True)
+        content_length = head_resp.headers.get('Content-Length')
+        
+        if content_length:
+            file_size = int(content_length)
+            if file_size > MAX_FILE_SIZE_BYTES:
+                print(f"    ⚠️ File too large: {file_size / (1024*1024):.1f}MB > {MAX_FILE_SIZE_MB}MB limit - skipping")
+                return None
+
+        # Download the file
+        resp = requests.get(url, headers=HEADERS, timeout=30, stream=True)
         resp.raise_for_status()
 
-        # --- use Content-Type to correct the extension ---
-        content_type = resp.headers.get('Content-Type', '').lower()
-        ext_map_mime = {
-            'image/jpeg': '.jpg',
-            'image/png': '.png',
-            'image/webp': '.webp',
-            'video/mp4': '.mp4',
-            'video/webm': '.webm',
-            'video/quicktime': '.mov',
-            'application/pdf': '.pdf',
-            # add more if needed
-        }
-        correct_ext = None
-        for mime, extension in ext_map_mime.items():
-            if mime in content_type:
-                correct_ext = extension
-                break
+        # Check actual size from response
+        actual_length = resp.headers.get('Content-Length')
+        if actual_length:
+            actual_size = int(actual_length)
+            if actual_size > MAX_FILE_SIZE_BYTES:
+                print(f"    ⚠️ File too large: {actual_size / (1024*1024):.1f}MB > {MAX_FILE_SIZE_MB}MB limit - skipping")
+                return None
 
+        # Get proper extension from Content-Type
+        content_type = resp.headers.get('Content-Type', '').lower().split(';')[0].strip()
+        correct_ext = get_file_extension_from_content_type(content_type)
+        
         if correct_ext and not local_name.endswith(correct_ext):
-            new_local_name = str(Path(local_name).stem) + correct_ext
+            new_local_name = f"{Path(local_name).stem}{correct_ext}"
             local_path = CONTENT_DIR / new_local_name
             local_name = new_local_name
             print(f"    ℹ️ Corrected extension -> {local_name}")
 
-        local_path.write_bytes(resp.content)
+        # Write file
+        total_size = 0
+        with open(local_path, 'wb') as f:
+            for chunk in resp.iter_content(chunk_size=8192):
+                if chunk:
+                    total_size += len(chunk)
+                    if total_size > MAX_FILE_SIZE_BYTES:
+                        f.close()
+                        local_path.unlink()  # Delete partial file
+                        print(f"    ⚠️ File exceeded {MAX_FILE_SIZE_MB}MB during download - skipping")
+                        return None
+                    f.write(chunk)
+
+        print(f"    ✅ Downloaded: {local_name} ({total_size / 1024:.1f}KB)")
         return f"telegram/content/{local_name}"
 
+    except requests.exceptions.RequestException as e:
+        print(f"    ⚠️ Download failed: {e}")
+        return None
     except Exception as e:
-        print(f"    ⚠️ Media download failed: {e}")
+        print(f"    ⚠️ Error downloading media: {e}")
         return None
 
 
 def download_document(post_url, channel_name, post_id):
-    print(f"    📄 Fetching document page: {post_url}")
+    """
+    Download document from a Telegram post by extracting the direct download link.
+    Now downloads the actual file, not just link to the post.
+    """
+    print(f"    📄 Fetching document from: {post_url}")
     try:
         resp = requests.get(post_url, headers=HEADERS, timeout=30)
         resp.raise_for_status()
         html = resp.text
 
+        # Try to find the document download link
         match = re.search(
             r'<a\s[^>]*class="tgme_widget_message_document_wrap"[^>]*\shref="([^"]+)"',
             html
         )
         if not match:
+            # Alternative: look for any download link
+            match = re.search(r'<a\s[^>]*href="([^"]+)"[^>]*download[^>]*>', html, re.IGNORECASE)
+        
+        if not match:
             print("    ⚠️ No document download link found on the post page.")
             return None
+
         doc_url = match.group(1)
         if doc_url.startswith("/"):
             doc_url = "https://t.me" + doc_url
@@ -315,10 +388,13 @@ def download_document(post_url, channel_name, post_id):
         else:
             filename = None
 
-        # Fallback
+        # Fallback filename
         if not filename or not any(c in filename for c in (".", "_")):
-            ext = ".dat"
-            filename = f"{channel_name}_{post_id}_{int(time.time())}{ext}"
+            filename = f"{channel_name}_{post_id}_{int(time.time())}"
+            # Try to get extension from URL
+            ext = get_file_extension_from_url(doc_url)
+            if ext:
+                filename += f".{ext}"
 
         print(f"    ⬇️ Downloading document: {doc_url} -> {filename}")
         return download_media(doc_url, channel_name, post_id,
@@ -616,9 +692,11 @@ async def main():
         if media_url and media_type in ("photo", "video"):
             media_md = download_media(media_url, ch, pid, media_type=media_type)
         elif media_url and media_type == "document":
+            # Now downloads the actual file, not just link to post
             media_md = download_document(media_url, ch, pid)
             if not media_md:
-                media_md = media_url  # fallback link
+                # Fallback: link to the post if download fails
+                media_md = media_url
 
         # ---- Centered media & RTL caption with Vazirmatn font ----
         header = f"## {ch} — post {pid}\n\n"
@@ -629,7 +707,9 @@ async def main():
             elif media_type == "video":
                 media_html = f'<div align="center">\n  <a href="{media_md}" target="_blank">🎬 Download video</a>\n</div>'
             elif media_type == "document":
-                media_html = f'<div align="center">\n  <a href="{media_md}" target="_blank">📎 Download file</a>\n</div>'
+                # Show filename and download link
+                filename = media_md.split('/')[-1] if '/' in media_md else media_md
+                media_html = f'<div align="center">\n  <a href="{media_md}" target="_blank" download>📎 دانلود فایل: {filename}</a>\n</div>'
 
         caption = msg.get("text", "")
         if not caption:
