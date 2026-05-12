@@ -7,6 +7,523 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 03:05
+---
+
+## VahidOOnLine — post 239815
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239815_1778628907.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدرضا شهبازی، مجری صداوسیما، در واکنش به انتقادها از وضعیت اینترنت در ایران و مقایسه آن با راه‌اندازی اینترنت ۵جی در افغانستان و آغاز استفاده از کارت‌های بین‌المللی در سوریه، با لحنی تمسخرآمیز گفت: «اگر این چیزها این‌قدر مهم است، بروید همان‌جا (سوریه و افغانستان) زندگی کنید.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239814
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239814_1778628909.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، سفیر آمریکا در سازمان ملل، با بازنشر تهدیدهای اخیر ابراهیم عزیزی، نماینده مجلس، علیه کشورهای منطقه درباره بستن دائمی تنگه هرمز، در ایکس نوشت جمهوری اسلامی به این دلیل کشورهای منطقه و اقتصاد جهانی را تهدید می‌کند که شورای امنیت مسیر دیپلماسی را انتخاب کرده است.
+او نوشت: «جای تعجب ندارد که جمهوری اسلامی آشکارا همسایگان خود را تهدید می‌کند و اذعان می‌کند که به مین‌گذاری در آب‌های بین‌المللی و حمله به کشتی‌های تجاری از سراسر جهان ادامه خواهد داد، با این امید که ویرانی اقتصادی ایجاد کند.»
+والتز افزود: «همه این‌ها به این دلیل است که ما در شورای امنیت سازمان ملل مسیر دیپلماسی را انتخاب کرده‌ایم. این اظهارات یک مقام حکومت ایران نشان می‌دهد چرا قطعنامه شورای امنیت علیه تهران لازم است و چرا هرگز به جمهوری اسلامی اجازه داده نخواهد شد به سلاح هسته‌ای دست یابد.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239813
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239813_1778628910.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم ملی فوتبال ایران در پی انزوای بین‌المللی و انصراف تمامی حریفان تدارکاتی از جمله پرتغال، اسپانیا، مقدونیه و آنگولا، برای سومین بار به مصاف خود رفت. این دیدار درون‌تیمی که عصر سه‌شنبه ۲۲ اردیبهشت در ورزشگاه پاس قوامین (متعلق به نیروی انتظامی) برگزار شد، در غیاب تماشاگران عادی و با پخش مستقیم از صداوسیما همراه بود.
+در این مسابقه که در قالب دو تیم سفید و قرمز انجام شد، تیم سفید با نتیجه ۴ بر ۱ به پیروزی رسید. علی علیپور، دانیال ایری (دو بار) و آریا یوسفی برای سفیدپوشان و امیرحسین حسین‌زاده برای تیم قرمز گلزنی کردند. این سومین بار است که بازیکنان تیم ملی به دلیل پیدا نکردن حریف خارجی، در قالب مسابقات درون‌تیمی مقابل هم صف‌آرایی می‌کنند.
+فدراسیون فوتبال در حالی از برگزاری بازی با «گامبیا» در اردوی آینده ترکیه خبر داده که پیش از این تمامی قرارهای ملاقات با تیم‌های صاحب‌نام فوتبال جهان لغو شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239812
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239812_1778628911.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️«تانکر ترکرز»، سامانه رصد موقعیت نفتکش‌ها، روز سه‌شنبه در گزارشی اعلام کرد که بر اساس داده‌های موجود، تهران در ۲۸ روز گذشته موفق به صادرات دریایی نفت خام نشده است و تنها برخی فرآورده‌های نفتی به‌دلیل اعمال نشدن تحریم‌های دفتر کنترل دارایی‌های خارجی آمریکا (اوفاک) بر تانکرهای حامل آن‌ها، از منطقه خارج شده‌اند. این گزارش همچنین با اشاره به تداوم توقف بارگیری در جزیره خارگ از ۱۶ اردیبهشت‌ماه به دلیل نشت نفت، که پیش‌تر توسط مقامات تهران تکذیب شده بود، تاکید کرد که در حال حاضر تعداد زیادی نفتکش خالی و پر در هر دو سوی خط محاصره دریایی ایالات متحده حضور دارند. تانکر ترکرز تصریح کرد که خروج موفقیت‌آمیز و صادرات تنها زمانی محقق می‌شود که «یک نفتکش از خط محاصره نیروی دریایی آمریکا عبور کرده و بدون محموله به منطقه بازگردد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239811
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239811_1778628912.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صفحه جمهوری‌خواهان سنا در ایکس نوشت: «تا زمانی که جمهوری اسلامی از جاه‌طلبی‌های هسته‌ای خود دست نکشد، ترامپ از قدرت آمریکا برای قطع منابع مالی ماشین ترور استفاده می‌کند.»
+این پست با اشاره به پیامدهای برجام نوشت: «در حالی که جمهوری اسلامی در حال ساخت موشک‌ برای تهدید متحدان آمریکا بود، دموکرات‌ها پالت‌های پول نقد به ایران فرستادند.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239810
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239810_1778628913.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شبکه ان‌بی‌سی نیوز روز سه‌شنبه گزارش داد که پنتاگون در حال بررسی تغییر نام جنگ علیه رژیم ایران از «عملیات خشم حماسی» به «عملیات پتک» است؛ اقدامی که در صورت تصمیم دونالد ترامپ برای ازسرگیری کارزار گسترده بمباران انجام خواهد شد.
+منابع آگاه همچنین به ان‌بی‌سی گفتند که ایالات متحده اکنون نسبت به پیش از آغاز جنگ، قدرت آتش بیشتری در منطقه دارد. یکی از مقام‌های آمریکایی گفت: «ما اکنون نسبت به ۲۷ فوریه در موقعیت بهتری هستیم. قدرت آتش و توانایی بیشتری داریم.»
+این تغییر نام احتمالی بخشی از تلاش دولت ترامپ برای دور زدن «قانون اختیارات جنگی» مصوب ۱۹۷۳ است.
+این قانون جایگزین قانون اساسی نیست و مهلتی ۶۰ روزه تعیین کرده است که بر اساس آن رئیس‌جمهور باید هرگونه اقدام نظامی بدون مجوز را متوقف کند یا از کنگره مجوز بگیرد.
+مهلت ۶۰ روزه مربوط به جنگ ایران در اول مه به پایان رسید و دولت ترامپ  می‌گوید که آتش‌بس، این شمارش زمانی را متوقف کرده است. با این حال، آمریکا همچنان محاصره را اجرا می‌کند
+مارکو روبیو، وزیر خارجه آمریکا،اقدامات نظامی جاری آمریکا در منطقه را «عملیات دفاعی» توصیف می‌کند.
+یکی از مقام‌های کاخ سفید به ان‌بی‌سی گفت دولت معتقد است دادن نام جدید به عملیات نظامی، عملا شمارش زمانی قانون اختیارات جنگی را از نو آغاز می‌کند و «عملیات پتک» تنها نامی نیست که در دست بررسی قرار دارد.
+گزارش ان‌بی‌سی در حالی منتشر می‌شود که به عقیده برخی تحلیلگران ازسرگیری کارزار گسترده بمباران علیه رژیم ایران محتمل به نظر می‌رسد؛ چرا که دونالد ترامپ پاسخ اخیر مقامات حاکم بر ایران در مذاکرات غیرمستقیم با میانجیگری پاکستان را «کاملا غیرقابل قبول» خوانده و تهران نیز اعلام کرده است که از خواسته‌های اصلی خود عقب‌نشینی نخواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239809
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239809_1778628913.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شروین تبریزی، سخنگوی اورژانس تهران سه‌شنبه‌شب، ۲۲ اردیبهشت گفت: «طوفان در تهران تاکنون چهار مجروح داشته که البته همه این افراد در محل درمان شدند.» او گفت: «با توجه به اینکه وزش باد دقایقی قبل متوقف شد احتمال افزایش مجروحان وجود دارد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239808
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239808_1778628914.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در رسانه‌های ایران، وضعیت شهروندان را پس از زلزله شامگاه سه‌شنبه ۲۲ اردیبهشت‌ماه در بومهن و پردیس استان تهران نشان می‌دهد؛ شهروندانی که پس از زلزله به خیابان آمده‌اند و شب را کنار خیابان یا در خودروهای خود، در فضای باز پارک‌ها، سپری می‌کنند.
+بر اساس گزارش‌های منتشرشده، زمین‌لرزه‌ای به بزرگی ۴.۶ مرز استان‌های تهران و مازندران را لرزاند که تاکنون با چندین پس‌لرزه همراه بوده است.
+به گزارش سازمان مدیریت بحران، این زلزله خسارتی نداشته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341620
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341620_1778628916.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: There are now 11 suspected cases of Hantavirus worldwide — all among passengers from the MV Hondius cruise ship, reports @BillMelugin_ .
+</div>
+
+## FoxNewsTwitter — post 341619
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341619_1778628919.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A dog named Bhalu hits the whitewater rapids of northern Iceland, and heeds orders to go forward after the raft makes a big splash.
+
+“Bhalu is more than just our rafting dog, he’s a true whitewater veteran and beloved member of the Viking Rafting crew," the rafting company says.
+</div>
+
+## IranIntlTV — post 336906
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336906_1778628921.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدرضا شهبازی، مجری صداوسیما، در واکنش به انتقادها از وضعیت اینترنت در ایران و مقایسه آن با راه‌اندازی اینترنت ۵جی در افغانستان و آغاز استفاده از کارت‌های بین‌المللی در سوریه، با لحنی تمسخرآمیز گفت: «اگر این چیزها این‌قدر مهم است، بروید همان‌جا (سوریه و افغانستان) زندگی کنید.»
+</div>
+
+## IranIntlTV — post 336905
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336905_1778628922.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هزینه‌ای که جمهوری اسلامی به مردم ایران تحمیل کرده، فقط در اقتصاد خلاصه نمی‌شود؛ از سفره‌های کوچک‌تر تا اینترنت طبقاتی، از اعدام و زندان تا ترس، ناامیدی و خشم فروخورده‌ای که هر روز بزرگ‌تر می‌شود. مردم تا کی تاب می‌آورند؟ آیا ایران به نقطهٔ انفجار رسیده است؟ خشم انباشتهٔ مردم چه زمانی فوران خواهد کرد؟
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/964Hz45DLwM
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336904
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336904_1778628924.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرفان شکورزاده، دانش‌آموختهٔ ۲۹ سالهٔ مهندسی هوافضا از دانشگاه علم‌وصنعت، با اتهام «جاسوسی» اعدام شد؛ اتهامی که جمهوری اسلامی دربارهٔ جزئیات و مدارک آن، توضیح شفافی ارائه نکرده است.
+
+رسانه‌های حکومتی مدعی همکاری او با موساد و آمریکا شدند، اما فعالان حقوق بشر می‌گویند او ماه‌ها در انفرادی بوده و تحت فشار، مجبور به اعتراف اجباری شده است.
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/964Hz45DLwM
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336903
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336903_1778628926.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سحر از تهران: ۱۸ دی به همسرم چاقو زدند؛ نتوانستیم از عهدهٔ درمانش بربیاییم.از کجا بیاوریم؟
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/964Hz45DLwM
+@iranintltv
+</div>
+
+## IranIntlTV — post 336902
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336902_1778628929.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، سفیر آمریکا در سازمان ملل، با بازنشر تهدیدهای اخیر ابراهیم عزیزی، نماینده مجلس، علیه کشورهای منطقه درباره بستن دائمی تنگه هرمز، در ایکس نوشت جمهوری اسلامی به این دلیل کشورهای منطقه و اقتصاد جهانی را تهدید می‌کند که شورای امنیت مسیر دیپلماسی را انتخاب کرده است.
+او نوشت: «جای تعجب ندارد که جمهوری اسلامی آشکارا همسایگان خود را تهدید می‌کند و اذعان می‌کند که به مین‌گذاری در آب‌های بین‌المللی و حمله به کشتی‌های تجاری از سراسر جهان ادامه خواهد داد، با این امید که ویرانی اقتصادی ایجاد کند.»
+والتز افزود: «همه این‌ها به این دلیل است که ما در شورای امنیت سازمان ملل مسیر دیپلماسی را انتخاب کرده‌ایم. این اظهارات یک مقام حکومت ایران نشان می‌دهد چرا قطعنامه شورای امنیت علیه تهران لازم است و چرا هرگز به جمهوری اسلامی اجازه داده نخواهد شد به سلاح هسته‌ای دست یابد.»
+
+https://iranintl.com/202605120656
+</div>
+
+## IranIntlTV — post 336901
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336901_1778628929.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیدا از تهران: من ترجیح می‌دهم در راه آزادی کشورم بمیرم تا از گرسنگی
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/964Hz45DLwM
+@iranintltv
+</div>
+
+## IranIntlTV — post 336900
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336900_1778628931.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد از مشهد: در مشهد، سر صف بنزین مردم با هم درگیر می‌شوند که معلوم است از انباشت خشم است
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/964Hz45DLwM
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336899
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336899_1778628933.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیر از خمین: رفتم مخابرات و گفتم توانایی مالی اینترنت را ندارم و خواهش کردم قطع کنند
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/964Hz45DLwM
+@iranintltv
+</div>
+
+## IranIntlTV — post 336898
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336898_1778628935.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در نشست امنیتی پولیتیکو گفت حملات اخیر به ایران، نه علیه مردم، بلکه علیه جمهوری اسلامی بوده و آن را عملیاتی آزادی‌بخش توصیف کرد.
+
+گفت‌وگو با نجات بهرامی، تحلیل‌گر سیاسی
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336897
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336897_1778628937.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صفحه جمهوری‌خواهان سنا در ایکس نوشت: «تا زمانی که جمهوری اسلامی از جاه‌طلبی‌های هسته‌ای خود دست نکشد، ترامپ از قدرت آمریکا برای قطع منابع مالی ماشین ترور استفاده می‌کند.»
+این پست با اشاره به پیامدهای برجام نوشت: «در حالی که جمهوری اسلامی در حال ساخت موشک‌ برای تهدید متحدان آمریکا بود، دموکرات‌ها پالت‌های پول نقد به ایران فرستادند.»
+
+https://iranintl.com/202605122338
+</div>
+
+## IranIntlTV — post 336896
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336896_1778628938.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت حملات آمریکا توانایی‌ و رهبری نظامی جمهوری اسلامی را به شدت تضعیف کرده و آمریکا انتظار دارد فشار بر جمهوری اسلامی با محاصره بنادر ایران، منجر به فروپاشی اقتصادی حکومت شود.
+
+گفت‌وگو با محمد قائدی، مدرس روابط بین‌الملل در دانشگاه جورج واشینگتن
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336895
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336895" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: چرا به خواندن اسامی جاویدنام‌ها ادامه خواهم داد؟
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336894
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336894_1778628941.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در رسانه‌های ایران، وضعیت شهروندان را پس از زلزله شامگاه سه‌شنبه ۲۲ اردیبهشت‌ماه در بومهن و پردیس استان تهران نشان می‌دهد؛ شهروندانی که پس از زلزله به خیابان آمده‌اند و شب را کنار خیابان یا در خودروهای خود، در فضای باز پارک‌ها، سپری می‌کنند.
+بر اساس گزارش‌های منتشرشده، زمین‌لرزه‌ای به بزرگی ۴.۶ مرز استان‌های تهران و مازندران را لرزاند که تاکنون با چندین پس‌لرزه همراه بوده است.
+به گزارش سازمان مدیریت بحران، این زلزله خسارتی نداشته است.
+</div>
+
+## FarsiVOA — post 217582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گشت‌وگذار خبرنگار اسرائیلی در بغداد و اعتراف ارتش عراق به ایجاد پایگاه در صحرای نجف توسط اسرائیل
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پرزیدنت ترامپ: در چین گفتگوهای مفصلی در مورد اقدام نظامی علیه جمهوری اسلامی خواهیم داشت
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14023
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14023_1778628943.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر ❤️🔥
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇰🇷 یو نی‌هاپ: وزیر دفاع کره جنوبی، آن گیوبک، می‌گوید سئول پس از گفتگو با مقامات آمریکایی در واشنگتن، مشارکت مرحله‌ای در تأمین امنیت ترافیک دریایی در تنگه هرمز را مد نظر قرار خواهد داد، از جمله احتمال به اشتراک‌گذاری اطلاعات و حمایت نظامی محدود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14021
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14021_1778628944.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری:
+اگر رژیم سقوط کند شما خود را در موقعیت رهبری دوران گذار میبینید و شما حدود 50 سال در ایران نبودید و رییس جمهور ترامپ گفت که مطمئن نیست شما به اندازه کافی در ایران حامی داشته باشید. به ایرانیان داخل و خارج از کشور که خواهان سقوط رژیم فعلی هستند اما شما را به عنوان رهبر بعدی نمیبینند، چه میگویید؟
+
+شاهزاده رضا پهلوی:
+من فکر می‌کنم میلیون‌ها نفری که به فراخوان من پاسخ دادند، گواه زنده‌ای بر این واقعیت هستند که من از حمایت گسترده‌ای در داخل ایران برخوردارم. و باز هم می‌گویم، به محض اینکه این قطع اینترنت برطرف شود، شما خواهید توانست دقیقاً بشنوید که مردم ایران چه می‌گویند.
+پیام آخر من قبل از قطعی اینترنت نود میلیون بازدید داشت که پس از قطعی اینترنت به نزدیک شش میلیون رسید. این یعنی تمام پایگاه مخاطبان من در ایران هستند، همان افرادی که به فراخوان من پاسخ دادند.
+ما گروگان این رژیم هستیم و گاهی اوقات گروگان‌ها نمی‌توانند بدون کمک خارجی خود را آزاد کنند. به همین دلیل است که ما به کمک خارجی نیاز داریم. باقی کارها را خودمان انجام خواهیم داد و دخالت خارجی را در این موارد نمی‌پذیریم.
+
+📌 @persian_trend_official
+</div>
+
+## IranianMinds — post 20048
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMindsGroup
+
+ایدی گروه کامنتا ( تو کامنتا خیلی درخواست داده بودید )
+</div>
+
+## Dirty_Kids — post 389356
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389356_1778628947.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389355
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389355_1778628948.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A22
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389354
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389354_1778628948.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌‏جمله‌ی
+مخرج مشترک تمام مادرجنده‌های دنیا فلسطینه
+
+یکی از حق ترین جملات تاریخه
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389352
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389352_1778628948.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یادآوری آن روز باشکوه.
+
+*تصویر حمله هوایی به بیت رهبری
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389350
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389350_1778628949.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وسط این بگاییا یه پسره به اسم امیر قاسم ملقب به بتمن :))))))) با این ویس هاپ هاپ مخ ۶۰ نفر زده، الان لو رفته دخترا به جون هم افتادن چت و اسکرین شات و نود همدیگه‌رو دارن پخش میکنن
+
+با نود و چتاشون کاری ندارم ولی این ویس خیلی خنده بود
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389349
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389349_1778628949.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارمندان آینده #ساواک پخشش کنید
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 01:53
 ---
 
