@@ -7,6 +7,760 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 01:53
+---
+
+## VahidOOnLine — post 239807
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239807_1778624614.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، بعدازظهر سه‌شنبه، ۲۲ اردیبهشت‌‌ماه، سفر چندروزه خود را برای دیدار با شی جین‌پینگ، رئیس جمهوری چین آغاز کرد. انتظار می‌رود خاورمیانه و پیامدهای اقتصادی مربوط به جنگ، از محورهای اصلی گفتگوها میان دو رهبر باشد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239806
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239806_1778624616.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+الجزیره به نقل از منابع دیپلماتیک گزارش داد ۱۱۲ کشور به پیش‌نویس قطعنامه‌ای در شورای امنیت سازمان ملل پیوسته‌اند که از سوی آمریکا و کشورهای خلیج فارس درباره آزادی کشتیرانی در تنگه هرمز ارائه شده است.
+
+به گفته این منابع، هند، ژاپن و بیشتر کشورهای اروپایی در میان حامیان این پیش‌نویس قرار دارند.
+
+منابع الجزیره همچنین گفتند حمایت ۱۱۲ کشور از این قطعنامه، نشان‌دهنده پشتیبانی گسترده بین‌المللی از ابتکار آمریکا و کشورهای خلیج فارس درباره تنگه هرمز است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239804
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239804_1778624617.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شروین تبریزی، سخنگوی اورژانس تهران اعلام کرد طوفان در تهران تاکنون چهار مصدوم داشته است که البته همه این مصدومان در محل درمان شدند.
+او خاطرنشان کرد با توجه به اینکه وزش باد دقایقی پیش متوقف شد، احتمال افزایش مصدومان وجود دارد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239803
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239803_1778624617.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، با انتشار پیامی در اکس، درگیری‌های جاری را «نبردی سرنوشت‌ساز برای آینده بشریت» توصیف کرد و گفت: «ایالات متحده و اسرائیل این جنگ تجاوزکارانه را در ۲۸ فوریه ۲۰۲۶، برای دومین بار در کمتر از یک سال و در حالی که ایران و آمریکا در حال مذاکرات دیپلماتیک بودند، آغاز کردند.» بقایی با تاکید بر اینکه این تنها جنگی بر سر زمین یا ژئوپلیتیک نیست، گفت: «این نبردی است میان دروغگویان حرفه‌ای که برای جنایات خود توجیه می‌تراشند و ملتی سربلند که با تکیه بر قدرت و اراده خود از میهن و کرامت انسانی دفاع می‌کنند.» او سکوت در برابر این وضعیت را همدستی با شر دانست و گفت: «شجاعت اخلاقی برای سخن گفتن، عمل کردن و ایستادن در سمت درست تاریخ را پیدا کنید، پیش از آنکه جهان به ورطه بی‌قانونی و انقیاد سقوط کند. انتخاب با شماست و تاریخ آن را به یاد خواهد داشت».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239802
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239802_1778624618.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان مدیریت بحران اعلام کرد باتوجه به بررسی‌های اولیه و ارزیابی تیم‌های کارشناسی، زمین‌لرزه‌ها در مرز استان‌های تهران و مازندران خساراتی درپی نداشته است.
+مرکز لرزه‌نگاری در اطلاعیه‌ای اعلام کرد ساعت ۲۳:۴۶ سه‌شنبه شب زمین‌لرزه‌ای به بزرگی ۴.۶ مرز تهران و مازندران را لرزاند. زمین‌لرزه در تهران حدود ۱۰ ثانیه طول کشید.
+این لرزش در شرق تهران، ورامین، پاکدشت، پردیس و بخش‌هایی از شمیرانات بیشتر احساس شد.
+همچنین چهار پس‌لرزه‌ در استان تهران رخ داد که آخرین پس‌لرزه‌ها به بزرگی ۴ و ۳.۴ بودند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239801
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239801_1778624618.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، عراق و پاکستان برای انتقال نفت و گاز طبیعی مایع (LNG) از خلیج فارس با تهران به توافق رسیده‌اند؛ اقدامی که به گفته «پنج منبع آگاه»، نشان‌دهنده توانایی رژیم ایران در هدایت جریان انرژی از طریق تنگه هرمز است. این توافق‌های جدید در حالی صورت می‌گیرد که اشراف تهران بر این آبراه حیاتی، قدرت چانه‌زنی این کشور در معادلات انرژی منطقه را افزایش داده و مسیرهای تازه‌ای را برای صادرات سوخت در بازارهای منطقه‌ای ایجاد کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239800
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239800_1778624619.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس سازمان هلال احمر اعلام کرد زلزله در تهران و کرج «هیچ» خسارت مالی و جانی در پی نداشته است.
+پیش‌تر زلزله‌ای به بزرگی ۴.۶ در مقیاس ریشتر، مرز استان‌های تهران و مازندران را لرزاند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239799
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239799_1778624620.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش مرکز لرزه‌نگاری ایران، در نخستین ساعت بامداد چهارشنبه، ۲۳ اردیبهشت‌ماه، وقوع دو پس‌لرزه به‌ترتیب به بزرگی ۴ و ۳.۴ در پردیس، تهران را لرزاند. براساس گزارش فارس، این پس‌لرزه‌ها در ورامین، پاکدشت، پردیس و بخش‌هایی از شمیرانات حس شده است. پیش از این، زلزله به بزرگی ۴.۶ در مرز تهران و مازندران رخ داد که پردیس مرکز آن اعلام شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11106
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمیتونن از قصد ی جوری پس لرزه اینجاد کنن که نفهمن تست اتمه؟
+</div>
+
+## WithYashar — post 11105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمیتونن از قصد ی جوری پس لرزه اینجاد کنن که نفهمن تست اتمه؟
+</div>
+
+## WithYashar — post 11104
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش مقدماتی زمین‌لرزه بزرگی: ۴.۶ ریشتر محل وقوع: مرز استانهای تهران و مازندران - حوالی پرديس تاریخ و زمان وقوع به وقت محلی: 1405/02/22 23:46:07 عمق زمین‌لرزه: 10 کیلومتر @withyashar همچنین اورژانس تهران اعلام کرده در پی طوفان و باد شدید با سرعت ۵۵…
+</div>
+
+## WithYashar — post 11103
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11103_1778624620.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : بلرزونش ، هواپیمای جاسوسی آواکس و زلزله… حجم کم
+@withyashar
+</div>
+
+## mwarmonitor — post 9010
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9010_1778624623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بر اساس گزارش CBS درباره ادعای نگهداری هواپیماهای ایرانی توسط پاکستان در پایگاه هوایی نورخان، تصاویر منتشرشده توسط شرکت چینی تحت تحریم «Mizarvision» در آوریل ۲۰۲۶ نشان می‌دهد یک هواپیمای C-130 با استتار شنی در این محل حضور دارد. اگر پاکستان از این نوع رنگ‌آمیزی…
+</div>
+
+## mwarmonitor — post 9009
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9009_1778624623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰(رویترز) - کلودیا شینباوم، رئیس‌جمهور مکزیک، روز دوشنبه اعلام کرد که از همکاری مقامات سفارت آمریکا با ایالت شمالی «چی‌واوا» برای مبارزه با کارتل‌های مواد مخدر اطلاعی نداشته است. وی در پی کشته شدن این مقامات در یک تصادف رانندگی، گفت که دولتش بررسی خواهد کرد…
+</div>
+
+## mwarmonitor — post 9008
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9008_1778624624.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸✈️🇨🇳 ترامپ واشنگتن را به مقصد پکن، چین ترک کرد.
+
+هواپیمای ریاست‌جمهوری آمریکا (Air Force One) بوئینگ VC-25A با شماره ثبت 92-9000
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341618
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341618_1778624625.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A trapped dog was rescued after falling more than 21 feet "deep underground" in England's North York Moors.
+
+A brave cave diver managed to squeeze through the tight gaps to reach the trapped pup and lift her to safety.
+</div>
+
+## pm_afshaa — post 90665
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90665_1778624626.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان: اسرائیل نگرانه ترامپ ممکنه قبل از حل کامل مسائل اصلی جنگ، با ایران به یه توافق سریع برسه. ترس اصلی اینه که ترامپ از روند مذاکرات خسته بشه و هر توافقی حتی با امتیازهای لحظه آخری رو قبول کنه.
+
+اسرائیل میگه آمریکا درباره اورانیوم غنی‌شده اطمینان داده، ولی نگرانی اصلیشون اینه که موضوع موشک‌های بالستیک و شبکه نیروهای نیابتی ایران اصلاً تو توافق نیاد.
+همچنین می‌ترسن یه توافق نصفه‌نیمه باعث بشه تحریم‌ها سبک بشه و ایران دوباره از نظر اقتصادی و سیاسی قوی‌تر بشه.
+
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90664
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90664_1778624627.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دو زمین لرزه 4 و 3.4 ریشتری در فاصله 6 دقیقه در پردیس تهران
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 4601
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4601_1778624628.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+سه‌شنبه ۲۲ اردیبهشت ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## DEJradio — post 4600
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4600_1778624628.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 حامد فرد هنرمند ملی‌گرا موزیک ویدیو «موشتباه» را منتشر کرد. او در صفحه اینستاگرام خود نوشته دو و ماه و نیم از کشته شدن علی خامنه‌ای گذشته اما جسدش را دفن نکرده‌اند و مضحک ماجرا اینجاست که مراسم چهلمش را در یک کلیسا در تهران برگزار کردند؛ آن هم چهلم کسی را که در تمام دوران حکومت ظالمانه‌اش نه‌تنها آزادی مذهب وجود نداشت، بلکه پیروان آیین مسیح و نوکیشان مسیحی تحت آزار و سـ.ـرکوب قرار داد.
+
+او تأکید کرد کشته شدن خامنه‌ای هرچند برای بسیاری از مردم ایران مرهمی بر دل‌های خونین و زخمی بود، اما چیزی جز یک مُسکن کوتاه‌مدت و موقتی نبود و نیست. عطش انتـ.ـقام ما ملت ایران با حذف یک نفر پایان پیدا نمی‌کند.»
+
+حامد فرد تأکید کرد «تا زمانی که حقیقت تمام جـ.ـنایت‌ها ا آشکار نشود، تا زمانی که خانواده‌های قربانیان دادخواهی نکنند، و تا زمانی که جمهوری اسلامی و تمام نمادها، ساختارها و نشانه‌های آن به‌طور کامل از ایران برچیده نشوند، آرام نخواهیم گرفت. ما تا اانـ.ـقام تمام قربانیان این رژیم اهریمنی، از بهمن شوم ۵۷ تا امروز را نگیریم، از پا نخواهیم نشست.»
+
+#موشتبا #جمهوری_اسلامی
+@DEJradio
+</div>
+
+## DEJradio — post 4599
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4599_1778624629.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 پیام شهروندان در #تهران در واکنش به تهدید جنسی دانش‌آموزان مدرسه دخترانه شرافت در منطقه ۱۳ تهران: سکوت نکنیم، امروز مدرسه شرافت بود فردا مدرسه‌ای دیگر.
+
+#مدرسه_شرافت #جمهوری_اسلامی
+@DEJradio
+</div>
+
+## mamlekate — post 103518
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 رویترز از حملات اعلام‌نشده عربستان سعودی به ایران در جریان جنگ خبر داد
+
+پس از افشای حملات تلافی‌جویانه امارات متحده عربی به اهدافی در لاوان و عسلویه، خبرگزاری رویترز گزارش داد که عربستان سعودی نیز در واکنش به حملات جمهوری اسلامی به خاک این کشور در جریان جنگ اخیر، چندین حمله اعلام‌نشده علیه ایران انجام داده است.
+
+@mamlekate
+</div>
+
+## kianmeli1 — post 87374
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87374_1778624630.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وضعیت خیابان‌ها و پارک‌های پردیس پس از زلزله امشب
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87373
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87373_1778624632.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حضور مردم در حاشیه شهر بومهن پس از وقوع زلزله امشب
+
+برخی مردم در خیابان خوابیده اند
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 336893
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336893" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ خشم انباشتهٔ مردم کی فوران خواهد کرد؟
+</div>
+
+## IranIntlTV — post 336892
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336892_1778624634.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا به خواندن اسامی جاویدنام‌ها ادامه خواهم داد؟ چرا تکرار نام جاویدنام‌ها اهمیت ملی دارد؟ و چرا جمهوری اسلامی از تکرار نام جاویدنام خشمگین و عصبانی است؟
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336891
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336891_1778624636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شروین تبریزی، سخنگوی اورژانس تهران اعلام کرد طوفان در تهران تاکنون چهار مصدوم داشته است که البته همه این مصدومان در محل درمان شدند.
+او خاطرنشان کرد با توجه به اینکه وزش باد دقایقی پیش متوقف شد، احتمال افزایش مصدومان وجود دارد.
+
+https://iranintl.com/202605126188
+</div>
+
+## IranIntlTV — post 336890
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336890_1778624636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، در واکنش به صحبت‌های محسنی اژه‌ای، رییس قوه قضاییه که گفت مردم نباید بدبین شوند، گفت:‌ «حکومتی که با کشتار، سرکوب، قطع اینترنت، نابودی کسب‌وکارها و تحمیل بحران‌های اقتصادی و امنیتی زندگی مردم را مختل کرده، خود عامل این بی‌اعتمادی و بدبینی است. جامعه ایران فراتر از بدبینی، خواهان پایان این وضعیت و سرنگونی جمهوری اسلامی است.»
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336889
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336889_1778624638.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت:‌ «ترامپ زمان زیادی ندارد؛ چون با نزدیک شدن به انتخابات کنگره، اگر نتواند جمهوری اسلامی را به‌روشنی شکست دهد یا به اهدافش برسد، ممکن است اکثریت کنگره را به دموکرات‌ها واگذار کند.»
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336888
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336888_1778624639.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان مدیریت بحران اعلام کرد باتوجه به بررسی‌های اولیه و ارزیابی تیم‌های کارشناسی، زمین‌لرزه‌ها در مرز استان‌های تهران و مازندران خساراتی درپی نداشته است.
+مرکز لرزه‌نگاری در اطلاعیه‌ای اعلام کرد ساعت ۲۳:۴۶ سه‌شنبه شب زمین‌لرزه‌ای به بزرگی ۴.۶ مرز تهران و مازندران را لرزاند. زمین‌لرزه در تهران حدود ۱۰ ثانیه طول کشید.
+این لرزش در شرق تهران، ورامین، پاکدشت، پردیس و بخش‌هایی از شمیرانات بیشتر احساس شد.
+همچنین چهار پس‌لرزه‌ در استان تهران رخ داد که آخرین پس‌لرزه‌ها به بزرگی ۴ و ۳.۴ بودند.
+
+https://iranintl.com/202605124199
+</div>
+
+## IranIntlTV — post 336887
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336887_1778624639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻علیرضا دبیر، رییس فدراسیون کشتی در گفتگویی با خبرنگاران مدعی شد فدراسیون و خانه کشتی در غرب تهران در تمام روزهای جنگ ۴۰ روزه، مورد هدف قرار گرفته است.
+
+🔹او گفت بیش از ۱۵۰تا ۱۶۰ موشک به این محل اصابت کرده است.
+
+🔹در هفته اول جنگ، ایران‌اینترنشنال گزارش داد که پس از آغاز حملات اسرائیل و آمریکا در نهم اسفندماه، به کارکنان و پرسنل فدراسیون‌ها و مراکز مستقر در مجموعه ورزشی آزادی در تهران دستور داده شد ساختمان‌ها و سالن‌های ورزشی این مجموعه را تخلیه کنند.
+
+🔹طبق این اطلاعات، پس از تخلیه کارکنان، نیروهای حکومتی از جمله یگان ویژه و بسیج در بخش‌های مختلف این مجموعه مستقر شدند.
+
+🔹پس از این ماموران در سالن‌های مختلف از جمله ورزشگاه ۱۲ هزار نفری آزادی و همچنین سالن‌ها و ساختمان‌های متعلق به فدراسیون‌های ورزشی از جمله کشتی، والیبال، بسکتبال و وزنه‌برداری مستقر شدند.
+
+🔹در پی این اقدامات، سالن ۱۲ هزار نفری ورزشگاه آزادی در حملات هوایی روز پنجشنبه ۱۴ اسفند ۱۴۰۴، تخریب شد.
+
+🔹به گفته علیرضا دبیر، برای بازسازی خانه کشتی، تاکنون بیش از ۴۰۰ میلیارد تومان هزینه شده است.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 5983
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 12 May 2026 21:17:38 UTC
+
+Someone wrote “Tehran is having a wild orgasm” in Telegram 😭😭😭
+
+فارسی
+
+یک نفر در تلگرام نوشته «تهران دارد به ارگاسم وحشیانه می‌رسد» 😭😭😭
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5982
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 12 May 2026 21:16:15 UTC
+
+And another aftershock rn
+
+فارسی
+
+و یک پس‌لرزه دیگر همین الان
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105382
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105382_1778624641.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+الجزیره به نقل از منابع دیپلماتیک گزارش داد ۱۱۲ کشور به پیش‌نویس قطعنامه‌ای در شورای امنیت سازمان ملل پیوسته‌اند که از سوی آمریکا و کشورهای خلیج فارس درباره آزادی کشتیرانی در تنگه هرمز ارائه شده است.
+
+به گفته این منابع، هند، ژاپن و بیشتر کشورهای اروپایی در میان حامیان این پیش‌نویس قرار دارند.
+
+منابع الجزیره همچنین گفتند حمایت ۱۱۲ کشور از این قطعنامه، نشان‌دهنده پشتیبانی گسترده بین‌المللی از ابتکار آمریکا و کشورهای خلیج فارس درباره تنگه هرمز است.
+</div>
+
+## ManotoTV — post 105380
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105380_1778624641.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از تهران:
+«می‌گفت جنگ شد و بعد رها شد… همه‌چیز روی هوا موند و شرایط افتضاح‌تر شد.
+می‌گفت قبلش حداقل یه جور داشتیم زندگی می‌کردیم
+</div>
+
+## ManotoTV — post 105379
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105379_1778624644.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس سازمان هلال احمر اعلام کرد زلزله در تهران و کرج «هیچ» خسارت مالی و جانی در پی نداشته است.
+پیش‌تر زلزله‌ای به بزرگی ۴.۶ در مقیاس ریشتر، مرز استان‌های تهران و مازندران را لرزاند.
+</div>
+
+## FarsiVOA — post 217580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺انجمن قلم آمریکا: جمهوری اسلامی بزرگترین دشمن زنان اهل قلم و ایران دومین زندان نویسندگان جهان است
+
+▪️انجمن قلم آمریکا، روز سه‌شنبه ۲۲ اردیبهشت در تازه‌ترین گزارش خود از «شاخص آزادی نوشتن» اعلام کرد جمهوری اسلامی ایران پس از چین، دومین زندان نویسندگان در جهان است و دو برابر میانگین جهانی، زنان اهل قلم را زندانی کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-pen-american-center-writers-prison/8149274.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جروزالم پست: عربستان سعودی در جریان عملیات «خشم حماسی» به مواضع رژیم ایران حمله‌ کرد
+
+▪️روزنامه اسرائیلی جروزالم پست به نقل از مقام‌های غربی و ایرانی گزارش داده است که عربستان سعودی در جریان عملیات «خشم حماسی» حملات هوایی مخفیانه‌ای را علیه برخی مواضع رژیم جمهوری اسلامی در ایران انجام داده است. اقدامی که در صورت تأیید، نخستین عملیات مستقیم نظامی شناخته‌شده عربستان سعودی در خاک ایران محسوب می‌شود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/jpost-saudi-arabia-attacked-iran-epic-fury/8149291.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ: بیان ادعاهای دروغین درباره مناسب بودن شرایط نظامی رژیم ایران «خیانت» است
+
+▪️رئیس جمهوری ایالات متحده با انتقاد شدید از انتشار اخبار دروغین در برخی از رسانه‌ها و مطرح کردن ادعاهای «وضعیت خوب» رژیم ایران از لحاظ نظامی در مقابل ارتش آمریکا، آن‌ را «عملا خیانت» به کشور دانست.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/trump-iran-nuclear-inflation-travel-china/8149296.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14020
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14020_1778624644.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بنیامین نتانیاهو:
+
+تنها کسی که رئیس موساد را منصوب می‌کند، نخست وزیر است. رومن توسط من به عنوان رئیس بعدی موساد کشور اسرائیل انتخاب شد - و او موساد را از قدرتی به قدرت دیگر رهبری خواهد کرد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14019
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14019_1778624647.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ویدئو منتشر شده در اینستاگرام بنیامین نتانیاهو:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14018
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14018_1778624649.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#طنز_تلخ
+
+⭕️ بیانیه عرش الهی:
+
+مجدد زلزله ای زیبا نازل کردیم.
+خواهیم دید چه خواهد شد.
+از توجه شما به این موضوع سپاس گذاریم.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14017
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14017_1778624649.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢این ویدئو بهت نشون میده که پناه‌گیری درست چطور جانت رو حفظ می‌کنه در زمان زلزله
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14016
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کولیوند: زلزله پردیس تهران، خسارت مالی و جانی نداشت
+
+💢 رئیس جمعیت هلال احمر: مردم نگران نباشند؛ زلزله پردیس تهران، خسارت مالی و جانی در پی نداشته است.
+
+💢 ۲ پس لرزه ۴ و ۳.۴ ریشتری دیگر تهران را لرزاند.
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14015
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آماده باش مدیریت بحران پردیس؛ در پی زلزله مردم پردیس از خانه‌ها خارج شدند
+
+💢در حالی که فرماندار شهرستان پردیس گفت: در پی وقوع زمین لرزه استان ستاد مدیریت بحران شهرستان در آماده باش کامل است، خبرنگار ایرنا از پردیس گزارش می‌دهد شهروندان پردیسی از خانه‌ها خارج شده و در پارک‌ها و خودروها مستقر شده‌اند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14014
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش جدیدترین پس‌لرزه در استان تهران
+
+بزرگی: 3.4
+محل وقوع: حوالی پرديس
+تاریخ و زمان وقوع به وقت محلی: 1405/02/23 00:32:44
+طول جغرافیایی: 51.83
+عرض جغرافیایی: 35.83
+عمق زمین‌لرزه: 10 کیلومتر
+
+نزدیک‌ترین شهرها:
+10 کیلومتری پرديس (تهران)
+11 کیلومتری بومهن (تهران)
+12 کیلومتری رودهن (تهران)
+
+نزدیکترین مراکز استان:
+41 کیلومتری تهران
+76 کیلومتری كرج
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## manototv — post 105382
+
+<div align="center">
+  <a href="telegram/content/manototv_105382_1778624651.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+الجزیره به نقل از منابع دیپلماتیک گزارش داد ۱۱۲ کشور به پیش‌نویس قطعنامه‌ای در شورای امنیت سازمان ملل پیوسته‌اند که از سوی آمریکا و کشورهای خلیج فارس درباره آزادی کشتیرانی در تنگه هرمز ارائه شده است.
+
+به گفته این منابع، هند، ژاپن و بیشتر کشورهای اروپایی در میان حامیان این پیش‌نویس قرار دارند.
+
+منابع الجزیره همچنین گفتند حمایت ۱۱۲ کشور از این قطعنامه، نشان‌دهنده پشتیبانی گسترده بین‌المللی از ابتکار آمریکا و کشورهای خلیج فارس درباره تنگه هرمز است.
+</div>
+
+## manototv — post 105380
+
+<div align="center">
+  <a href="telegram/content/manototv_105380_1778624652.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از تهران:
+«می‌گفت جنگ شد و بعد رها شد… همه‌چیز روی هوا موند و شرایط افتضاح‌تر شد.
+می‌گفت قبلش حداقل یه جور داشتیم زندگی می‌کردیم
+</div>
+
+## manototv — post 105379
+
+<div align="center">
+  <a href="telegram/content/manototv_105379_1778624654.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس سازمان هلال احمر اعلام کرد زلزله در تهران و کرج «هیچ» خسارت مالی و جانی در پی نداشته است.
+پیش‌تر زلزله‌ای به بزرگی ۴.۶ در مقیاس ریشتر، مرز استان‌های تهران و مازندران را لرزاند.
+</div>
+
+## alonews — post 119631
+
+<div align="center">
+  <a href="telegram/content/alonews_119631_1778624654.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تهران امشب رو ویبره بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119630
+
+<div align="center">
+  <a href="telegram/content/alonews_119630_1778624654.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حضور مردم در حاشیه شهر بومهن پس از وقوع زلزله امشب
+
+
+🔴برخی مردم در خیابان خوابیده اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119629
+
+<div align="center">
+  <a href="telegram/content/alonews_119629_1778624656.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز: منابع میگن عربستان مخفیانه حملاتی علیه ایران شروع کرده و تنش‌های منطقه‌ای هم شدیدتر شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119628
+
+<div align="center">
+  <a href="telegram/content/alonews_119628_1778624656.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام ارشد اسرائیلی به سی‌ان‌ان گفت: اگر توافقی حاصل نشود خوشحال خواهیم شد اگر محاصره ادامه یابد خوشحال خواهیم شد و اگر چند حمله دیگر هم به ایران شود، خوشحال خواهیم شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119627
+
+<div align="center">
+  <a href="telegram/content/alonews_119627_1778624656.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق معمول پمپ بنزینای تهران شلوغ شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119626
+
+<div align="center">
+  <a href="telegram/content/alonews_119626_1778624657.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارش مقدماتی زمین‌لرزه مجدد در تهران
+
+
+🔴 بزرگی: ۴ ریشتر
+محل وقوع: حوالی پرديس
+زمان: ۲۶ دقیقه بامداد
+عمق زمین‌لرزه: ۸ کیلومتر
+
+
+🔴نزدیک‌ترین شهرها:
+۹ کیلومتری پرديس (تهران)
+۱۱ کیلومتری بومهن (تهران)
+۱۲ کیلومتری رودهن (تهران)
+
+
+🔴نزدیکترین مراکز استان:
+۴۰ کیلومتری تهران
+۷۶ کیلومتری كرج
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119625
+
+<div align="center">
+  <a href="telegram/content/alonews_119625_1778624657.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چندین پس لرزه خفیف در تهران ثبت شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 00:38
 ---
 
@@ -2125,8 +2879,6 @@ https://t.me/+OS-QBvyDO4M2ZGY0
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
