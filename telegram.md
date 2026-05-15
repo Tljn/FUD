@@ -7,6 +7,549 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 02:11
+---
+
+## VahidOOnLine — post 240385
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240385_1778884893.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در واکنش به بالا رفتن قیمت انرژی در آمریکا، در ایکس نوشت: «در حال حاضر، افزایش قیمت بنزین و حباب بازار سهام را کنار بگذارید. درد واقعی زمانی آغاز می‌شود که بدهی آمریکا و نرخ وام‌های مسکن شروع به جهش کنند.»
+او نوشت همین حالا هم میزان ناتوانی در بازپرداخت وام خودرو به بالاترین سطح خود در بیش از ۳۰ سال گذشته رسیده است، اما تمام این‌ها قابل اجتناب بود.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240384
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240384_1778884893.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️نمایندگی دائم جمهوری اسلامی در سازمان ملل متحد روز جمعه ۲۵ اردیبهشت، در پیامی در شبکه اجتماعی اکس نوشت آمریکا تلاش دارد با استفاده از شمار کشورهای حامی پیش‌نویس قطعنامه پیشنهادی خود، تصویری از حمایت گسترده بین‌المللی برای اقداماتش ایجاد کند و زمینه را برای تشدید تنش‌ها در منطقه فراهم سازد.
+این نمایندگی افزود: در صورت هرگونه تشدید تنش تازه از سوی آمریکا، کشورهای حامی این قطعنامه نیز در پیامدهای آن شریک خواهند بود و هیچ «توجیه سیاسی» یا «پوشش دیپلماتیک» نمی‌تواند مسئولیت کشورهایی را که در تسهیل و مشروعیت‌بخشی به اقدامات آمریکا نقش دارند، از میان ببرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240383
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240383_1778884894.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، سفیر آمریکا در سازمان ملل ، به فاکس‌نیوز گفت: «باید به خاطر داشته باشیم که هیچ دلیلی وجود ندارد که جمهوری اسلامی این گرد و غبار را که شامل ۶۰ درصد اورانیوم با غنای بالا است، در اختیار داشته باشد.»
+او گفت:« هیچ کشوری در جهان وجود ندارد که تا آن سطح غنی‌سازی کند و سپس سلاح هسته‌ای نداشته باشد زیرا هیچ دلیلی برای انجام این کار وجود ندارد.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11360
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : ویتنام ۱۹ سال طول کشید، عراق حدود ۱۰ سال، کره ۷ سال، یکی دیگه ۱۴ سال، یکی ۱۲ سال، یکی هم ۹ سال
+- ما فقط دو ماه و نیم اونجا بودیم
+- چین هم این هفته سه تا نفتکش پر از نفت ایران رو برد، چون ما اجازه دادیم این اتفاق بیفته،شما اجازه دادید
+@withyashar
+</div>
+
+## WithYashar — post 11359
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11359_1778884895.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجریان صداوسیما برداشتن یه تصویر هوش مصنوعی رو گذاشتن و دارن تحلیلش میکنن!
+😂😂
+@withyashar
+</div>
+
+## WithYashar — post 11358
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط حال من رو فروشنده های بازار که با مردم سر و کله میززند و جماعت زبون نفهم و میبینند درک میکنند
+</div>
+
+## WithYashar — post 11357
+
+
+
+
+## WithYashar — post 11356
+
+
+
+
+## WithYashar — post 11355
+
+
+
+
+## WithYashar — post 11354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک تایمز به نقل از مقامات آمریکا:
+
+دستیاران ترامپ برنامه‌هایی رو برای بازگشت به حملات نظامی به ایران آماده کردن، اگر او تصمیم بگیره با بمباران بیشتر از بن بست خارج بشه.
+
+از جمله گزینه‌ها، اعزام نیروهای ویژه به ایران برای هدف قرار دادن مواد هسته‌ای مدفون شده است و ممکنه از نیروهای ویژه برای کنترل جزیره خارک استفاده بشه.
+@withyashar
+</div>
+
+## WithYashar — post 11353
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11353_1778884897.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جلد جدید مجله تایم: چگونه دیدار ترامپ و شی، نظم نوین جهانی را نشان داد
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341801
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341801_1778884898.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump arrives in Washington after high-stakes China summit https://twitter.com/i/broadcasts/1wGWjazXOPAKQ
+</div>
+
+## FoxNewsTwitter — post 341800
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341800_1778884899.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Bruce Springsteen walked right past former New Jersey Gov. Chris Christie's outstretched hand during a concert at Brooklyn’s Barclays Center.
+
+Springsteen is seen greeting fans in the arena when Christie extends his hand — but the rock legend doesn't show him any love. Christie quickly pulls his hand back and keeps cheering.
+
+Springsteen has been a vocal critic of President Trump, especially during his latest tour.
+</div>
+
+## FoxNewsTwitter — post 341799
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341799_1778884901.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: SpaceX CRS-34 resupply mission launches from Cape Canaveral (Courtesy: SpaceX) https://twitter.com/i/broadcasts/1nGnRYkMkydGO
+</div>
+
+## IranIntlTV — post 337396
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337396_1778884902.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در واکنش به بالا رفتن قیمت انرژی در آمریکا، در ایکس نوشت: «در حال حاضر، افزایش قیمت بنزین و حباب بازار سهام را کنار بگذارید. درد واقعی زمانی آغاز می‌شود که بدهی آمریکا و نرخ وام‌های مسکن شروع به جهش کنند.»
+او نوشت همین حالا هم میزان ناتوانی در بازپرداخت وام خودرو به بالاترین سطح خود در بیش از ۳۰ سال گذشته رسیده است، اما تمام این‌ها قابل اجتناب بود.
+
+https://iranintl.com/202605157120
+</div>
+
+## IranIntlTV — post 337395
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337395_1778884903.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امارات متحده عربی اعلام کرد پروژه خط لوله جدید نفت برای دور زدن تنگه هرمز را با سرعت بیشتری پیش خواهد برد.
+
+به گفته مقام‌های ابوظبی، این خط لوله تا سال ۲۰۲۷ ظرفیت صادرات نفت از بندر فجیره را دو برابر می‌کند.
+
+گفت‌وگو با علی دادپی، اقتصاددان
+@iranintltv
+</div>
+
+## IranIntlTV — post 337394
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337394_1778884905.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در مسیر بازگشت از چین گفت با تعلیق ۲۰ ساله غنی‌سازی اورانیوم در ایران موافق است، به شرط آنکه در این مدت تمام برنامه هسته‌ای تهران پاکسازی شود.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337393
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337393_1778884907.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مراسم بدرقه تیم ملی با حضور هواداران حکومت در میدان انقلاب تهران برگزار شد و هنگام پخش سرود جمهوری اسلامی، بازیکنان تیم ملی سلام نظامی دادند و تعلق خاطر خود به حکومت را نشان دادند.
+
+🔹توضیحات مزدک میرزایی، ایران اینترنشنال در برنامه هت‌تریک
+
+🔹تماشای نشخه کامل هت‌تریک؛👇
+https://youtu.be/v5Exyf8Nyes
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337392
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337392_1778884908.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، سفیر آمریکا در سازمان ملل ، به فاکس‌نیوز گفت: «باید به خاطر داشته باشیم که هیچ دلیلی وجود ندارد که جمهوری اسلامی این گرد و غبار را که شامل ۶۰ درصد اورانیوم با غنای بالا است، در اختیار داشته باشد.»
+او گفت:« هیچ کشوری در جهان وجود ندارد که تا آن سطح غنی‌سازی کند و سپس سلاح هسته‌ای نداشته باشد زیرا هیچ دلیلی برای انجام این کار وجود ندارد.»
+
+https://iranintl.com/202605157842
+</div>
+
+## Shin_Persian — post 6023
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 15 May 2026 21:46:56 UTC
+
+Heavy #USAF 🇺🇸 jet activity over Erbil
+#KRI, #Iraq 🇮🇶
+
+فارسی
+
+فعالیت سنگین جت‌های نیروی هوایی ایالات متحده (USAF) 🇺🇸 بر فراز اربیل
+#KRI، #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 217861
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش صدای آمریکا از نشست امنیتی نشریه پولیتیکو
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217860
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزارت دادگستری آمریکا برای فرد متهم به قتل دو کارمند سفارت اسرائيل در واشنگتن درخواست مجازات اعدام می‌کند
+
+◾️دادستان‌ها در آمریکا روز جمعه اعلام کردند که وزارت دادگستری ایالات متحده برای مردی که متهم است دو کارمند سفارت اسرائیل در واشنگتن را در بیرون یک موزه یهودیان با شلیک گلوله کشت، درخواست مجازات اعدام خواهد کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150497.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14224
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14224_1778884909.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمدباقر السعدی، رهبر حزب‌الله عراق توسط FBI دستگیر شد
+
+🔹السعدی به دلیل فعالیت‌هایش با گردان‌های حزب‌الله عراق و سپاه پاسداران ایران با شش اتهام روبرو است
+
+💢اداره تحقیقات فدرال آمریکا اعلام کرد «محمد السعدی» که از او به‌عنوان یک هدف باارزش مرتبط با تروریسم بین‌المللی یاد شده، بازداشت و به آمریکا منتقل شده است.
+
+🔻بر اساس بیانیه اف‌بی‌آی:
+
+▪️ السعدی و همدستانش متهم به برنامه‌ریزی، هماهنگی و پذیرش مسئولیت دست‌کم ۲۰ حمله تروریستی در اروپا و کانادا هستند
+▪️ مقام‌های آمریکایی مدعی‌اند این شبکه در حال برنامه‌ریزی حملات آینده علیه آمریکا نیز بوده است
+▪️ از جمله اهداف احتمالی، مراکز و نهادهای یهودی در نیویورک، کالیفرنیا و آریزونا عنوان شده‌اند
+
+💢اف‌بی‌آی این بازداشت را بخشی از اقدامات دولت ترامپ برای مقابله با تروریسم توصیف کرده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14223
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14223_1778884910.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واقعا احمدی نژاد چه شد ؟!
+</div>
+
+## IranianMinds — post 20219
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20219_1778884911.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس یه بار فقط بگو بله مامان 😭
+
+🔴 جاوید نام عباس کشاورز ۳۹ ساله اهل روستای لفمجان لاهیجان پدر ارشا ۱۲ ساله …
+
+او در شب ۱۹ دی ۱۴۰۴ در جریان اعتراضات در شهر رشت، در محدوده میدان صیقلان، با شلیک مستقیم گلوله کشته شد.
+
+جاویدنامان فراموش نمیشوند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20218
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط کافیه مرغ از خیابون رد کنی و‌پولت چند برابر کنی
+💵👌
+</div>
+
+## IranianMinds — post 20217
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20217_1778884912.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵
+ae25
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+OS-QBvyDO4M2ZGY0
+https://t.me/+OS-QBvyDO4M2ZGY0
+</div>
+
+## IranianMinds — post 20216
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال ۱۳ اسرائیل:
+
+برآوردها حاکی از آن است که ترامپ چراغ سبز برای حمله محدود به مواضع رژیم ملاها را خواهد داد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سازمان ملل: نگرانیم، چون ممکنه منطقه بازم دچار تنش و درگیری بشه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20214
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20214_1778884915.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جلد جدید مجله تایم:
+
+چگونه دیدار ترامپ و شی، یک نظم نوین جهانی را به نمایش گذاشت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20213
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20213_1778884916.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نیویورک تایمز :
+
+ترامپ پس از بازگشت از چین، در حالی که مشاوران ارشد و مقامات پنتاگون برنامه‌های احتمالی برای حملات مجدد به ایران در صورت شکست مذاکرات صلح را نهایی می‌کردند، وارد آمریکا شد.
+
+اگرچه ترامپ هنوز تصمیم نهایی نگرفته است، گزارش‌ها حاکی از آن است که مقامات آمریکایی و اسرائیلی برای حملاتی که ممکن است طی روزهای آینده آغاز شوند، آماده می‌شوند.
+
+برنامه‌ریزان نظامی درباره گسترش کمپین‌های بمباران و حتی مأموریت‌های عملیات ویژه برای هدف قرار دادن تأسیسات هسته‌ای زیرزمینی ایران بحث کرده‌اند!
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281156
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281156_1778884916.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+نخست‌وزیر و وزیر دفاع اسرائیل با صدور بیانیه‌ای اعلام کردند که عزالدین حداد، فرمانده گردان‌‌های عزالدین قسام، شاخه نظامی حماس در غزه را کشته‌اند.
+
+در بیانیه بنیامین نتانیاهو، و اسرائیل کاتس که در رسانه‌های اسرائیلی منتشر شده، آمده است که حداد یکی از «معماران حملات ۷ اکتبر ۲۰۲۳» به اسرائیل بوده است.
+
+طبق این بیانیه، عزالدین حداد از اجرای توافق دونالد ترامپ، رئیس‌جمهور آمریکا، برای خلع سلاح حماس خودداری کرده بود.
+
+یک مقام ارشد امنیتی گفت که نشانه‌های اولیه حاکیست که او کشته شده است.
+
+شاهدان عینی در غزه به بی‌بی‌سی گفتند که یک آپارتمان هدف حمله موشکی قرار گرفت و سپس خودرویی که گفته می‌شود محل را ترک کرده بود، در حمله‌ای دیگر هدف قرار گرفت؛ حمله‌ای که به کشته شدن سه نفر انجامید.
+
+حماس تاکنون کشته شدن عزالدین حداد را نه تایید کرده و نه رد کرده است.
+
+https://bbc.in/4uPJdl1
+📷Reuters
+@BBCPersian
+</div>
+
+## alonews — post 120296
+
+<div align="center">
+  <a href="telegram/content/alonews_120296_1778884917.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برت بایر از فاکس: آیا تاب آوری ایران را دست کم گرفتید ؟
+
+
+🔴ترامپ: چیزی را دست کم نگرفتم ما می توانیم پل ها و ظرفیت برق آنها را در دو روز از بین ببریم.‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120295
+
+<div align="center">
+  <a href="telegram/content/alonews_120295_1778884919.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : ویتنام ۱۹ سال طول کشید، عراق حدود ۱۰ سال، کره ۷ سال، یکی دیگه ۱۴ سال، یکی ۱۲ سال، یکی هم ۹ سال
+- ما فقط دو ماه و نیم اونجا بودیم
+- چین هم این هفته سه تا نفتکش پر از نفت ایران رو برد، چون ما اجازه دادیم این اتفاق بیفته،شما اجازه دادید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120294
+
+<div align="center">
+  <a href="telegram/content/alonews_120294_1778884921.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به فاکس نیوز: چین جرات اقدام علیه تایوان را در دوران قدرت من نخواهد داشت‌‌
+
+
+🔴پکن از عدم نیاز واشنگتن به هیچ کمکی در پرونده ایران یا ایمن سازی ناوبری در تنگه هرمز خبر داد‌‌
+
+
+🔴چین برای تامین 40 درصد منابع نفتی خود به تنگه هرمز تکیه می کند‌‌
+
+
+🔴خب، به هر حال ما به یک راه‌حل خواهیم رسید. بنابراین یا این مسئله به‌صورت خشونت‌آمیز حل می‌شود یا بدون خشونت. و من خیلی ترجیح می‌دهم که بدون خشونت باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120293
+
+<div align="center">
+  <a href="telegram/content/alonews_120293_1778884922.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پک ۱۰عددی کاندوم با افزایش قیمت به ۴۸۰هزار تومان رسیده!
+
+
+🔴دولت باید به اینجور چیزا سوبسید بده تا همه بتونن استفاده کنن اما.....
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120292
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعرفه سرویس های Vip 
+⭕️ 
+✅ 1 گیگابایت 
+⬅️ 250/000 تومان 
+✅ 3 گیگابایت 
+⬅️ 750/000 تومان استارلینک Vip 
+💫 
+🌟(مناسب برای شرایط بحرانی مثل جنگ و اختلالات) 
+⭐️ 5 گیگابایت 
+⬅️ 1/400/000 تومان 
+⭐️ 10 گیگابایت 
+⬅️ 2/800/000 تومان ویژگی های سرویس های Vip : 
+❤️‍🔥 
+✅ متصل…
+</div>
+
+## alonews — post 120291
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعرفه سرویس های Vip 
+⭕️
+
+
+✅ 1 گیگابایت 
+⬅️ 250/000 تومان
+
+✅ 3 گیگابایت 
+⬅️ 750/000 تومان
+
+استارلینک Vip 
+💫 
+🌟(مناسب برای شرایط بحرانی مثل جنگ و اختلالات)
+
+
+⭐️ 5 گیگابایت 
+⬅️ 1/400/000 تومان
+
+⭐️ 10 گیگابایت 
+⬅️ 2/800/000 تومان
+
+ویژگی های سرویس های Vip : 
+❤️‍🔥
+
+✅ متصل در تمامی دستگاه و اپراتور ها
+
+✅ مناسب استفاده روزمره در تمامی برنامه ها
+
+✅ دارای ساب برای اطلاع لحظه ای باقیمانده
+
+✅ تک لینک بدون نیاز به بروزرسانی های متعدد
+ برای خرید از پشتیبانی به ایدی زیر پیام بدید.
+👇
+
+
+🔤 @expressuport
+
+خرید فوری از ربات.
+👇
+
+
+🔤 @vpn_express_sup_bot
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 01:13
 ---
 
