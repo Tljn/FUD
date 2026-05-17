@@ -7,6 +7,1130 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 21:14
+---
+
+## VahidOOnLine — post 240673
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240673_1779039872.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت امور خارجه امارات متحده عربی، روز یکشنبه در بیانیه‌ای حمله پهپادی به محوطه اطراف نیروگاه انرژی هسته‌ای براکه در منطقه الظفره را به‌شدت محکوم و آن را یک «حمله تروریستی و خائنانه» توصیف کرد.
+
+در این بیانیه آمده است یک پهپاد که از سمت مرزهای غربی وارد حریم هوایی امارات شده بود، یک ژنراتور برق را در خارج از محدوده داخلی نیروگاه هدف قرار داده است. مقام‌های اماراتی اعلام کردند این حادثه هیچ تلفات جانی یا تأثیری بر سطح ایمنی پرتویی نیروگاه بر جای نگذاشته است.
+
+وزارت خارجه امارات این حمله را «تنش‌زایی خطرناک»، اقدامی غیرقابل قبول و «تهدیدی مستقیم برای امنیت کشور» توصیف کرد و تاکید کرد هدف قرار دادن نیروگاه‌های هسته‌ای صلح‌آمیز، نقض آشکار قوانین بین‌المللی، منشور سازمان ملل و حقوق بین‌الملل بشردوستانه است.
+در این بیانیه همچنین با اشاره به اصول و قطعنامه‌های آژانس بین‌المللی انرژی اتمی، بر ضرورت حفاظت از تاسیسات هسته‌ای صلح‌آمیز و مصون ماندن آنها از تهدیدهای نظامی تاکید شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240672
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240672_1779039873.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انور قرقاش، مشاور رئیس‌ دولت امارات، حمله به نیروگاه هسته‌ای این کشور را «اقدامی تروریستی» توصیف کرد و گفت این حمله «چه از سوی عامل اصلی و چه از طریق یکی از نیروهای نیابتی‌اش» یک «تشدید خطرناک» و نقض قوانین و عرف‌های بین‌المللی است.
+
+قرقاش در پیامی در ایکس نوشت این حمله «با بی‌اعتنایی مجرمانه به جان غیرنظامیان در امارات و مناطق اطراف آن» انجام شده است.
+
+او افزود: «هیچ‌کس نمی‌تواند امارات را تحت فشار قرار دهد و در تضعیف چشم‌انداز، موفقیت و پیام الهام‌بخش آن برای امنیت، ثبات، توسعه و رفاه در منطقه موفق نخواهد شد.»
+
+امارات تاکنون مسئول این حمله را معرفی نکرده است. وزارت دفاع امارات پیش‌تر اعلام کرده بود پهپادها از «مرز غربی» وارد این کشور شده‌اند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240671
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنرانی پدر جاویدنام سام افشاری در گردهمایی مونیخ - گزارشگر ۲۶ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240670
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240670_1779039874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی سخنگوی کمیسیون امنیت ملی مجلس، گفت: «آمریکا یا باید شرایط جمهوری اسلامی را بپذیرد و تسلیم دیپلمات‌های ما شود و یا اینکه از موضع قدرت با او مذاکره می‌کنیم و باید تسلیم موشک‌های ما شود.»
+او افزود: «تاریخ تنگه هرمز را باید به قبل و بعد از کشته‌شدن علی خامنه‌ای تقسیم کرد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240669
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240669_1779039875.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌‌
+دونالد ترامپ در پیامی در شبکه‌ اجتماعی خود نوشت:
+«برای ایران، ساعت در حال گذر است و بهتر است خیلی سریع حرکت کنند، وگرنه چیزی از آن‌ها باقی نخواهد ماند. وقت تنگ است.»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240668
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240668_1779039876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز یکشنبه با انتشار پیامی در شبکه اجتماعی تروث سوشال، به ایران هشدار داد زمان برای تصمیم‌گیری رو به پایان است و رهبران جمهوری اسلامی باید هرچه سریع‌تر اقدام کنند.
+ترامپ در این پیام نوشت: «برای ایران، ساعت در حال تیک‌تاک است و بهتر است خیلی سریع حرکت کنند، وگرنه چیزی از آنها باقی نخواهد ماند. زمان حیاتی است!»
+طی روزهای اخیر گزارش‌هایی درباره احتمال ازسرگیری اقدام نظامی علیه ایران و افزایش تنش‌ها میان تهران، واشنگتن و تل‌آویو منتشر شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240667
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240667_1779039876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در شبکه تروث سوشال نوشت که زمان برای ایران به‌سرعت در حال سپری شدن است و بهتر است آن‌ها هرچه زودتر اقدام کنند در غیر این صورت «چیزی از آن‌ها باقی نخواهد ماند». ترامپ تاکید کرد: «زمان بسیار حیاتی است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240666
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240666_1779039877.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در شبکه تروث سوشال نوشت که زمان برای ایران به‌سرعت در حال سپری شدن است و بهتر است آن‌ها هرچه زودتر اقدام کنند در غیر این صورت «چیزی از آن‌ها باقی نخواهد ماند». ترامپ تاکید کرد: «زمان بسیار حیاتی است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240665
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240665_1779039877.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، و دونالد ترامپ، رئیس‌جمهوری آمریکا، روز یکشنبه درباره سفر رئیس‌جمهوری آمریکا به چین گفت‌وگو کردند.
+
+دو طرف همچنین درباره تحولات مربوط به ایران رایزنی کردند.
+
+نتانیاهو پیش‌تر گفته بود که شامگاه یکشنبه با ترامپ صحبت خواهد کرد. او گفت:
+«چشم‌های ما همچنین کاملاً به ایران باز است. امروز، همان‌طور که هر چند روز یک‌بار انجام می‌دهم، با دوست‌مان رئیس‌جمهور ترامپ صحبت خواهم کرد. قطعاً برداشت‌های او را از سفرش به چین و شاید مسائل دیگری خواهم شنید. قطعاً احتمالات زیادی وجود دارد؛ ما برای هر سناریویی آماده‌ایم.»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240664
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240664_1779039878.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دفتر نخست‌وزیر قطر اعلام کرد شیخ محمد بن عبدالرحمن آل‌ثانی، نخست‌وزیر و وزیر امور خارجه این کشور، روز یکشنبه در تماس تلفنی با شهباز شریف، نخست‌وزیر پاکستان، درباره روابط دوجانبه، تحولات منطقه و تلاش‌های میانجی‌گرانه اسلام‌آباد گفتگو کرده است.
+دو طرف در این تماس همچنین آخرین تحولات منطقه و تلاش‌های پاکستان برای کاهش تنش‌ها با هدف تقویت امنیت و ثبات منطقه را بررسی کردند.
+شیخ محمد بن عبدالرحمن در این گفتگو از تلاش‌های پاکستان و سایر طرف‌های دخیل در روند میانجی‌گری که به برقراری آتش‌بس میان ایالات متحده و جمهوری اسلامی ایران منجر شد، قدردانی کرد.
+بر اساس بیانیه دفتر نخست‌وزیر قطر، شیخ محمد بن عبدالرحمن آل‌ثانی همچنین بر حمایت کامل دوحه از تلاش‌های میانجی‌گرانه پاکستان برای پایان دادن به بحران از راه‌های مسالمت‌آمیز تاکید کرد و گفت همه طرف‌ها باید با این تلاش‌ها همراه شوند تا زمینه برای پیشرفت مذاکرات و دستیابی به توافقی جامع و صلحی پایدار در منطقه فراهم شود.
+وزیر امورخارجه قطر پیش از این تماس، با عباس عراقچی، وزیر امور خارجه ایران گفتگو کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240663
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240663_1779039879.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالله بن زاید آل‌نهیان، وزیر خارجه امارات متحده عربی پس از حمله پهپادی به نیروگاه هسته‌ای این کشور، تلفنی با رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی گفت‌وگو کرده است.
+
+به گزارش خبرگزاری دولتی امارات متحده عربی، وزیر خارجه این کشور تاکید کرد که ابوظبی حق کامل دارد به چنین «حملات تروریستی» پاسخ دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11505
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: زمان برای ایران در حال اتمام است بهتر است خیلی سریع اقدام کنند، وگرنه چیزی از آن‌ها باقی نخواهد ماند. وقت بسیار حیاتی است! @withyashar
+</div>
+
+## WithYashar — post 11503
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11503_1779039880.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شعر امشب 😬
+@withyashar
+</div>
+
+## WithYashar — post 11502
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقامات آمریکایی به اکسیوس گفتند: مذاکرات با ایران به بن‌بست رسیده است
+@withyashar
+</div>
+
+## WithYashar — post 11501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به کانال 12 اسرائیل:
+ما منتظر یه پیشنهاد دیگه از طرف ایران هستیم؛ اگه این کار رو نکنن، با شدتی بی‌سابقه هدف حمله قرار میگیرن.
+@withyashar
+</div>
+
+## WithYashar — post 11500
+
+
+
+
+## WithYashar — post 11499
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گوگوش در پیامی در اینستاگرام اعلام کرد مدال افتخار سال 2026 «جزیره الیس» را دریافت کرده و این جایزه را با «عشق و احترام» به مردم ایران تقدیم می‌کند. @withyashar
+</div>
+
+## WithYashar — post 11498
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گوگوش در پیامی در اینستاگرام اعلام کرد مدال افتخار سال 2026 «جزیره الیس» را دریافت کرده و این جایزه را با «عشق و احترام» به مردم ایران تقدیم می‌کند.
+@withyashar
+</div>
+
+## WithYashar — post 11497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: زمان برای ایران در حال اتمام است بهتر است خیلی سریع اقدام کنند، وگرنه چیزی از آن‌ها باقی نخواهد ماند. وقت بسیار حیاتی است! @withyashar
+</div>
+
+## WithYashar — post 11496
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11496_1779039882.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: زمان برای ایران در حال اتمام است
+
+بهتر است خیلی سریع اقدام کنند، وگرنه چیزی از آن‌ها باقی نخواهد ماند.
+وقت بسیار حیاتی است!
+
+@withyashar
+</div>
+
+## WithYashar — post 11495
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11495_1779039883.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## WithYashar — post 11494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتحاد باید شکل بگیره ! حتی بچه هیئتی ! تغییر رژیم شکل میگیره ولی تغییر عقیده کار یک شبه نیست و باید هر دو سمت شل کنند ! من خودم کافرم ولی تیم باید تکمیل باشه ! آس پیک شخص شاهزاده رضا پهلوی تنها هستش ! ترامپم مارو میره قاهره شک نکنید !
+</div>
+
+## mwarmonitor — post 9221
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷🇺🇸مقام‌های آمریکایی: مذاکرات با ایران به بن‌بست رسیده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9220
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه کان اسرائیل به نقل از یک مقام گزارش داد: ایالات متحده و اسرائیل سطح آماده‌باش خود را برای احتمال ازسرگیری درگیری با ایران افزایش داده‌اند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9219
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در روزهای اخیر، سه نفتکشِ خالی از محموله که تحت تحریم‌های آمریکا هستند، از خط محاصره نیروی دریایی آمریکا عبور کرده و وارد محدوده شده‌اند.
+
+🔸یکی از آن‌ها برای مدت کوتاهی سیستم موقعیت‌یاب (AIS) را خاموش کرده بود.
+
+🔸دیگری با پرچم روسیه حرکت می‌کرد.
+
+🔸سومی در امتداد ساحل عمان حرکت کرده است.
+
+
+🔹این سه نفتکش در مجموع می‌توانند حدود ۱.۹ میلیون بشکه نفت ایران را جابه‌جا کنند. چنین رخدادهایی به تهران زمان بیشتری در میز مذاکرات می‌دهد، در حالی که جهان در انتظار تأمین بیشتر انرژی و کودهای شیمیایی از این منطقه است. TANKER TRACKER
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9218
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨به گفته دو مقام آمریکایی به آکسیوس، انتظار می‌رود دونالد ترامپ روز سه‌شنبه یک جلسه در «اتاق وضعیت» با تیم ارشد امنیت ملی خود برگزار کند تا درباره گزینه‌های اقدام نظامی گفت‌وگو کند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9217
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دونالد ترامپ به کانال ۱۳ اسرائیل:
+اگر ایران یک پیشنهاد خوب ارسال نکند، به آن‌ها حمله خواهیم کرد؛ به شکلی که تا حالا انجام نداده‌ایم.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9216
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9216_1779039884.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 خدا نشسته اون بالا، تخمه می‌شکنه و با لذت به این شاهکار نگاه می‌کنه؛ کمدی سیاهی که در آن ابولا و هانتا ویروس مأمور پذیرایی هستند و جنگ‌ها نقش موسیقی متن را بازی می‌کنند. آدم با دیدن این حجم از خلاقیت در شکنجه و متدِ «عذاب بده و بگو مصلحت است»، به شک می‌افتد…
+</div>
+
+## mwarmonitor — post 9215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دونالد ترامپ: در مورد ایران، زمان در حال تمام شدن است و آن‌ها باید خیلی سریع اقدام کنند؛ در غیر این صورت چیزی از آن‌ها باقی نخواهد ماند. زمان حیاتی است! @mwarmonitor
+</div>
+
+## mwarmonitor — post 9214
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9214_1779039886.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دونالد ترامپ:
+در مورد ایران، زمان در حال تمام شدن است و آن‌ها باید خیلی سریع اقدام کنند؛ در غیر این صورت چیزی از آن‌ها باقی نخواهد ماند. زمان حیاتی است!
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341854
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341854_1779039887.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump issued a stark warning to Iran, saying “the clock is ticking” and urging the country to “get moving, FAST, or there won’t be anything left of them.”
+</div>
+
+## FoxNewsTwitter — post 341853
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341853_1779039887.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Deputies wrangle and “arrest” an alligator after it wandered into a residential neighborhood near a school bus stop in Paisley, Florida.
+
+Wild footage shows deputies corralling the gator before it was safely captured and turned over to the Florida Fish and Wildlife Conservation Commission.
+</div>
+
+## pm_afshaa — post 90913
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90913_1779039888.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس به نقل از دو مقام آمریکایی:
+انتظار میره ترامپ روز سه‌شنبه جلسه‌ای در اتاق وضعیت با تیم ارشد امنیت ملی خود برگزار کنه تا گزینه‌های اقدام نظامی علیه ایران رو بررسی کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90912
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90912_1779039889.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به کانال 12 اسرائیل:
+ما منتظر یه پیشنهاد دیگه از طرف ایران هستیم؛ اگه این کار رو نکنن، با شدتی بی‌سابقه هدف حمله قرار میگیرن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 13 اسرائیل:ترامپ چندتا رویداد که قرار بود تو اونا شرکت کنه رو لغو کرده و الان جلسه‌ درباره ایران برگزار کرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90910
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: برای ایران، زمان در حال تیک‌تاک است و بهتره سریع حرکت کنند، وگرنه چیزی از آنها باقی نخواهد ماند. زمان مهم است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90909
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90909_1779039890.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: از شروع محاصره دریایی ایران، 81 کشتی تجاری رو منحرف کردیم و 4 تا رو از کار انداختیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75521
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75521_1779039890.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست ترامپ، ترجمه ماشین:
+زمان برای ایران به‌سرعت در حال سپری شدن است و بهتر است هرچه زودتر اقدام کنند وگرنه چیزی از آن‌ها باقی نخواهد ماند. زمان حیاتی است.
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75520
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75520_1779039891.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دفتر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، اعلام کرد او روز یکشنبه و دقایقی پیش از برگزاری نشست امنیتی، در تماس تلفنی با دونالد ترامپ، درباره جنگ با ایران گفتگو کرده است.
+
+به گزارش تایمز اسرائیل، این تماس در شرایطی که گزارش‌ها درباره آمادگی آمریکا و اسرائیل برای ازسرگیری جنگ با ایران منتشر شده است.
+
+بر اساس گزارش رسانه‌های اسرائیلی، دو طرف در این تماس درباره احتمال ازسرگیری جنگ با ایران و همچنین سفر اخیر ترامپ به چین گفتگو کرده‌اند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87453
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87453_1779039892.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: زمان برای ایران در حال اتمام است
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 337664
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337664_1779039892.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی سخنگوی کمیسیون امنیت ملی مجلس، گفت: «آمریکا یا باید شرایط جمهوری اسلامی را بپذیرد و تسلیم دیپلمات‌های ما شود و یا اینکه از موضع قدرت با او مذاکره می‌کنیم و باید تسلیم موشک‌های ما شود.»
+او افزود: «تاریخ تنگه هرمز را باید به قبل و بعد از کشته‌شدن علی خامنه‌ای تقسیم کرد.»
+https://iranintl.com/202605179775
+</div>
+
+## IranIntlTV — post 337663
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337663_1779039893.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان اسرائیل گزارش داد بنیامین نتانیاهو و دونالد ترامپ در تماس تلفنی‌ای که بیش از نیم ساعت طول کشید، درباره احتمال ازسرگیری درگیری با جمهوری اسلامی گفت‌وگو کردند.
+
+گفت‌وگو با منشه امیر، کارشناس امور خاورمیانه
+@iranintltv
+</div>
+
+## IranIntlTV — post 337662
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337662_1779039895.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید: «من هم مثل خیلی از هموطنان بیکار شدم و برای ادامه زندگی، با قسط و قرض یک کامیون خریدم. حالا سوخت خیلی کم است و ناچارم یک لیتر گازوئیل را بین ۵۰ تا ۷۵ هزار تومان بخرم که اصلا مقرون به‌صرفه نیست.»
+</div>
+
+## IranIntlTV — post 337661
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337661_1779039897.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در شبکه تروث سوشال نوشت که زمان برای ایران به‌سرعت در حال سپری شدن است و بهتر است آن‌ها هرچه زودتر اقدام کنند در غیر این صورت «چیزی از آن‌ها باقی نخواهد ماند». ترامپ تاکید کرد: «زمان بسیار حیاتی است.»
+https://iranintl.com/202605171452
+</div>
+
+## IranIntlTV — post 337659
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337659_1779039898.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالله بن زاید آل‌نهیان، وزیر خارجه امارات متحده عربی پس از حمله پهپادی به نیروگاه هسته‌ای این کشور، تلفنی با رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی گفت‌وگو کرده است.
+
+به گزارش خبرگزاری دولتی امارات متحده عربی، وزیر خارجه این کشور تاکید کرد که ابوظبی حق کامل دارد به چنین «حملات تروریستی» پاسخ دهد.
+https://iranintl.com/202605177152
+</div>
+
+## Shin_Persian — post 6049
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6049_1779039899.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 17 May 2026 16:45:32 UTC
+
+President Trump @POTUS:
+"For Iran, the Clock is Ticking, and they better get moving, FAST, or there won’t be anything left of them. TIME IS OF THE ESSENCE! President DJT"
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+«برای ایران، ساعت در حال حرکت است و بهتر است آن‌ها به سرعت وارد عمل شوند، سریع، وگرنه چیزی از آن‌ها باقی نخواهد ماند. زمان حیاتی است! رئیس‌جمهور دی‌جی‌تی»
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105571
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105571_1779039899.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انور قرقاش، مشاور رئیس‌ دولت امارات، حمله به نیروگاه هسته‌ای این کشور را «اقدامی تروریستی» توصیف کرد و گفت این حمله «چه از سوی عامل اصلی و چه از طریق یکی از نیروهای نیابتی‌اش» یک «تشدید خطرناک» و نقض قوانین و عرف‌های بین‌المللی است.
+
+قرقاش در پیامی در ایکس نوشت این حمله «با بی‌اعتنایی مجرمانه به جان غیرنظامیان در امارات و مناطق اطراف آن» انجام شده است.
+
+او افزود: «هیچ‌کس نمی‌تواند امارات را تحت فشار قرار دهد و در تضعیف چشم‌انداز، موفقیت و پیام الهام‌بخش آن برای امنیت، ثبات، توسعه و رفاه در منطقه موفق نخواهد شد.»
+
+امارات تاکنون مسئول این حمله را معرفی نکرده است. وزارت دفاع امارات پیش‌تر اعلام کرده بود پهپادها از «مرز غربی» وارد این کشور شده‌اند.
+</div>
+
+## ManotoTV — post 105570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنرانی پدر جاویدنام سام افشاری در گردهمایی مونیخ - گزارشگر ۲۶ اردیبهشت
+</div>
+
+## ManotoTV — post 105569
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105569_1779039900.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌‌
+دونالد ترامپ در پیامی در شبکه‌ اجتماعی خود نوشت:
+«برای ایران، ساعت در حال گذر است و بهتر است خیلی سریع حرکت کنند، وگرنه چیزی از آن‌ها باقی نخواهد ماند. وقت تنگ است.»
+</div>
+
+## ManotoTV — post 105568
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105568_1779039901.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، و دونالد ترامپ، رئیس‌جمهوری آمریکا، روز یکشنبه درباره سفر رئیس‌جمهوری آمریکا به چین گفت‌وگو کردند.
+
+دو طرف همچنین درباره تحولات مربوط به ایران رایزنی کردند.
+
+نتانیاهو پیش‌تر گفته بود که شامگاه یکشنبه با ترامپ صحبت خواهد کرد. او گفت:
+«چشم‌های ما همچنین کاملاً به ایران باز است. امروز، همان‌طور که هر چند روز یک‌بار انجام می‌دهم، با دوست‌مان رئیس‌جمهور ترامپ صحبت خواهم کرد. قطعاً برداشت‌های او را از سفرش به چین و شاید مسائل دیگری خواهم شنید. قطعاً احتمالات زیادی وجود دارد؛ ما برای هر سناریویی آماده‌ایم.»
+</div>
+
+## FarsiVOA — post 217993
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217993_1779039901.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس جمهوری آمریکا روز یکشنبه، ۲۷ اردیبهشت در شبکه اجتماعی تروت سوشال نوشت: «زمان برای [رژیم] ایران، به سرعت در حال سپری شدن است و بهتر است هر چه سریع‌تر اقدام کنند.»
+او افزود که در غیر این‌صورت «چیزی از آنها باقی نخواهد ماند.»
+</div>
+
+## FarsiVOA — post 217992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بغداد در نقطه عطف سیاسی؛ حذف گروه‌های نزدیک به جمهوری اسلامی از کابینه و تشدید اختلافات شیعە
+</div>
+
+## FarsiVOA — post 217991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با حسن هاشمیان از صدای آمریکا به همزمانی آغاز به‌کار دولت جدید عراق با تشدید فشار نظامی، اقتصادی، و قضایی آمریکا بر گروه‌های وابسته به جمهوری اسلامی پرداختیم و بررسی کردیم این تحولات چه پیامدهایی برای آینده نفوذ رژیم ایران و موازنه امنیتی در عراق خواهد داشت.
+</div>
+
+## FarsiVOA — post 217990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان‌های حقوق بشری گزارش داده‌اند که وکلای تسخیری قوه قضائیه در سرعت بخشیدن به صدور احکام اعدام برای معترضان، به رژیم ایران کمک می‌کنند.
+</div>
+
+## DW_Farsi — post 124807
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_124807_1779039902.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 شش کشته و ۲۰ مصدوم در سانحه اتوبوس در عسلویه
+اتوبوس کارکنان مجتمع گاز پارس جنوبی واژگون شد
+
+واژگونی یک اتوبوس حامل کارکنان مجتمع گاز پارس جنوبی در محور عسلویه به سیراف، جان شش نفر را گرفت و ۲۰ نفر دیگر را مصدوم کرد؛ حال یکی از مجروحان وخیم اعلام شده است.
+این حادثه صبح یکشنبه ۲۷ اردیبهشت‌ماه در مسیر عسلویه به کرمانشاه رخ داد؛ زمانی که اتوبوس حامل کارکنان مجتمع گاز پارس جنوبی واژگون شد. سخنگوی این مجتمع اعلام کرد شش نفر از کارکنان جان باخته‌اند و ۲۰ نفر دیگر نیز مصدوم شده‌اند. به گفته او، آمار قربانیان و مجروحان قطعی است و حال یکی از مصدومان وخیم گزارش شده است.
+@dw_farsi
+</div>
+
+## DW_Farsi — post 124806
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 هشدار وکلای حقوق بشر؛ برخی وکلای تسخیری همدست نهادهای امنیتی هستند
+
+سازمان حقوق بشر ایران هشدار داده است که دستگاه قضایی جمهوری اسلامی به‌طور فعال از وکلای تسخیری در جریان پرونده‌های معترضان بازداشت‌شده استفاده می‌کند و این موضوع می‌تواند به تسریع و تسهیل اجرای احکام اعدام منجر شود.
+
+این سازمان می‌گوید در نامه‌ای از سوی جمعی از وکلای حقوق بشری داخل ایران، برخی وکلای تسخیری "همدست" نهادهای امنیتی در محاکمات نمایشی معرفی شده‌اند زیرا به جای دفاع موثر از موکلان، با دستگاه‌های امنیتی همکاری می‌کنند.
+
+آنها در نامه‌ای با عنوان "وکلای امنیتی؛ شریک دزد و رفیق قافله" به نقش وکلای تسخیری در پرونده‌های امنیتی پرداخته‌اند.
+
+در این نامه تاکید شده است محرومیت از وکیل مستقل می‌تواند به‌طور عامدانه زمینه‌ساز صدور و اجرای احکام اعدام علیه متهمان شود.
+
+بر اساس این گزارش، مستنداتی وجود دارد که نشان می‌دهد برخی وکلای تسخیری بلافاصله پس از صدور حکم، درخواست تجدیدنظر را به‌صورت رسمی ثبت می‌کنند و بدین ترتیب متهمان را از مهلت قانونی ۲۰ روزه برای تجدیدنظرخواهی محروم می‌سازند.
+
+سازمان حقوق بشر ایران تاکید کرده است این رویه با ایجاد مانع در دسترسی به وکلای مستقل و ثبت زودهنگام درخواست‌ها، مسیر اجرای احکام اعدام را هموار می‌کند و می‌تواند "مصداق نقض جدی اصول دادرسی عادلانه و اعدام‌های خودسرانه در حقوق بین‌الملل" باشد.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14347
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ: زمان برای جمهوری اسلامی رو به پایان است.
+ 
+دونالد ترامپ، رئیس‌جمهور اِیالات متحده، شامگاه یکشنبه، ۲۷ اردیبهشت‌ماه با انتشار پیامی در شبکه‌ی اجتماعی خود از این خبر داد که ساعت برای جمهوری اسلامی در حال تیک‌تاک است. رئیس‌جمهور آمریکا به رژیم توصیه کرد بهتر است سریع‌تر حرکت کنند، در غیر این صورت چیزی برای آنها باقی نخواهد ماند.
+دونالد ترامپ این پیام را دقایقی پس از آن منتشر کرد که رسانه‌های اسرائیلی و آمریکایی از گفت‌وگوی او با بنیامین نتانیاهو، نخست‌وزیر اسرائیل خبر دادند.
+تایمز اسرائیل شامگاه یکشنبه گزارش داد بنیامین نتانیاهو، عصر روز یکشنبه و دقایقی پیش از برگزاری یک نشست محدود امنیتی در شامگاه یکشنبه، با دونالد ترامپ، درباره جنگ علیه جمهوری اسلامی گفتگو کرده است.
+ 
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14346
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14346_1779039904.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعاتی پیش کانال Fighter Bomber رسانه غیررسمی اما معتبر هوانوردی روسیه تصویری از تست پروازی نسخه دوکابین سوخو-۵۷ منتشر کرد. Su-57D؟ Su-57UB؟ Su-57ED؟ هنوز کسی نمی‌داند و این ابهام در مرحله آزمایش اولیه طبیعی است.
+
+Su-57UB = گزینه اول
+روسیه برای نسخه‌های دوکابین آموزشی-رزمی سنت تاریخی با پسوند UB دارد؛ مثل سوخو-۲۷UB و میگ-۲۹UB — الگویی شناخته‌شده که مشتریان صادراتی آن را می‌شناسند.
+
+Su-57D = گزینه دوم
+پسوند D در روسی به نسخه‌های تخصصی اشاره دارد. اگر مسکو بخواهد نقش رزمی مستقل این پلتفرم را برجسته کند، این گزینه منطقی‌تر می‌شود.
+
+Su-57ED = آخرین گزینه
+ترکیب غیرمعمول حروف و اشاره به نسخه صادراتی، این را ضعیف‌ترین گزینه برای نام رسمی داخلی می‌کند.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14345
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14345_1779039905.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 ترامپ:
+
+برای ایران ساعت در حال تیک‌تاک است، و بهتر است خیلی سریع شروع به حرکت کنند، وگرنه هیچ چیزی از آن‌ها باقی نخواهد ماند.
+
+زمان یک عامل حیاتی است!
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14344
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14344_1779039905.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقای ساعدی نیا
+قلب میلیون ها ایرانی همراه شماست.
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20287
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20287_1779039906.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجاری که قبل جنگ در بندر شهید رجایی بندرعباس رخ داد بسیار مهیب و پر از کشته! شما یه سرچ ساده تو اکانت‌های کوله پشتی بکن مطلقا هیچ اشاره‌ای به این تراژدی نداشتن!
+شماها فقط پروژه گیر هستین! نه داغدار کودکان مدرسه میناب و نه دلسوز ایران و مردمش!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به کانال ۱۳ اسرائیل:
+
+ایران باید از من بترسد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال ۱۲ اسرائیل:
+
+تخمین اسرائیلی‌ها این است که امریکا در طول این هفته، به جنگ علیه ایران بازخواهد گشت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20284
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 باراک راوید خبرنگار آکسیوس:
+
+ترامپ در یک تماس تلفنی با نتانیاهو، درباره ایران گفت‌وگو کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20283
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20283_1779039907.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: زمان برای ایران در حال اتمام است
+
+برای ایران، ساعت در حال تیک‌تاک است، و آن‌ها بهتر است خیلی سریع دست به کار شوند؛ وگرنه چیزی از آن‌ها باقی نخواهد ماند. زمان حیاتی است!
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281320
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/281320" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻🎙️پادکست برنامه جام جهان‌نما یکشنبه ۲۷ اردیبهشت ۱۴۰۵
+
+در برنامه رادیویی جام‌جهان‌نمای امروز می‌شنوید؛
+
+گمانه‌زنی و التهاب درباره ازسرگیری جنگ آمریکا و اسرائیل با ایران؛ ترامپ در شبکه‌های اجتماعی از آرامش پیش از طوفان گفت، همزمان تهران گفته برای هر نوع واکنش غافل‌گیرانه آماده است.
+
+حمله پهپادی به محوطه نیروگاه هسته‌ای امارات متحده عربی؛ این کشور گفته آتش‌سوزی مهار شده ولی هنوز منشا حمله مشخص نیست. ایران در واکنش گفته این حمله «توطئه دشمن» است.
+
+هم‌زمان، قالیباف، رئیس مجلس، نماینده ویژه جمهوری اسلامی در امور چین هم شد. از کارشناس مسائل ایران می‌پرسیم آیا تغییر معناداری است؟
+
+و در «گپ روز» امشب می‌شنوید:
+فهرست بازیکنان دعوت‌شده به تیم ملی فوتبال ایران برای جام جهانی اعلام شد. مقام‌های ارشد فدراسیون فوتبال ایران و فیفا هم در استانبول دیدار کرده‌‌اند.
+از خبرنگار ورزشی‌مان می‌پرسیم این فهرست، چندمرده حلاج است؟ شرط و شروط ایران برای شرکت در جام جهانی چه شد؟
+
+این برنامه رادیویی را می‌توانید هر شب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 281319
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281319_1779039908.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ در شبکه تروث سوشال بدون توضیحی نوشت: «ساعت برای ایران در حال تیک‌تاک است و اگر به‌سرعت عمل نکند، چیزی از آنها باقی نخواهد ماند.»
+
+این درحالیست که وزیر کشور پاکستان، کشوری که میانجی کنونی آیران و آمریکاست، امروز در ایران با محمدباقر قالیباف ملاقات کرده است.
+
+سخنگوی کمیسیون امنیت ملی و سیاست خارجی مجلس امروز گفت: «آمریکا یا باید شرایط جمهوری اسلامی ایران را بپذیرد و تسلیم دیپلمات‌های ما شود و یا اینکه ایران از موضع قدرت با آن مذاکره خواهد کرد و باید تسلیم موشک‌های ما شود.»
+
+او گفت که ایران «از هیچ یک از شروط خود کوتاه نمی‌آید.»
+📷Getty Images
+https://bbc.in/49SmRXU
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 281318
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻امارات «حمله پهپادی» به نزدیکی نیروگاه هسته‌ایش را «تروریستی» خواند
+
+🔻امارات متحده عربی حمله پهپادی به نزدیکی نیروگاه هسته‌ای براکه را «یک اقدام تروریستی بی‌دلیل» خواند که باعث تشدید تنش در منطقه می‌شود.
+
+وزارت خارجه امارات متحده در بیانیه‌ای «به شدیدترین لحن» این حمله را محکوم کرد و «حق دیپلماتیک و نظامی خود را برای پاسخ به هرگونه تهدید، ادعا یا دشمنی» را محفوظ دانست.
+
+در بیانیه وزارت خارجه امارات به منشا این حمله اشاره‌ای نشده اما آمده است که یک ژنراتور برق، خارج از محدوده داخلی نیروگاه هسته‌ای براکه در منطقه ظفره، هدف پهپادی قرار گرفت که از مرز غربی وارد امارات شده بود.
+
+وزارت خارجه امارات این حمله را «تشدید خطرناک تنش‌ها،‌ اقدام تجاوزکارانه غیرقابل و تهدید مستقیم برای امنیت» خود و نقض آشکار قوانین بین‌المللی خواند.
+
+تنش لفظی ایران و امارات اخیرا شدت گرفته است.
+
+امارات جمعه گفت ایران در طول جنگ با آمریکا و اسرائیل،‌ بیش از سه هزار حمله به تاسیسات غیرنظامی‌اش کرده است.
+
+عباس عراقچی، وزیر خارجه، امارات متحده را به داشتن نقش فعال در حملات آمریکا و اسرائیل به ایران متهم کرده است. ایران می‌گوید فقط به تاسیسات نظامی و نهادهای مرتبط با آمریکا و اسرائیل در امارت حمله کرده است.
+
+https://bbc.in/3PnCZdc
+@BBCPersian
+</div>
+
+## BBCPersian — post 281309
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک روز پس از به نمایش درآمدن فیلم «تمرین‌هایی برای یک انقلاب»، ساخته پگاه آهنگرانی در هفتاد و نهمین جشنواره فیلم کن، عوامل تولید و ساخت این فیلم مقابل دوربین رسانه‌ها قرار گرفتند.
+
+پس از نمایش دیروز که با استقبال تماشاچیان همراه بود،‌ خانم آهنگرانی اثر خود را به مادرانی تقدیم کرد که فرزندانشان را در راه مبارزه برای آزادی از دست داده‌اند.
+
+کاوه فرنام و آدریا مونس تهیه کنندگان فیلم «تمرین‌هایی برای یک انقلاب» هستند و تدوین آن با آرش آشتیانی بوده است.
+
+پگاه آهنگرانی که خود راوی این فیلم است می‌گوید که از میان پنج پرتره از خویشاوندان و استادانش و پنج شکل از مقاومت، در این فیلم داستان زندگی خودش را روایت کرده است.
+
+به گفته خانم آهنگرانی او با استفاده از آرشیوهای شخصی، ویدئوهای خانگی، تصاویر اعتراضات خیابانی، روزنامه‌ها و صداهای ضبط‌ شده، بیش از ۴۰ سال از تاریخ ایران را بازخوانی ‌کرده است.
+
+📷Corbis via Getty Images/ AFP via Getty Images/ Getty Images/ EPA/ BBC Images
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389633
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏تا حالا رفتی جنازه دخترت رو تحویل بگیری
+بهت بگن شیرینی بگیر ؟
+بعد تو بگی برای جنازش؟
+اونم بگه نه برای بکارتش
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389632
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلگرام تو این سیزده سال، به اندازه‌ی یک روز پیام‌رسان‌های داخلی قطعی و اختلال نداشته.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389631
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏Lesson :
+
+جایی که بهت میگن «اگه دوست داری بیای، بیا»، نرو.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389630
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرتیکه‌ی توده‌ای پلشت فکر کرده به جای «تخم» بگه «بیضه» خیلی مودب و با اخلاقه! دوزاری هستی مثل بقیه‌ی خون‌شورای هم‌صِنفت.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 112997
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصدومیت ۱۵ کارگر، آتش‌نشان و نیروی امدادی در سایه فقدان ایمنی کار
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – در سایه فقدان ایمنی محیط و شرایط نامناسب کار، ۱۵ #کارگر از جمله ۱۳ آتش‌نشان و نیروی امدادی در شهرستان‌های مراغه و مریوان طی حوادثی حین انجام کار مصدوم شدند.
+
+ادامه مطلب
+
+↘️ @hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## manototv — post 105571
+
+<div align="center">
+  <a href="telegram/content/manototv_105571_1779039909.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انور قرقاش، مشاور رئیس‌ دولت امارات، حمله به نیروگاه هسته‌ای این کشور را «اقدامی تروریستی» توصیف کرد و گفت این حمله «چه از سوی عامل اصلی و چه از طریق یکی از نیروهای نیابتی‌اش» یک «تشدید خطرناک» و نقض قوانین و عرف‌های بین‌المللی است.
+
+قرقاش در پیامی در ایکس نوشت این حمله «با بی‌اعتنایی مجرمانه به جان غیرنظامیان در امارات و مناطق اطراف آن» انجام شده است.
+
+او افزود: «هیچ‌کس نمی‌تواند امارات را تحت فشار قرار دهد و در تضعیف چشم‌انداز، موفقیت و پیام الهام‌بخش آن برای امنیت، ثبات، توسعه و رفاه در منطقه موفق نخواهد شد.»
+
+امارات تاکنون مسئول این حمله را معرفی نکرده است. وزارت دفاع امارات پیش‌تر اعلام کرده بود پهپادها از «مرز غربی» وارد این کشور شده‌اند.
+</div>
+
+## manototv — post 105570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنرانی پدر جاویدنام سام افشاری در گردهمایی مونیخ - گزارشگر ۲۶ اردیبهشت
+</div>
+
+## manototv — post 105569
+
+<div align="center">
+  <a href="telegram/content/manototv_105569_1779039909.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌‌
+دونالد ترامپ در پیامی در شبکه‌ اجتماعی خود نوشت:
+«برای ایران، ساعت در حال گذر است و بهتر است خیلی سریع حرکت کنند، وگرنه چیزی از آن‌ها باقی نخواهد ماند. وقت تنگ است.»
+</div>
+
+## manototv — post 105568
+
+<div align="center">
+  <a href="telegram/content/manototv_105568_1779039910.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، و دونالد ترامپ، رئیس‌جمهوری آمریکا، روز یکشنبه درباره سفر رئیس‌جمهوری آمریکا به چین گفت‌وگو کردند.
+
+دو طرف همچنین درباره تحولات مربوط به ایران رایزنی کردند.
+
+نتانیاهو پیش‌تر گفته بود که شامگاه یکشنبه با ترامپ صحبت خواهد کرد. او گفت:
+«چشم‌های ما همچنین کاملاً به ایران باز است. امروز، همان‌طور که هر چند روز یک‌بار انجام می‌دهم، با دوست‌مان رئیس‌جمهور ترامپ صحبت خواهم کرد. قطعاً برداشت‌های او را از سفرش به چین و شاید مسائل دیگری خواهم شنید. قطعاً احتمالات زیادی وجود دارد؛ ما برای هر سناریویی آماده‌ایم.»
+</div>
+
+## alonews — post 120656
+
+<div align="center">
+  <a href="telegram/content/alonews_120656_1779039911.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر امور خارجه کوبا برونو رودریگز پاریا: کوبا کشوری صلح‌طلب است، اما اگر به طور نظامی مورد حمله قرار گیرد، حق دفاع مشروع خود را تا آخرین پیامدها با حمایت گسترده مردمش اعمال خواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120655
+
+<div align="center">
+  <a href="telegram/content/alonews_120655_1779039911.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس به نقل از مقام‌های آمریکایی گزارش داد مذاکرات با ایران به بن‌بست رسیده، اما ترامپ همچنان خواهان توافق با تهران است و در صورت رد خواسته‌هایش، گزینه نظامی را ترجیح می‌دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120654
+
+<div align="center">
+  <a href="telegram/content/alonews_120654_1779039911.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بیانیه قطر: از تلاش های دیپلماتیک پاکستان برای رسیدن به توافقی جامع حمایت میکنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120653
+
+<div align="center">
+  <a href="telegram/content/alonews_120653_1779039912.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رادیو ارتش اسرائیل: در سایه شروع درگیری ها در ایران فرماندهی پشتیبانی اعلام کرد دستورالعمل‌ها عوض نشده، فعلا تا سه‌شنبه همون‌هایی که هستن معتبرن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120652
+
+<div align="center">
+  <a href="telegram/content/alonews_120652_1779039912.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انتظار می‌رود ترامپ روز سه‌شنبه جلسه‌ای در اتاق وضعیت با تیم ارشد امنیت ملی خود برگزار کند تا گزینه‌های اقدام نظامی علیه ایران را بررسی کند، به گزارش Axios و به نقل از دو مقام آمریکایی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120651
+
+<div align="center">
+  <a href="telegram/content/alonews_120651_1779039912.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ادامه رفت و آمد هواپیماهای ترابری ارتش آمریکا به خاورمیانه!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120650
+
+<div align="center">
+  <a href="telegram/content/alonews_120650_1779039912.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نفت برنت بعدِ پست جدید ترامپ؛ از ۱۰۵$ رسید به ۱۰۹$
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120649
+
+<div align="center">
+  <a href="telegram/content/alonews_120649_1779039913.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: «منتظر یک پیشنهاد دیگر از سوی ایران هستیم، پیش از آن‌که با شدتی بی‌سابقه به آن حمله کنیم.»
+
+
+🔴ایران باید از من بترسد و مراقب باشد.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120648
+
+<div align="center">
+  <a href="telegram/content/alonews_120648_1779039913.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان ملل: ما خواهان توافق جامع بین ایران و آمریکا هستیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120647
+
+<div align="center">
+  <a href="telegram/content/alonews_120647_1779039913.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ از طریق Truth Social:
+برای ایران، ساعت در حال تیک‌تاک است و بهتر است سریع حرکت کنند، وگرنه چیزی از آن‌ها باقی نخواهد ماند.
+
+
+🔴زمان اهمیت حیاتی دارد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120646
+
+<div align="center">
+  <a href="telegram/content/alonews_120646_1779039913.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست‌وزیر قطر با نخست‌وزیر پاکستان درباره ایران صحبت کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 20:12
 ---
 
