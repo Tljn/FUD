@@ -7,6 +7,322 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 03:15
+---
+
+## VahidOOnLine — post 240880
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پیت هگست، وزیر جنگ ایالات متحده، با تقلید لحن و ادبیات خاص دونالد ترامپ، به بازگویی اولین گفتگوی خود با رئیس جمهوری آمریکا پس از پیشنهاد این پست پرداخت. هگست با خنده در میان حاضران گفت: «رئیس‌جمهور ترامپ وقتی برای اولین بار این شغل را به من پیشنهاد داد، گفت: پیت، باید خیلی سگ‌جان و سرسخت باشی؛ ببخشید ولی واقعا همین را گفت. آماده‌ای؟ آن‌ها به سراغت خواهند آمد.»
+وزیر جنگ آمریکا در ادامه با تایید پیش بینی رئیس جمهوری افزود: «پسر، چقدر هم درست می‌گفت؛ او کاملا حق داشت.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240879
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240879_1779147946.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با اشاره به توقف کوتاه‌مدت حمله برنامه‌ریزی‌شده به جمهوری اسلامی درپی تقاضای عربستان‌ سعودی، امارات متحده عربی و قطر از او با هدف رسیدن به توافق، گفت این موضوع را به اسرائیل و دیگر کشورهای منطقه نیز اطلاع داده است.
+او در واشینگتن‌دی‌سی به خبرنگاران گفت: «عربستان سعودی، قطر، امارات متحده عربی و چند کشور دیگر از من خواستند که آن را برای دو یا سه روز، یک بازه کوتاه، به تعویق بیندازیم، زیرا فکر می‌کنند بسیار به دستیابی به یک توافق نزدیک شده‌اند و اگر بتوانیم به گونه‌ای عمل کنیم که هیچ سلاح هسته‌ای به دست ایران نرسد، فکر می‌کنم اگر آنها راضی باشند، ما نیز احتمالا راضی خواهیم بود.»
+ترامپ گفت: «ما قرار بود فردا یک حمله بسیار بزرگ انجام دهیم. من آن را برای مدتی کوتاه به تعویق انداختم، امیدوارم شاید برای همیشه، اما احتمالا برای مدت کوتاهی، زیرا گفت‌وگوهای بسیار مهمی با ایران داشته‌ایم و خواهیم دید این گفت‌وگوها به کجا می‌انجامد.»
+او افزود: «ما اسرائیل را در جریان گذاشته‌ایم، دیگر افرادی را در خاورمیانه که با ما درگیر بوده‌اند مطلع کرده‌ایم و این یک تحول بسیار مثبت است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240878
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240878_1779147947.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محسن رضایی، فرمانده سابق سپاه پاسداران و مشاور مجتبی خامنه‌ای، دوشنبه ۲۸ اردیبهشت ماه با انتشار پیامی در شبکه اجتماعی اکس نوشت: «ضرب‌الاجل حمله نظامی تعیین می‌کند و خودش هم آن را لغو می‌کند. با این امید واهی که ملت و مسئولان ایران را تسلیم کند. مشت آهنین نیروهای مسلح قدرتمند و ملت بزرگ ایران آن‌ها را وادار به عقب‌نشینی و تسلیم خواهد کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در گفتگو با خبرنگاران گفت: «من با اسکات بسنت، وزیر خزانه‌داری ایالات متحده آمریکا و هاوارد لوتنیک،  وزیر بازرگانی تماس گرفتم و همه آن‌ها را به دفترم فراخواندم. گفتم ما قصد داریم یک سفر کوتاه به خاورمیانه داشته باشیم و با ایران مواجه شویم، زیرا آن‌ها به شدت به دنبال دستیابی به سلاح هسته‌ای هستند و تنها دلیلشان برای داشتن آن، استفاده از آن است.»
+رئیس‌جمهوری آمریکا در ادامه افزود: «من گفتم از اینکه مجبورم این کار را انجام دهم متنفرم، چون اوضاع ما بسیار خوب پیش می‌رود؛ اما این مهم‌ترین کاری است که می‌توانیم انجام دهیم. ما نمی‌توانیم اجازه دهیم ایران به سلاح هسته‌ای دست یابد، بنابراین این کار را انجام دادیم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240876
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240876_1779147947.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه، در ایکس نوشت: «همان‌طور که پیش‌تر گفته‌ام، هر توافقی که میان آمریکا و جمهوری اسلامی حاصل شود باید برای تایید به کنگره ارائه شود؛ همان‌طور که در مورد برجام نیز چنین شد.»
+سناتور گراهام گفت: «اگر بتوانیم از طریق ابزارهای دیپلماتیک به درگیری پایان دهیم و به اهداف امنیت ملی خود دست یابیم، این یک دستاورد بزرگ خواهد بود.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11617
+
+
+
+
+## WithYashar — post 11616
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۶ روز مانده تا تولد دونالد ترامپ خردادی دوست داشتنی ۱۴ ژوئن ۲۰۲۶ (۲۴ خرداد ۱۴۰۵) تهران میگیریم ؟ 😬
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341911
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341911_1779147948.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+REPORTER: "Can you speak a little bit about your, post on Truth Social on Iran? And what was the decision ... why you didn't attack... ?"
+
+PRESIDENT TRUMP: "Well, other countries have come to me and they've said... We were getting ready to do a very major attack tomorrow. I've put it off for a little while, hopefully, maybe forever, but possibly for a little while, because we've had, very big discussions with Iran and we'll see what they amount to."
+
+"I was asked by Saudi Arabia, Qatar, UAE and some others if we could put it off for 2 or 3 days, a short period of time, because they think that they are getting very close to making a deal. And if we can do that where there's no nuclear weapon going into the hands of Iran, I think and if they're satisfied, we will be probably satisfied."
+</div>
+
+## FoxNewsTwitter — post 341910
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341910_1779147950.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Former LAPD Detective Mark Fuhrman, who discovered the bloody glove in the 1995 O.J. Simpson murder case and was convicted of lying on the witness stand, has died at the age of 74.
+</div>
+
+## pm_afshaa — post 91010
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91010_1779147951.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واشنگتن پست به نقل از یک مقام پاکستانی: با توجه به مسائل متعدد در حال بررسی و نوع اجرای توافق، پیشرفت مذاکرات دشوار شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91009
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91009_1779147951.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک تایمز:
+ترامپ فعلا به خاطر نگرانی‌های پنتاگون که فکر میکنن ایران سیستم‌های پایش هوایی و دفاعیش رو ارتقا داده، از شروع دوباره جنگ برای فردا منصرف شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91008
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91008_1779147952.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل:
+ترامپ به اسرائیل اطلاع داد که تاخیر در حمله به ایران تنها دو تا سه روزه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337853
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337853" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: طرح مجلس برای جایزه و پاداش به قاتل ترامپ!
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337852
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337852_1779147953.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با اشاره به توقف کوتاه‌مدت حمله برنامه‌ریزی‌شده به جمهوری اسلامی درپی تقاضای عربستان‌ سعودی، امارات متحده عربی و قطر از او با هدف رسیدن به توافق، گفت این موضوع را به اسرائیل و دیگر کشورهای منطقه نیز اطلاع داده است.
+او در واشینگتن‌دی‌سی به خبرنگاران گفت: «عربستان سعودی، قطر، امارات متحده عربی و چند کشور دیگر از من خواستند که آن را برای دو یا سه روز، یک بازه کوتاه، به تعویق بیندازیم، زیرا فکر می‌کنند بسیار به دستیابی به یک توافق نزدیک شده‌اند و اگر بتوانیم به گونه‌ای عمل کنیم که هیچ سلاح هسته‌ای به دست ایران نرسد، فکر می‌کنم اگر آنها راضی باشند، ما نیز احتمالا راضی خواهیم بود.»
+ترامپ گفت: «ما قرار بود فردا یک حمله بسیار بزرگ انجام دهیم. من آن را برای مدتی کوتاه به تعویق انداختم، امیدوارم شاید برای همیشه، اما احتمالا برای مدت کوتاهی، زیرا گفت‌وگوهای بسیار مهمی با ایران داشته‌ایم و خواهیم دید این گفت‌وگوها به کجا می‌انجامد.»
+او افزود: «ما اسرائیل را در جریان گذاشته‌ایم، دیگر افرادی را در خاورمیانه که با ما درگیر بوده‌اند مطلع کرده‌ایم و این یک تحول بسیار مثبت است.»
+https://iranintl.com/202605187593
+</div>
+
+## IranIntlTV — post 337851
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337851_1779147953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ اعلام کرد به درخواست رهبران منطقه برنامه حمله به جمهوری اسلامی را متوقف کرده است.
+
+او همزمان به نیویورک‌پست گفت پس از دریافت پاسخ اخیر جمهوری اسلامی درباره مذاکرات، دیگر تمایلی به دادن هیچ امتیازی به تهران ندارد.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337850
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337850" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: لغو حمله در آخرین لحظه
+@iranintlTV
+</div>
+
+## FarsiVOA — post 218105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️معادله چند مجهولی پهپادهای ناشناس؛ آیا آسمان عراق از کنترل دولت خارج شده است؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218104
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مواضع قانون‌گذاران آمریکایی درباره رژیم ایران و بحران در تنگه هرمز
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218103
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پلیس: تیراندازی در «مرکز اسلامی» سن‌دیگو، ۳ بزرگسال را کشت؛ هر دو مظنون کشته شدند
+
+▪️مقام‌های آمریکایی گفتند تیراندازی روز دوشنبه در یک «مرکز اسلامی» در شهر سن‌دیگو واقع در ایالت کالیفرنیا، سه مرد، از جمله یک نگهبان امنیتی را کشت.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8151375.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218102
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218102_1779147955.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️افزایش کودک‌همسری و خشونت علیه زنان در افغانستان؛ به حاشیه‌رفتن حقوق زنان در سایه تنش‌های ایران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218101
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218101_1779147956.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پزشکیان زیر تیغ گرانی؛ دولت بی‌اختیار در سایه سپاه و جنگ؟
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14462
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14462_1779147957.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪️ شبتون بخیر 🫶
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 281415
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281415_1779147959.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+دونالد ترامپ، رئیس جمهور آمریکا، در نخستین واکنش به حمله مسلحانه به مسجد جامع شهر سن دیگو آن را «حادثه وحشتناکی» خوانده و گفته به زودی با اعضای کابینه خود به طور جدی جزییات آن را زیر نظر خواهد گرفت.
+
+پلیس سن دیگو و اداره آگاهی فدرال آمریکا - پلیس اف‌بی‌آی - گفته این تیراندازی را تحت عنوان جنایت ناشی از نفرت تحت بررسی دارد؛ اصطلاحی که مترادف تروریسم داخلی است و از احتمال وجود انگیزه‌های نژادپرستانه یا نفرت از قوم یا پیروان مذهب خاصی حکایت دارد.
+
+https://bbc.in/4wt0sdw
+📷Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 281414
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 این حمله در آستانه عید قربان روی داد
+شیما خلیل - گزارشگر بی‌بی‌سی در کالیفرنیا
+
+تیراندازی امروز ضربه‌ای سنگین به جامعه‌ای وارد کرده که در حال آماده شدن برای یکی از مقدس‌ترین فصل‌های مذهبی و بزرگ‌ترین اعیاد خود است.
+
+تنها چند روز تا عید قربان باقی مانده؛ یکی از دو عید بزرگ مسلمانان که در آن خانواده‌ها جشن می‌گیرند و یاد اطاعت حضرت ابراهیم را گرامی می‌دارند.
+
+این دوره زمانی در تقویم اسلامی بسیار مهم است. در حال حاضر ماه ذی‌الحجه قرار داریم؛ دوازدهمین و آخرین ماه تقویم قمری اسلامی.
+
+این روزها به عنوان ۱۰ روز نخست ذی‌الحجه، از مقدس‌ترین و معنوی‌ترین روزهای سال در اسلام شناخته می‌شوند و جایگاه ویژه‌ای دارند.
+
+این فصل همچنین هم‌زمان با موسم حج است؛ و روز عرفه به عنوان مقدس‌ترین روز سال در نظر گرفته می‌شود.
+
+https://bbc.in/4futvHu
+@BBCPersian
+</div>
+
+## BBCPersian — post 281406
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویلیام مک‌لنان، کالین کمپل و جوزی هنت، بخش تحقیقات محلی بی‌بی‌سی
+
+تحقیقات تازه بی‌بی‌سی نشان می‌دهد قاچاقچیان انسان، از مهاجران غیرقانونی می‌خواهند که هزینه عبورشان از کانال مانش را از طریق شبکه‌ای از شرکت‌های ثبت‌شده در بریتانیا پرداخت کنند.
+
+ما به‌طور مخفیانه از کارکنان یک مغازه در جنوب‌شرقی لندن فیلم‌برداری کردیم، در حالی که آن‌ها به پژوهشگر مخفی ما گفتند می‌تواند نزدیک به ۴۰۰۰ دلار پول نقد نزدشان بگذارد تا برای یک قاچاقچی انسان در فرانسه ارسال شود.
+
+در این فروشگاه تلفن همراه در منطقه وولویچ به ما گفته شد: «پول خود را اینجا می‌گذاری. اگر دوستانت [به بریتانیا] رسیدند، نباید برگردی.»
+
+تحقیق سه‌ماهه ما نشان می‌دهد قاچاقچیان چگونه از حساب‌های بانکی شرکت‌های بریتانیایی برای تسهیل عبور با قایق‌های کوچک استفاده می‌کنند؛ موضوعی که به گفته یک کارشناس برجسته جرایم مالی، پیش از این هرگز مشاهده نشده بود.
+
+https://bbc.in/4dvXiwO
+📷 BBC / Tom Nicholson/Getty Images / Kiran Ridley/Getty Images / Tom Nicholson/Getty Images / Mike Kemp/In Pictures via Getty Images / Dan Kitwood/Getty Images
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 02:09
 ---
 
