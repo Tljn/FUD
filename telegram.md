@@ -7,6 +7,1062 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/03 01:13
+---
+
+## VahidOOnLine — post 241816
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241816_1779572635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی ایران، با انتشار پیامی در اکس با اشاره به مواجهه تاریخی ایران و روم نوشت: «در ذهن رومیان، رم مرکز بلامنازع جهان بود، اما ایرانیان آن توهم را در هم شکستند. زمانی که مارکوس ژولیوس فیلیپوس، مشهور به فیلیپ عرب، برای جنگ با ایران به شرق لشکر کشید، این نبرد به پیروزی روم ختم نشد، بلکه با صلحی پایان یافت که بر اساس شروط ساسانیان شکل گرفت. امپراتور مجبور شد کنار بیاید!» این پیام همزمان با انتشار اخبار مربوط به پیش‌نویس توافق صلح واشنگتن و تهران منتشر شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241815
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241815_1779572636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فارس، خبرگزاری وابسته به سپاه، روز شنبه، دوم خردادماه، در واکنش به پیام دونالد ترامپ، رئیس‌جمهوری آمریکا مبنی بر نزدیک شدن به توافق با ایران و بازگشایی تنگه هرمز نوشت: «این ادعا نیز با واقعیت‌ها فاصله دارد». فارس در ادامه نوشت: «برخلاف ادعای لحظات قبل دونالد ترامپ در شبکه اجتماعی تروث سوشال مبنی بر بازگشت تنگه هرمز به وضعیت پیشین و آماده‌سازی برای امضای توافق‌نامه، پیگیری‌های خبرنگار فارس نشان می‌دهد که این ادعا نیز با واقعیت‌ها فاصله دارد؛ چرا که بر اساس آخرین متن ردوبدل‌شده، در صورت توافق احتمالی، تنگه هرمز کماکان تحت مدیریت ایران خواهد بود و اگرچه ایران موافقت کرده اجازه دهد تعداد کشتی‌های عبوری به میزان قبل از جنگ بازگردد، اما این به‌هیچ‌عنوان به معنای تردد آزاد به وضعیت قبل از جنگ نیست و مدیریت تنگه، تعیین مسیر، زمان، نحوه عبور و صدور مجوز، کماکان در انحصار و با تدبیر جمهوری اسلامی ایران خواهد بود.»
+خبرگزاری سپاه در ادامه مدعی شد که برخلاف شروط پیشین ترامپ مبنی بر گنجاندن برنامه هسته‌ای در توافق، «هیچ تعهدی از سوی ایران داده نشده و پرونده هسته‌ای اساسا در این مرحله مورد بحث قرار نگرفته است.» فارس همچنین ادعا کرد که «مقامات آمریکایی در پیغام‌های متعدد به ایران اذعان داشته‌اند که توییت‌های ترامپ عمدتا جنبه تبلیغاتی و مصرف رسانه‌ای در داخل آمریکا دارد و توصیه کرده‌اند که به این اظهارات توجهی نشود».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241814
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241814_1779572637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرنگار الجزیره به نقل از «منابع خود»، مفاد کلیدی پیش‌نویس توافقی را که قرار است میان واشنگتن و تهران نهایی شود را اعلام کرد. خبرنگار الجزیره مدعی شد، توافق پیشنهادی شامل «پایان جنگ در تمامی جبهه‌ها از جمله لبنان»، «آزادسازی چندین میلیارد دلار از دارایی‌های مسدودشده ایران»، «رفع محاصره دریایی آمریکا و بازگشایی تنگه هرمز» و همچنین «عقب‌نشینی نیروهای آمریکایی از مجاورت مرزهای ایران» است. پس از اجرای این گام‌ها، طرفین یک مهلت ۳۰ روزه، که با توافق دوطرفه قابل تمدید است، خواهند داشت تا درباره مسئله هسته‌ای به توافق برسند که در طول این مدت نیز تردد از تنگه هرمز تسهیل خواهد شد. به گفته این خبرنگار، از نظر ایران، مدیریت تنگه هرمز یک موضوع دوجانبه میان تهران و مسقط تلقی می‌شود و گفتگوها در این زمینه با عمان در جریان است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241813
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241813_1779572638.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرمانداری مرند، روز شنبه، دوم خردادماه، خبر جان‌باختن دیپلمات جمهوری آذربایجان در تبریز را «نادرست» اعلام کرد و گفت: «در سانحه رانندگی، راننده کنسولگری جان باخته و رییس کنسولگری در سلامت کامل است». پیش از این، تسنیم، خبرگزاری وابسته به سپاه، به نقل از وزارت امور خارجه جمهوری آذربایجان، از جان باختن دیپلمات این کشور در تبریز خبر داده و گزارش داده بود که رامیل رضا اوغلو عمرانوف، کنسول جمهوری آذربایجان در تبریز حین انجام فعالیت خدماتی در حوالی شهر مرند در اتوبان جلفا-تبریز در اثر سانحه تصادف با خودرویی که در حال رانندگی بود جان باخته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241812
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241812_1779572639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهور آمریکا، در پیامی در تروث‌سوشال اعلام کرد که از دفتر بیضی کاخ سفید، تماس «بسیار خوبی» با رهبران و مقام‌های چند کشور خاورمیانه و منطقه درباره جمهوری اسلامی و یک یادداشت تفاهم مرتبط با «صلح» داشته است.
+
+او نوشت: «من در دفتر بیضی کاخ سفید هستم، جایی که همین حالا تماس بسیار خوبی با رئیس‌جمهور محمد بن سلمان آل سعود، از عربستان سعودی، محمد بن زاید آل نهیان، از امارات متحده عربی، امیر تمیم بن حمد بن خلیفه آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جبر آل ثانی، و وزیر علی الثوادی، از قطر، فیلد مارشال سید عاصم منیر احمد شاه، از پاکستان، رئیس‌جمهور رجب طیب اردوغان، از ترکیه، رئیس‌جمهور عبدالفتاح السیسی، از مصر، ملک عبدالله دوم، از اردن، و ملک حمد بن عیسی آل خلیفه، از بحرین، درباره جمهوری اسلامی ایران و همه مسائل مرتبط با یک یادداشت تفاهم مربوط به صلح داشتیم.
+
+یک توافق تا حد زیادی مذاکره شده است، مشروط به نهایی شدن میان ایالات متحده آمریکا، جمهوری اسلامی ایران، و کشورهای مختلف دیگر، همان‌طور که نام برده شدند.
+
+به طور جداگانه، من تماسی با نخست‌وزیر بی‌بی نتانیاهو، از اسرائیل، داشتم که آن هم به همین ترتیب بسیار خوب پیش رفت.
+
+جنبه‌ها و جزئیات نهایی توافق در حال حاضر در حال گفت‌وگو است و به‌زودی اعلام خواهد شد.
+
+علاوه بر بسیاری عناصر دیگر این توافق، تنگه هرمز باز خواهد شد.»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241811
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241811_1779572640.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو تماس متفاوت از ایران؛
+«اگه اجازه بدین جوابشو بدم»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241810
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241810_1779572643.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تسنیم، خبرگزاری وابسته به سپاه پاسداران، روز شنبه به نقل از وزارت امور خارجه جمهوری آذربایجان، از جان باختن دیپلمات این کشور در تبریز خبر داد. براساس این گزارش، رامیل رضا اوغلو عمرانوف، کنسول جمهوری آذربایجان در تبریز حین انجام فعالیت خدماتی در حوالی شهر مرند در اتوبان جلفا-تبریز در اثر سانحه تصادف با خودرویی که در حال رانندگی بود جان باخت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241809
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241809_1779572644.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️«یک منبع ارشد منطقه‌ای» از جزییات گفتگوی رهبران کشورهای عربی و مسلمان با دونالد ترامپ خبر داد. خبرنگار آکسیوس نوشت: «یک منبع ارشد منطقه‌ای به من گفت که تمامی رهبران عرب و مسلمان حاضر در گفتگوی روز شنبه با ترامپ، از او خواسته‌اند تا برای پایان دادن به جنگ و مهار تنش‌ها در منطقه، توافق را پیش ببرد.» این منبع تاکید کرده است که «پیام همه این بود: لطفا به خاطر کل منطقه، جنگ را متوقف کنید.» به گفته این منبع، مذاکرات به خوبی در حال پیشرفت است و میانجی‌ها امیدوارند روز یکشنبه یک توافق چارچوب یک‌صفحه‌ای را منعقد و بلافاصله آن را اعلام کنند و پس از آن، قصد دارند ظرف چند روز مذاکرات را برای دستیابی به یک توافق دقیق و پرجزئیات آغاز کنند.
+همزمان، دونالد ترامپ روز شنبه با انتشار پیامی در «تروث سوشال» از پیشرفت در مذاکرات صلح با ایران خبر داد و اعلام کرد جزئیات نهایی آن به‌زودی اعلام خواهد شد. رئیس‌جمهوری آمریکا با مثبت ارزیابی کردن تماس‌های تلفنی خود با رهبران کشورهای عربی، مسلمان و همچنین بنیامین نتانیاهو، نخست‌وزیر اسرائیل، تاکید کرد که در کنار سایر عناصر این توافق، تنگه هرمز نیز باز خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241808
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241808_1779572645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در بخشی از پیام روز جمعه خود در شبکه اجتماعی «تروث سوشال» مبنی بر نزدیک شدن به توافق با ایران، به رایزنی‌های دیپلماتیک با اسرائیل اشاره کرد و نوشت: «به طور جداگانه، تماسی با بنیامین نتانیاهو، نخست‌وزیر اسرائیل داشتم که آن هم بسیار خوب پیش رفت.» او با تاکید بر اینکه جنبه‌ها و جزئیات نهایی توافق با ایران در حال حاضر در دست بحث است و به‌زودی اعلام خواهد شد، شرایط گفتگو با نخست‌وزیر اسرائیل را مثبت ارزیابی کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12266
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس : ایران هیچ توافق هسته ای هم با امریکا نداشته
+@withyashar
+</div>
+
+## WithYashar — post 12265
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی پیش صداسیما گفت ادعای ترامپ در خصوص بازگشایی تنگه هرمز دروغ است و تنگه دست ایران خواهد ماند
+@withyashar
+</div>
+
+## WithYashar — post 12264
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12264_1779572646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ کمی پیش در حال تماس با سران کشورها
+@withyashar
+</div>
+
+## WithYashar — post 12263
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار کانال 12 اسرائیل:
+ترامپ تسلیم خواسته های ایران شد
+@withyashar
+</div>
+
+## WithYashar — post 12262
+
+
+
+
+## WithYashar — post 12261
+
+
+
+
+## WithYashar — post 12260
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار فکر میکنم خیلیا که پنیک میکنن تازه به جمعمون اضافه شدن
+اونای که قدیمین فقط میشینن به این اتفاقات میخندن چون از چیزای با خبرن و شناخت دارن که بقیه نمیفهمن
+البته این اتفاق زمانی میفته که نقشه راهو نداشته باشی
+ولی ما که میدونیم چه خبره😉
+</div>
+
+## WithYashar — post 12259
+
+
+
+
+## WithYashar — post 12258
+
+
+
+
+## WithYashar — post 12257
+
+
+
+
+## WithYashar — post 12256
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12256_1779572647.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۸ سوخت رسان از اسرائیل بلند شدن شاید بیشترم بشن هنوز چند تا رو باندن دارن پا میشن !!!!!
+@withyashar
+</div>
+
+## WithYashar — post 12255
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط کی حالتو خوب‌ میکنه ؟ عمو یاشار حالا اگه این پست رو ریکشن آتیش فقط بزنی میگم
+</div>
+
+## mwarmonitor — post 9591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝عجب شاهکار کمدی-استراتژیکی! آقای «کله زرد» بعد از این همه خط‌ونشان و هزینه‌های نجومی روی دست مالیات‌دهندگان آمریکایی، عملاً خاورمیانه را شخم زد تا دوباره همه‌چیز را برگرداند به پله اول؛ منتها با چند صفر اضافه‌تر در حساب بانکی تهران.
+
+🔸این بیانیه هالیوودی ترامپ بیشتر شبیه تیتراژ پایانی یک فیلم ابرقهرمانی است که در آن از شیر مرغ تا جان آدمیزاد—از محمد بن سلمان تا فیلد مارشال پاکستانی—را قطار کرده تا بگوید «من بزرگ‌ترین معامله تاریخ را کردم». اما خروجی واقعی این «هنر معامله»، بازگشت به چیزی شبیه به برجام است، با این تفاوت که میلیاردها دلار دارایی مسدودشده را آزاد کرده، مدیریت مهم‌ترین آبراه جهان را به ترکیب ایران-عمان سپرده و یک حکومت سرسخت‌تر و جسورتر را در منطقه تثبیت کرده است. این وسط، سهم مردم داخل ایران و ثبات منطقه مثل همیشه نادیده گرفته شده و آن مهلت ۳۰ روزه هسته‌ای هم بیشتر به یک وقت استراحت برای بازیابی قوا شباهت دارد. ترامپ با این کار، خود را مضحکه عام و خاص کرد؛ چرا که بعد از یک دور باطلِ خونین و پرهزینه، ثابت کرد واشنگتن در نهایت استادِ خریدنِ معامله‌های اضطراریِ دقیقه‌نودی به قیمت گزاف است، بی‌آنکه موازنه قدرت را سر سوزنی به نفع خود تغییر داده باشد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸خبرگزاری فارس ایران ادعای ترامپ مبنی بر اینکه تنگه هرمز به وضعیت پیش از جنگ بازخواهد گشت را رد کرده و گفته است هر توافق احتمالی فقط اجازه می‌دهد حجم تردد به سطح قبلی برگردد، در حالی که کنترل مسیرهای عبور، زمان‌بندی و صدور مجوزها همچنان در اختیار ایران خواهد بود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9589
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علی هاشم خبرنگار الجزیره:
+
+«بر اساس منابع من، پیش‌نویس پیشنهادی که قرار است نهایی شود شامل موارد زیر است:
+
+پایان جنگ در همه جبهه‌ها، از جمله لبنان
+
+آزادسازی چندین میلیارد دلار از دارایی‌های مسدودشده ایران
+
+لغو محاصره دریایی آمریکا و بازگشایی تنگه هرمز
+
+عقب‌نشینی نیروهای آمریکایی از نزدیکی فوری ایران
+
+
+پس از آن، طرف‌ها ۳۰ روز فرصت خواهند داشت تا درباره موضوع هسته‌ای به توافق برسند. این ۳۰ روز می‌تواند با توافق دوطرفه تمدید شود.
+
+در طول این ۳۰ روز، عبور و مرور از تنگه تسهیل خواهد شد.
+
+بر اساس گفته ایران، مدیریت تنگه هرمز یک موضوع ایرانی–عمانی خواهد بود و در حال مذاکره با مسقط است.»
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴🔴🔴 من در دفتر بیضی شکل کاخ سفید هستم، جایی که همین حالا یک تماس تلفنی بسیار خوب با این مقامات داشتیم: رئیس‌جمهور محمد بن سلمان آل سعود از عربستان سعودی، محمد بن زاید آل نهیان از امارات متحده عربی، امیر تمیم بن حمد بن خلیفه آل ثانی، نخست‌وزیر محمد بن عبدالرحمن…
+</div>
+
+## FoxNewsTwitter — post 342171
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342171_1779572648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+California Gov. Newsom declares a state of emergency in Orange County as a failing chemical tank threatens a potentially catastrophic explosion.
+
+More than 40,000 residents have been evacuated as emergency crews race to cool the overheating tank at a Southern California aerospace facility.
+
+Officials warn the tank could either explode or spill thousands of gallons of toxic chemicals, triggering what responders called an “environmental disaster.”
+</div>
+
+## FoxNewsTwitter — post 342170
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump says an agreement with Iran has been “largely negotiated” and “subject to finalization.”
+</div>
+
+## pm_afshaa — post 91339
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91339_1779572648.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ در تروث سوشال: من اکنون در دفتر بیضی کاخ سفید هستم؛ جایی که همین حالا گفت‌وگوی بسیار خوبی با محمد بن سلمان آل سعود، عربستان سعودی؛ محمد بن زاید آل نهیان، امارات متحده عربی؛ امیر تمیم بن حمد آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم آل ثانی و وزیر…
+</div>
+
+## pm_afshaa — post 91338
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91338_1779572649.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توییت انگلیسی بقایی، سخنگوی وزارت خارجه و کنایه به ترامپ:
+
+تو ذهن رومیان، روم مرکز بلامنازع جهان به‌شمار می‌رفت، ولی ایرانی‌ها این توهم رو شکوندن؛ زمانی که مارکوس ژولیوس فیلیپوس (فیلیپ عرب) واسه جنگ با ایران به شرق لشکر کشید، این نبرد به پیروزی روم ختم نشد، بلکه با صلحی بر پایه شروط ساسانیان تموم شد؛ تا جایی که امپراتور ناچار شد با ایران کنار بیاد!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91337
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91337_1779572650.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علی هاشم، خبرنگار الجزیره:
+
+طبق گفته منابع، پیش‌نویس پیشنهادی که قراره نهایی بشه شامل موارد زیر است:
+
+- پایان جنگ در همه جبهه‌ها از جمله لبنان
+- آزاد شدن میلیاردها دلار از دارایی‌های مسدود شده ایران
+- لغو محاصره دریایی آمریکا و گشایش تنگه هرمز
+- خروج نیروهای آمریکایی از مجاورت بلافصل ایران
+پس از این، طرفین 30 روز فرصت خواهند داشت تا درباره مسئله هسته‌ای به توافق برسند؛ این 30 روز با توافق طرفین قابل تمدید است.
+در طول این 30 روز، عبور و مرور از طریق تنگه تسهیل خواهد شد و به گفته ایران، مدیریت تنگه هرمز موضوعی ایرانی-عمانی خواهد بود و در حال مذاکره با مسقط است.
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91336
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91336_1779572651.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار کانال 12 اسرائیل:
+ترامپ تسلیم خواسته های ایران شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91335
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91335_1779572652.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تتر بعد از خبر توافق احتمالی بین آمریکا و جمهوری اسلامی تا 170 هزار تومن ریزش کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91334
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91334_1779572652.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: پیام همه رهبرانی که در تماس با ترامپ شرکت داشتن این بود که توقف جنگ به نفع منطقه است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75664
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75664_1779572653.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس، خبرگزاری وابسته به سپاه، در واکنش به پیام دونالد ترامپ، رئیس‌جمهوری آمریکا مبنی بر نزدیک شدن به توافق با ایران و بازگشایی تنگه هرمز نوشت: «این ادعا نیز با واقعیت‌ها فاصله دارد».
+
+فارس در ادامه نوشت: «برخلاف ادعای لحظات قبل دونالد ترامپ در شبکه اجتماعی تروث سوشال مبنی بر بازگشت تنگه هرمز به وضعیت پیشین و آماده‌سازی برای امضای توافق‌نامه، پیگیری‌های خبرنگار فارس نشان می‌دهد که این ادعا نیز با واقعیت‌ها فاصله دارد؛ چرا که بر اساس آخرین متن ردوبدل‌شده، در صورت توافق احتمالی، تنگه هرمز کماکان تحت مدیریت ایران خواهد بود و اگرچه ایران موافقت کرده اجازه دهد تعداد کشتی‌های عبوری به میزان قبل از جنگ بازگردد، اما این به‌هیچ‌عنوان به معنای تردد آزاد به وضعیت قبل از جنگ نیست و مدیریت تنگه، تعیین مسیر، زمان، نحوه عبور و صدور مجوز، کماکان در انحصار و با تدبیر جمهوری اسلامی ایران خواهد بود.»
+
+خبرگزاری سپاه در ادامه مدعی شد که برخلاف شروط پیشین ترامپ مبنی بر گنجاندن برنامه هسته‌ای در توافق، «هیچ تعهدی از سوی ایران داده نشده و پرونده هسته‌ای اساسا در این مرحله مورد بحث قرار نگرفته است.»
+
+فارس همچنین ادعا کرد که «مقامات آمریکایی در پیغام‌های متعدد به ایران اذعان داشته‌اند که توییت‌های ترامپ عمدتا جنبه تبلیغاتی و مصرف رسانه‌ای در داخل آمریکا دارد و توصیه کرده‌اند که به این اظهارات توجهی نشود».
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75663
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75663_1779572654.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرنگار الجزیره به نقل از «منابع خود»، مفاد کلیدی پیش‌نویس توافقی را که قرار است میان واشنگتن و تهران نهایی شود را اعلام کرد. خبرنگار الجزیره مدعی شد، توافق پیشنهادی شامل «پایان جنگ در تمامی جبهه‌ها از جمله لبنان»، «آزادسازی چندین میلیارد دلار از دارایی‌های مسدودشده ایران»، «رفع محاصره دریایی آمریکا و بازگشایی تنگه هرمز» و همچنین «عقب‌نشینی نیروهای آمریکایی از مجاورت مرزهای ایران» است. پس از اجرای این گام‌ها، طرفین یک مهلت ۳۰ روزه، که با توافق دوطرفه قابل تمدید است، خواهند داشت تا درباره مسئله هسته‌ای به توافق برسند که در طول این مدت نیز تردد از تنگه هرمز تسهیل خواهد شد. به گفته این خبرنگار، از نظر ایران، مدیریت تنگه هرمز یک موضوع دوجانبه میان تهران و مسقط تلقی می‌شود و گفتگوها در این زمینه با عمان در جریان است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75662
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75662_1779572655.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«یک منبع ارشد منطقه‌ای» از جزییات گفتگوی رهبران کشورهای عربی و مسلمان با دونالد ترامپ خبر داد.
+
+خبرنگار آکسیوس نوشت: «یک منبع ارشد منطقه‌ای به من گفت که تمامی رهبران عرب و مسلمان حاضر در گفتگوی روز شنبه با ترامپ، از او خواسته‌اند تا برای پایان دادن به جنگ و مهار تنش‌ها در منطقه، توافق را پیش ببرد.»
+
+این منبع تاکید کرده است که «پیام همه این بود: لطفا به خاطر کل منطقه، جنگ را متوقف کنید.»
+
+به گفته این منبع، مذاکرات به خوبی در حال پیشرفت است و میانجی‌ها امیدوارند روز یکشنبه یک توافق چارچوب یک‌صفحه‌ای را منعقد و بلافاصله آن را اعلام کنند و پس از آن، قصد دارند ظرف چند روز مذاکرات را برای دستیابی به یک توافق دقیق و پرجزئیات آغاز کنند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87620
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی پیش صداسیما گفت ادعای ترامپ در خصوص بازگشایی تنگه هرمز دروغ است و تنگه دست ایران خواهد ماند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87619
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴احتمالا بزودی صدای توافق بیرون از پنجره شنیده میشه
+لب پنجره نباشیم
+
+هرگاه به مهر نهایی پای برگه میرسیدند جنگ شروع میشد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87618
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87618_1779572656.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ، رییس جمهوری ایالات متحده در شبکه تروث سوشال نوشت: «یک توافق میان ایالات متحده آمریکا، جمهوری اسلامی تنظیم شده و اکنون در انتظار نهایی شدن است. جنبه‌ها و جزییات نهایی توافق در دست بررسی است و به‌زودی اعلام خواهد شد.»
+
+دونالد ترامپ افزود: «علاوه بر بسیاری از بندهای دیگر توافق، تنگه هرمز نیز بازگشایی خواهد شد.»
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87617
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87617_1779572657.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واکنش ولی نصر، مشاور سابق اوباما به پست ترامپ:
+
+اول اعلام کرد که می‌خواهد تمدن ایران را نابود کند، حالا اعلام می‌کند که می‌خواهد ایران را به ملک آمریکا تبدیل کند
+
+این نوع رفتار زننده، دیپلماسی را تضعیف می‌کند و ایرانیان را در دفاع از کشورشان متحد می‌سازد.
+
+در میانه دیپلماسی، او نسبت به نیات واقعی آمریکا تردید ایجاد می‌کند.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 338661
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338661_1779572658.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «ترامپ گفته روز یکشنبه درباره توافق یا جنگ با جمهوری اسلامی تصمیم می‌گیرد و احتمال توافق را ۵۰-۵۰ دانسته، اکنون نگاه‌ها به تصمیم اوست. آخرین پیشنهاد جمهوری اسلامی از طریق عاصم منیر، فرمانده ارتش پاکستان، به آمریکا منتقل شده و او پس از دیدار با مقام‌های تهران از انتقال نظرات نهایی جمهوری اسلامی به آمریکا خبر داده است.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 6183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 23 May 2026 21:26:27 UTC
+
+IRGC-owned Fars News:
+"""
+Trump's Claim Regarding the Return of the Strait of Hormuz to its Previous State Is Baseless
+
+According to Fars News Agency, despite Donald Trump's recent claim on "Truth Social" that the Strait of Hormuz has returned to its previous condition and that an agreement is being prepared for signing, investigations by Fars reporters indicate that this assertion is unsubstantiated.
+
+Based on the latest exchanged communications, should a potential agreement be reached, the Strait of Hormuz will remain under Iranian management.
+
+Although Iran has agreed to allow the number of passing vessels to return to pre-war levels, this by no means signifies "free passage" to the pre-war status.
+
+Consequently, the management of the strait, including route determination, timing, passage procedures, and permit issuance, will remain exclusively under the discretion and management of the Islamic Republic of Iran. Therefore, Trump's claim in this regard is flawed and does not align with reality.
+
+It is worth noting that Trump had previously declared negotiations regarding Iran's nuclear program as one of the primary and inseparable conditions for any agreement. However, no commitment has been made by Iran, and the nuclear file has not been discussed at this stage.
+
+American officials have reportedly acknowledged in numerous messages to Iran that Trump's tweets are primarily promotional and intended for media consumption within the United States, advising against paying attention to these statements.
+
+"""
+
+ترجمه فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6180
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6180_1779572660.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Steven Cheung ✓ @StevenCheung47 Sat, 23 May 2026 20:16:47 UTC It’s 4:00 PM on a Saturday, and President Trump has been working hard at the White House since early this morning. This man is focused and determined. ↩️ توییت نقل‌قول شده —…
+</div>
+
+## Shin_Persian — post 6179
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Steven Cheung ✓ @StevenCheung47
+Sat, 23 May 2026 20:16:47 UTC
+
+It’s 4:00 PM on a Saturday, and President Trump has been working hard at the White House since early this morning. This man is focused and determined.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+ساعت ۴:۰۰ بعد از ظهر شنبه است و پرزیدنت ترامپ از اوایل امروز صبح در کاخ سفید به سختی مشغول کار بوده است. این مرد متمرکز و بااراده است.
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105786
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105786_1779572661.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهور آمریکا، در پیامی در تروث‌سوشال اعلام کرد که از دفتر بیضی کاخ سفید، تماس «بسیار خوبی» با رهبران و مقام‌های چند کشور خاورمیانه و منطقه درباره جمهوری اسلامی و یک یادداشت تفاهم مرتبط با «صلح» داشته است.
+
+او نوشت: «من در دفتر بیضی کاخ سفید هستم، جایی که همین حالا تماس بسیار خوبی با رئیس‌جمهور محمد بن سلمان آل سعود، از عربستان سعودی، محمد بن زاید آل نهیان، از امارات متحده عربی، امیر تمیم بن حمد بن خلیفه آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جبر آل ثانی، و وزیر علی الثوادی، از قطر، فیلد مارشال سید عاصم منیر احمد شاه، از پاکستان، رئیس‌جمهور رجب طیب اردوغان، از ترکیه، رئیس‌جمهور عبدالفتاح السیسی، از مصر، ملک عبدالله دوم، از اردن، و ملک حمد بن عیسی آل خلیفه، از بحرین، درباره جمهوری اسلامی ایران و همه مسائل مرتبط با یک یادداشت تفاهم مربوط به صلح داشتیم.
+
+یک توافق تا حد زیادی مذاکره شده است، مشروط به نهایی شدن میان ایالات متحده آمریکا، جمهوری اسلامی ایران، و کشورهای مختلف دیگر، همان‌طور که نام برده شدند.
+
+به طور جداگانه، من تماسی با نخست‌وزیر بی‌بی نتانیاهو، از اسرائیل، داشتم که آن هم به همین ترتیب بسیار خوب پیش رفت.
+
+جنبه‌ها و جزئیات نهایی توافق در حال حاضر در حال گفت‌وگو است و به‌زودی اعلام خواهد شد.
+
+علاوه بر بسیاری عناصر دیگر این توافق، تنگه هرمز باز خواهد شد.»
+</div>
+
+## ManotoTV — post 105785
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105785_1779572663.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو تماس متفاوت از ایران؛
+«اگه اجازه بدین جوابشو بدم»
+</div>
+
+## FarsiVOA — post 218476
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دونالد ترامپ می‌گوید جزئیات یک «یادداشت تفاهم صلح» با جمهوری اسلامی به زودی اعلام می‌شود
+
+▪️دونالد ترامپ، رئيس‌جمهوری آمریکا، شنبه‌ عصر ۲ خرداد گفت با شماری از رهبران منطقه از جمله مقامات عربستان، قطر، و امارات درباره یک یادداشت تفاهم مربوط به صلح با جمهوری اسلامی ایران صحبت کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8153084.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادمین هستم، با اجازه از الیاس عزیز. 📝
+
+این صرفا نظر شخصی من هست. 🙏
+
+به نظر من الان همه دارن از اینکه جام جهانی رویداد خیلی مهمی هست و ترامپ قبل از جام جهانی نمیزنه صحبت می‌کنند و میگن اگرم بزنه بعد از جام جهانی میزنه
+
+و فکر میکنم این دقیقا همون تله‌ای هست که شما هم دارید توش می‌افتید
+
+امنیت ملی آمریکا موضوعی نیست که با یک فستیوال بخواد موضوع مهمی مثل ج.ا رو به تعویق بندازه
+
+به نظرم از الان هم دارن توافق رو بولد میکنن تا به جام جهانی که رسیدیم دیگه هیچکس فکرش رو هم نکنه که بخوان وسط جام جهانی بزنن
+
+و خب دقیقا همونجاست که، بوووم‌ 🗿
+🐭🐁تباه به ملکوت اعلی می‌پیونده 😂
+البته اگر تا الان نپیوسته باشه 😈
+
+گفتم این صرفا نظر شخصی من هست. ❤️🙏
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14787
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14787_1779572665.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Persian_Trend_Official — post 14786
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس | ادعای ترامپ دربارهٔ بازگشت تنگهٔ هرمز به حالت قبل واقعیت ندارد
+
+💢به‌گزارش فارس؛ برخلاف ادعای لحظات قبل دونالد ترامپ در شبکهٔ اجتماعی «تروث سوشال» مبنی بر بازگشت تنگهٔ هرمز به وضعیت پیشین و آماده‌سازی برای امضای توافق‌نامه، پیگیری‌های خبرنگار فارس نشان می‌دهد که این ادعا نیز با واقعیت‌ها فاصله دارد.
+
+💢براساس آخرین متن ردوبدل‌شده، در صورت توافق احتمالی، تنگهٔ هرمز کماکان تحت مدیریت ایران خواهد بود.
+
+💢اگرچه ایران موافقت کرده اجازه دهد تعداد کشتی‌های عبوری به میزان قبل از جنگ بازگردد، اما این به‌هیچ‌عنوان به معنای «تردد آزاد» به وضعیت قبل از جنگ نیست.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی هاشم خبرنگار الجزیره:
+
+طبق گفته منابع من، پیش‌نویس پیشنهادی که قرار است نهایی شود شامل موارد زیر است:
+
+- پایان جنگ در همه جبهه‌ها از جمله لبنان
+
+- آزاد شدن میلیاردها دلار از دارایی‌های مسدود شده ایران
+
+- لغو محاصره دریایی آمریکا و گشایش تنگه هرمز
+
+- خروج نیروهای آمریکایی از مجاورت بلافصل ایران
+
+پس از این، طرفین ۳۰ روز فرصت خواهند داشت تا درباره مسئله هسته‌ای به توافق برسند.
+
+این ۳۰ روز با توافق طرفین قابل تمدید است.
+
+در طول این سی روز، عبور و مرور از طریق تنگه تسهیل خواهد شد.
+
+به گفته ایران، مدیریت تنگه هرمز موضوعی ایرانی-عمانی خواهد بود و در حال مذاکره با مسقط است./انتخاب
+
+
+😄😄😄😄😄 بخدا این ترامپ همرو سرکار گذاشته !
+</div>
+
+## Persian_Trend_Official — post 14783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢وضعیت پرواز های نظامی ایالات متحده در آسمان منطقه . 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/persian_trend_official/14778?comment=576703
+
+من فشار بخورم یا نخورم تاثیری داره ؟
+فکر میکنی توافقی هم بشه از فردا دلار میشه 20 تومن و سرمایه گزار خارجی واسه ایران صف میبندن ؟
+داداش من این مسیر رو به قهقراست
+</div>
+
+## Persian_Trend_Official — post 14781
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14781_1779572666.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد تا حس پیروزی بهشون دست نده از سوراخ بیرون نمیان 😄
+</div>
+
+## Persian_Trend_Official — post 14780
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14780_1779572667.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢وضعیت پرواز های نظامی ایالات متحده در آسمان منطقه .
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی و آمریکا، حتی روی چهارچوب هم تا الان به نقطه مشترک نرسیدن !
+</div>
+
+## Persian_Trend_Official — post 14778
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14778_1779572667.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متاسفانه ما ایرانی ها یا فکر میکنم توافق شده و بدبخت شدیم یا تو صف پمپ بنزینیم ! هیییچ حد وسطی نداریم ...
+</div>
+
+## Persian_Trend_Official — post 14777
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14777_1779572668.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+- اپستینی (ترامپ): میخوام توافق کنم. 😒
+
++ واکنش کودک کش (نتانیاهو): فعععک نکنم. 🤗
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14776
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14776_1779572669.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متاسفانه ما ایرانی ها یا فکر میکنم توافق شده و بدبخت شدیم یا تو صف پمپ بنزینیم !
+هیییچ حد وسطی نداریم ...
+</div>
+
+## Persian_Trend_Official — post 14775
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من اکنون در دفتر بیضی کاخ سفید هستم؛ جایی که دقایقی پیش گفت‌وگوی بسیار خوبی با ولیعهد عربستان سعودی، ، رئیس امارات متحده عربی، امیر تمیم بن حمد بن خلیفه آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جابر آل ثانی و وزیر علی الثوادی از قطر، فیلد مارشال سید…
+</div>
+
+## IranianMinds — post 20644
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20644_1779572670.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست اتاق جنگ اسرائیل:
+
+ایران آزاد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20643
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به نفع کشورش کار میکنه
+و همکاری با این رژیمی که خواهان نابودی اونهاست به نفع آمریکا نیست.
+
+موضوعاتی هست که ما اطلاع نداریم
+فقط کافیه وایستیم و ببینیم
+
+پیچیدگی های موضوع رو اطلاعی نداریم
+</div>
+
+## IranianMinds — post 20642
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ریزش تتر بعد از خبر توافق احتمالی بین آمریکا و جمهوری اسلامی
+
+171 هزارتومان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20641
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس: پیام همه رهبرانی که در تماس با ترامپ شرکت داشتن این بود که توقف جنگ به نفع منطقه است.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281905
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281905_1779572670.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ، رئیس جمهور آمریکا در شبکه اجتماعی تروث سوشال اعلام کرد که گفت‌وگوهای «بسیار خوبی» با شماری از رهبران منطقه داشته است اما جنبه‌ها و جزئیات نهایی توافق با ایران همچنان در حال بررسی است و «به‌زودی» اعلام خواهد شد.
+
+او همچنین گفت که در چارچوب این توافق، تنگه هرمز بازگشایی خواهد شد.
+
+آقای ترامپ می‌گوید که از دفتر بیضی کاخ سفید در باره ایران و «تفاهم‌نامه‌ای مرتبط با صلح» این گفت‌وگوها را انجام داده است.
+
+او گفت که بخش عمده توافق میان آمریکا، ایران و دیگر کشورهای یادشده مورد مذاکره قرار گرفته، اما هنوز نهایی نشده است.
+
+آقای ترامپ افزود که به‌طور جداگانه با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، نیز گفت‌وگو کرده و این تماس هم «بسیار خوب» بوده است.
+
+📸 Getty
+
+https://bbc.in/4dtIPCY
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390041
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏اصلا چرا من باید شخصی به نام “عاصم منیر” رو بشناسم؟ کیرم توی این سونوشت جدی. همین که شخصی به نام “عاصم منیر” رو می‌شناسیم یعنی باید رید توی این سرنوشت.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390040
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نذارید اخبار مذاکره حواستون رو از رسیدگی به خشخاش‌ها پرت کنه، همین الان برین بهش آب بدین
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390039
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390039_1779572671.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حتی در برهوت میهن‌پرستی، همیشه کسانی بوده‌اند که بدون سهم‌خواهی و منت، برای میهن جانفشانی کرده‌اند تا #ایران همچنان پابرجا بماند.
+ما به آنها مدیونیم….
+
+امیرحسین‌خان شجاع‌الدوله
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390038
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390038_1779572673.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: الان تو دفتر بیضی کاخ سفید هستم و دقایقی پیش با رهبرای عربستان، امارات، قطر، پاکستان، ترکیه، مصر، اردن و بحرین درباره ایران و توافق صلح صحبت کردم؛
+
+توافق تقریبا تنظیم شده و فقط مونده یه‌سری جزئیات نهایی بین آمریکا، ایران و بقیه کشورا جمع‌بندی بشه، با نتانیاهو هم حرف زدم، اونم خوب پیش رفت.
+
+جزئیات نهایی توافق قراره به‌زودی اعلام بشه و تنگه هرمز هم دوباره باز میشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105786
+
+<div align="center">
+  <a href="telegram/content/manototv_105786_1779572674.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهور آمریکا، در پیامی در تروث‌سوشال اعلام کرد که از دفتر بیضی کاخ سفید، تماس «بسیار خوبی» با رهبران و مقام‌های چند کشور خاورمیانه و منطقه درباره جمهوری اسلامی و یک یادداشت تفاهم مرتبط با «صلح» داشته است.
+
+او نوشت: «من در دفتر بیضی کاخ سفید هستم، جایی که همین حالا تماس بسیار خوبی با رئیس‌جمهور محمد بن سلمان آل سعود، از عربستان سعودی، محمد بن زاید آل نهیان، از امارات متحده عربی، امیر تمیم بن حمد بن خلیفه آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جبر آل ثانی، و وزیر علی الثوادی، از قطر، فیلد مارشال سید عاصم منیر احمد شاه، از پاکستان، رئیس‌جمهور رجب طیب اردوغان، از ترکیه، رئیس‌جمهور عبدالفتاح السیسی، از مصر، ملک عبدالله دوم، از اردن، و ملک حمد بن عیسی آل خلیفه، از بحرین، درباره جمهوری اسلامی ایران و همه مسائل مرتبط با یک یادداشت تفاهم مربوط به صلح داشتیم.
+
+یک توافق تا حد زیادی مذاکره شده است، مشروط به نهایی شدن میان ایالات متحده آمریکا، جمهوری اسلامی ایران، و کشورهای مختلف دیگر، همان‌طور که نام برده شدند.
+
+به طور جداگانه، من تماسی با نخست‌وزیر بی‌بی نتانیاهو، از اسرائیل، داشتم که آن هم به همین ترتیب بسیار خوب پیش رفت.
+
+جنبه‌ها و جزئیات نهایی توافق در حال حاضر در حال گفت‌وگو است و به‌زودی اعلام خواهد شد.
+
+علاوه بر بسیاری عناصر دیگر این توافق، تنگه هرمز باز خواهد شد.»
+</div>
+
+## manototv — post 105785
+
+<div align="center">
+  <a href="telegram/content/manototv_105785_1779572676.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو تماس متفاوت از ایران؛
+«اگه اجازه بدین جوابشو بدم»
+</div>
+
+## alonews — post 122196
+
+<div align="center">
+  <a href="telegram/content/alonews_122196_1779572678.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری معتبر فارس: تنگه هرمز تحت کنترل ایران باقی میمونه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122195
+
+<div align="center">
+  <a href="telegram/content/alonews_122195_1779572678.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منبعی در وزارت خارجه پاکستان به «العربی الجدید»:
+توافق موقت خواهد بود نه نهایی، و پیشنهاد شامل گشایش تنگه هرمز و رفع محاصره بنادر ایران است.
+
+
+🔴پیشنهاد شامل رفع محدودیت‌ها از دارایی‌های مسدود شده ایران است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122194
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ فروشا👍
+</div>
+
+## alonews — post 122193
+
+
+
+
+## alonews — post 122192
+
+<div align="center">
+  <a href="telegram/content/alonews_122192_1779572679.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈علی هاشم خبرنگار الجزیره: طبق گفته منابع من، پیش‌نویس پیشنهادی که قرار است نهایی شود شامل موارد زیر است:
+
+
+🔴پایان جنگ در همه جبهه‌ها از جمله لبنان
+
+
+🔴آزاد شدن میلیاردها دلار از دارایی‌های مسدود شده ایران
+
+
+🔴لغو محاصره دریایی آمریکا و گشایش تنگه هرمز
+
+
+🔴خروج نیروهای آمریکایی از مجاورت بلافصل ایران
+
+
+🔴پس از این، طرفین ۳۰ روز فرصت خواهند داشت تا درباره مسئله هسته‌ای به توافق برسند.
+
+
+🔴این ۳۰ روز با توافق طرفین قابل تمدید است.
+
+
+🔴در طول این سی روز، عبور و مرور از طریق تنگه تسهیل خواهد شد.
+
+
+🔴به گفته ایران، مدیریت تنگه هرمز موضوعی ایرانی-عمانی خواهد بود و در حال مذاکره با مسقط است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122191
+
+<div align="center">
+  <a href="telegram/content/alonews_122191_1779572679.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون اول ترامپ، بعد جلسه درباره ایران کاخ سفید رو ترک کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122190
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+املاکی از تسلیم بی قید و شرط رسید به تنگه هرمز به زودی باز میشه
+
+[@AloTweet]
+</div>
+
+## alonews — post 122189
+
+<div align="center">
+  <a href="telegram/content/alonews_122189_1779572679.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چه احساسی دارید؟
+
+
+✅@AloNews
+</div>
+
+## alonews — post 122188
+
+<div align="center">
+  <a href="telegram/content/alonews_122188_1779572680.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مارک لوین:
+«تاریخ نشون داده که بهترین زمان برای صلح، بعد از شکست یا تسلیم دشمنه.»
+
+
+✅@AloNews
+</div>
+
+## alonews — post 122187
+
+<div align="center">
+  <a href="telegram/content/alonews_122187_1779572681.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی:
+تنگه اگه باز بشه جواب اون مردمی که ۸۰روز اومدن تو خیابون رو کی میخواد بده؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122186
+
+<div align="center">
+  <a href="telegram/content/alonews_122186_1779572681.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تتر هم اکنون به 169000تومان رسید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/03 00:15
 ---
 
