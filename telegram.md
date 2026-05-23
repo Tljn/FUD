@@ -7,6 +7,687 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/03 03:17
+---
+
+## VahidOOnLine — post 241837
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241837_1779580047.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه، هشدار داد هر توافقی که به بقای حکومت ایران و بازگشت تدریجی نفوذ منطقه‌ای آن منجر شود، می‌تواند خاورمیانه را بی‌ثبات‌تر کرده و گروه‌های نیابتی تهران را تقویت کند.
+او در شبکه ایکس نوشت اگر در منطقه چنین برداشت شود که توافق با حکومت ایران به این رژیم اجازه می‌دهد زنده بماند و قدرتمندتر شود، «بنزین روی آتش درگیری‌ها در لبنان و عراق ریخته‌ایم» و حزب‌الله لبنان و شبه‌نظامیان شیعه در عراق به‌شدت تقویت خواهند شد.
+گراهام با تاکید بر اینکه ادامه فشار بر تهران برای مهار گروه‌های نیابتی آن ضروری است، هشدار داد جمهوری اسلامی ممکن است از مذاکرات برای تجدید قوا استفاده کند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241836
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241836_1779580048.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش «سی‌ان‌ان»، یک مقام مجری قانون اعلام کرد که در پی تیراندازی عصر شنبه در تقاطع خیابان هفدهم و پنسیلوانیا در مجاورت کاخ سفید، دو نفر در جریان مواجهه با ماموران سرویس مخفی آمریکا هدف گلوله قرار گرفته‌اند؛ این حادثه که منجر به برقراری وضعیت قرنطینه امنیتی و واکنش فوری نیروهای امنیتی، ماموران اف‌بی‌آی و استقرار نیروهای مسلح به سلاح‌های تهاجمی در چمن شمالی شد، پس از پناه گرفتن اضطراری خبرنگاران در اتاق نشست مطبوعاتی و با لغو قرنطینه در ساعت ۶:۴۵ عصر به وقت محلی خاتمه یافت. کاش پاتل، رئیس اف‌بی‌آی، با تایید حضور مأموران این سازمان در صحنه از پشتیبانی کامل از سرویس مخفی خبر داد؛ این در حالی است که در زمان وقوع حادثه دونالد ترامپ در محل اقامت خود در کاخ سفید حضور داشت و این تیراندازی دقیقا کمتر از یک ماه پس از حادثه سوءقصد نافرجام کول توماس آلن به ترامپ در جریان شام انجمن خبرنگاران، بار دیگر واشنگتن را در وضعیت هشدار بالایی قرار داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241835
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241835_1779580049.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد پلیس آمریکا درباره تیراندازی در اطراف کاخ سفید گفت: یک مظنون به ایست بازرسی اطراف کاخ سفید نزدیک شد و به سوی ماموران شلیک کرد، اما او هدف گلوله قرار گرفت و به بیمارستان منتقل شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تصاویر منتشر شده توسط خبرنگار شبکه «سی‌ان‌ان»، لحظات شلیک گلوله در نزدیکی کاخ سفید در واشنگتن دی‌سی را نشان می‌دهد. بر اساس گزارش‌های اولیه، دو نفر در ضلع غربی کاخ سفید و در نزدیکی «گیت ۱۷» با سلاح کمری به سمت ساختمان کاخ سفید شلیک کرد. در پی این اقدام، ماموران سرویس مخفی ایالات متحده بلافاصله وارد عمل شدند، به این تیراندازی پاسخ دادند و ضاربان را هدف قرار داده‌اند و مهار کردند.
+گزارش‌ها حاکی از آن است که در مجموع حدود ۳۰ گلوله در خارج از محوطه شلیک شده است. ماموران سرویس مخفی با حمل سلاح‌های خود در محوطه چمن شمالی مستقر شدند و خبرنگارانی را که در این بخش حضور داشتند، به سمت اتاق کنفرانس مطبوعاتی هدایت کردند تا پناه بگیرند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241833
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241833_1779580049.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرنگار «فاکس‌نیوز» در گزارشی درباره تیراندازی در نزدیکی کاخ سفید اعلام کرد که یک فرد مسلح در ضلع غربی کاخ سفید و در نزدیکی «گیت ۱۷» با سلاح کمری به سمت ساختمان کاخ سفید شلیک کرده است. به گفته او، این فرد مسلح سه بار اقدام به تیراندازی کرد و در پی آن، ماموران سرویس مخفی ایالات متحده به این تیراندازی پاسخ دادند و ضارب را هدف قرار داده و مهار کردند. هنوز آماری از تعداد دقیق گلوله‌های شلیک‌شده از سوی مأموران اعلام نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241832
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241832_1779580050.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رئیس اف‌بی‌آی اعلام کرد ماموران این سازمان به همراه نیروهای سرویس مخفی در پی تیراندازی در نزدیکی کاخ سفید، در محل حادثه حضور یافته‌اند؛ همزمان خبرگزاری فرانسه نیز از حضور گسترده پلیس و نیروهای امنیتی در اطراف این عمارت خبر داد و گزارش داد که ماموران امنیتی تمام مسیرهای منتهی به کاخ سفید را مسدود کرده و نیروهای گارد ملی از ورود خبرنگاران به منطقه جلوگیری می‌کنند. این تیراندازی در شرایطی رخ داد که دونالد ترامپ، رئیس‌جمهوری آمریکا، برای رایزنی درباره توافق با ایران در محل اقامت خود در کاخ سفید حضور داشت و به دنبال شنیده شدن صدای شلیک ده‌ها گلوله، خبرنگاران مستقر در چمن شمالی با دستور اضطراری نیروهای امنیتی به داخل اتاق نشست مطبوعاتی کاخ سفید منتقل شدند و پناه گرفتند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241831
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در برنامه‌ای در صداوسیما، زنی که ادعا می‌کند همسایه بیت علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی معرفی شد، در پاسخ به پرسشی درباره وضعیت محل اقامت او گفت: «از پشت‌بام که نگاه می‌کنی، تلی از خاک می‌بینی.»
+این زن در ادامه تاکید کرد: «منطقه آقا خیلی سرسبز بود، اما حالا تبدیل به بیابان شده است؛ بیابانی بدون درخت و بدون سبزه که فقط خاک در آن دیده می‌شود.» مجری برنامه نیز در واکنش به این توضیحات اشاره کرد که با این توصیف، کاملا مشخص است چه اتفاقی برای ساختمان رخ داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241830
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241830_1779580051.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی سرویس مخفی آمریکا در بیانیه‌ای به سی‌بی‌اس نیوز گفت این نهاد از «گزارش‌هایی درباره شلیک گلوله در نزدیکی خیابان هفدهم و خیابان پنسیلوانیا شمال غربی» آگاه است و «در حال بررسی و تایید این اطلاعات با نیروهای مستقر در محل» است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241828
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241828_1779580051.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی سرویس مخفی آمریکا در بیانیه‌ای به سی‌بی‌اس نیوز گفت این نهاد از «گزارش‌هایی درباره شلیک گلوله در نزدیکی خیابان هفدهم و خیابان پنسیلوانیا شمال غربی» آگاه است و «در حال بررسی و تایید این اطلاعات با نیروهای مستقر در محل» است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241825
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241825_1779580052.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️«سی‌ان‌ان» عصر شنبه، دوم خردادماه، گزارش داد، شنیده شدن صدای ده‌ها شلیک احتمالی گلوله در نزدیکی کاخ سفید، منجر به برقراری وضعیت قرنطینه و واکنش سریع سرویس مخفی آمریکا شد. یک مقام سرویس مخفی به سی‌ان‌ان گفت که این آژانس در حال بررسی گزارش‌های مربوط به شلیک گلوله در تقاطع خیابان هفدهم و خیابان پنسیلوانیا در مجاورت محوطه کاخ سفید است؛ در همین حال، ماموران سرویس مخفی با فریادهای «بشینید» و هشدار درباره تیراندازی، خبرنگاران مستقر در چمن شمالی را به سرعت به داخل اتاق کنفرانس مطبوعاتی هدایت کرده و از آن‌ها خواستند در مکان‌های خود پناه بگیرند. به گفته یکی از خبرنگاران، صداها از سمت ساختمان اداری اجرایی آیزنهاور به گوش رسیده است و در پی این حادثه، ماموران سرویس مخفی مسلح به سلاح‌های تهاجمی در چمن شمالی مستقر شده و ورودی‌های اتاق کنفرانس مطبوعاتی کاخ سفید را مسدود کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241824
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241824_1779580053.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی دریافت‌شده نشان می‌دهد جمعی از ایرانیان مقیم هلیفکس کانادا، روز شنبه دوم خرداد، در همبستگی با انقلاب شیر و خورشید تجمع اعتراضی در سکوت برگزار کردند. آن‌ها با این سکوت تلاش کردند درباره قطعی اینترنت در ایران اطلاع‌رسانی کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241823
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241823_1779580054.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش «ای‌بی‌سی نیوز»، سرویس مخفی آمریکا عصر شنبه، دوم خردادماه، در پی شنیده شدن صدایی شبیه به شلیک گلوله، چمن شمالی کاخ سفید را به طور کامل تخلیه و پاکسازی کرد. بر اساس این گزارش، از خبرنگاران مستقر در محل خواسته شد تا به سرعت به سمت اتاق نشست مطبوعاتی کاخ سفید دویده و پناه بگیرند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12281
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیرانداز به هلاکت رسید و فرد حاضر زنده و هوشیار است. هر دو به بیمارستان منتقل شده‌اند.
+@withyashar
+</div>
+
+## WithYashar — post 12280
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12280_1779580055.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرویس مخفی پس از شروع تیراندازی در سمت غرب کاخ سفید به یک مظنون مسلح شلیک کرد، به گزارش فاکس نیوز.
+
+یک عابر پیاده در این حادثه زخمی شد و تأیید شده است که رئیس‌جمهور ترامپ در امنیت است.
+@withyashar
+</div>
+
+## WithYashar — post 12279
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بی‌بی‌اس نیوز گزارش داد: در تیراندازی نزدیک کاخ سفید دو نفر زخمی شدند که یکی از آن‌ها مظنون است.
+@withyashar
+</div>
+
+## WithYashar — post 12278
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12278_1779580056.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar تیرندازی از دیدی دیگر
+</div>
+
+## WithYashar — post 12277
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12277_1779580058.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صحنه هایی از خارج از کاخ سفید.
+@withyashar
+</div>
+
+## WithYashar — post 12276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیر اف‌بی‌آی کاش پاتل:
+
+اف‌بی‌آی در محل حاضر است و از سرویس مخفی که به شلیک‌های نزدیک محوطه کاخ سفید پاسخ می‌دهد، حمایت می‌کند, ما به محض امکان، به‌روزرسانی‌های لازم را به عموم ارائه خواهیم داد
+@withyashar
+</div>
+
+## WithYashar — post 12275
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12275_1779580058.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## mwarmonitor — post 9603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝عجب شاهکار کمدی-استراتژیکی! آقای «کله زرد» بعد از این همه خط‌ونشان و هزینه‌های نجومی روی دست مالیات‌دهندگان آمریکایی، عملاً خاورمیانه را شخم زد تا دوباره همه‌چیز را برگرداند به پله اول؛ منتها با چند صفر اضافه‌تر در حساب بانکی تهران. 🔸این بیانیه هالیوودی…
+</div>
+
+## mwarmonitor — post 9602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹یک مقام سرویس مخفی به CNN گفته است که این نهاد در حال بررسی گزارش‌هایی درباره تیراندازی در تقاطع خیابان ۱۷ و خیابان پنسیلوانیا در شمال‌غرب واشینگتن است؛ محلی که درست در خارج از مجموعه کاخ سفید قرار دارد. @mwarmonitor
+</div>
+
+## mwarmonitor — post 9601
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9601_1779580060.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝بررسی کارنامه مذهبی که بقای خود را در گرو ترور، سرکوب و ویرانی می‌بیند، هیچ شکلی از تردید را باقی نمی‌گذارد. شیعه سانان رافضی که با بی‌رحمی تمام، اینترنت نود میلیون انسان را ماه‌ها قطع می‌کند، دستش به خون چهل و پنج هزار انسان بیگناه آلوده است و با شلیک موشک به چهار گوشه منطقه، امنیت خاورمیانه را به گروگان می‌گیرد، هرگز به کابل‌های ارتباطی جهان و ابزارهای پیوند بشریت رحم نخواهد کرد. این فرقه، نماد عینی دنائت و تهدیدی افسارگسیخته برای تمدن بشری است؛ تفکری مخرب و ذاتاً جنایت‌کار که اگر به سلاح کشتار جمعی و بمب اتم دست یابد، حتی برای نابودی خود و اطرافیانش نیز درنگ نخواهد کرد. دنیا با جانیانی روبه‌روست که منطقشان چیزی جز قطع شریان‌های حیاتی جامعه جهانی و بازگرداندن انسان‌ها به تاریکی و انزوا نیست.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342173
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342173_1779580062.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: FOX News' Chad Pergram reports on shots fired near the White House, says Secret Service took down shooter.
+</div>
+
+## pm_afshaa — post 91352
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91352_1779580063.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ان‌بی‌سی نیوز: هم‌اکنون بیرون کاخ سفید حدود 20 تا 30 تا تیر شلیک شده! سرویس مخفی آمریکا خبرنگارهایی که تو محوطه کاخ سفید بودن رو جمع کرده و برده داخل اتاق کنفرانس خبری تا ازشون محافطت کنه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom…
+</div>
+
+## pm_afshaa — post 91351
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91351_1779580064.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ان‌بی‌سی نیوز: هم‌اکنون بیرون کاخ سفید حدود 20 تا 30 تا تیر شلیک شده! سرویس مخفی آمریکا خبرنگارهایی که تو محوطه کاخ سفید بودن رو جمع کرده و برده داخل اتاق کنفرانس خبری تا ازشون محافطت کنه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom…
+</div>
+
+## IranIntlTV — post 338676
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338676_1779580064.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه، هشدار داد هر توافقی که به بقای حکومت ایران و بازگشت تدریجی نفوذ منطقه‌ای آن منجر شود، می‌تواند خاورمیانه را بی‌ثبات‌تر کرده و گروه‌های نیابتی تهران را تقویت کند.
+او در شبکه ایکس نوشت اگر در منطقه چنین برداشت شود که توافق با حکومت ایران به این رژیم اجازه می‌دهد زنده بماند و قدرتمندتر شود، «بنزین روی آتش درگیری‌ها در لبنان و عراق ریخته‌ایم» و حزب‌الله لبنان و شبه‌نظامیان شیعه در عراق به‌شدت تقویت خواهند شد.
+گراهام با تاکید بر اینکه ادامه فشار بر تهران برای مهار گروه‌های نیابتی آن ضروری است، هشدار داد جمهوری اسلامی ممکن است از مذاکرات برای تجدید قوا استفاده کند.
+
+https://iranintl.com/202605237902
+</div>
+
+## IranIntlTV — post 338675
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338675_1779580065.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد پلیس آمریکا درباره تیراندازی در اطراف کاخ سفید گفت: یک مظنون به ایست بازرسی اطراف کاخ سفید نزدیک شد و به سوی ماموران شلیک کرد، اما او هدف گلوله قرار گرفت و به بیمارستان منتقل شد.
+https://iranintl.com/202605234529
+</div>
+
+## IranIntlTV — post 338674
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338674_1779580066.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی سرویس مخفی آمریکا در بیانیه‌ای به سی‌بی‌اس نیوز گفت این نهاد از «گزارش‌هایی درباره شلیک گلوله در نزدیکی خیابان هفدهم و خیابان پنسیلوانیا شمال غربی» آگاه است و «در حال بررسی و تایید این اطلاعات با نیروهای مستقر در محل» است.
+https://iranintl.com/202605237115
+</div>
+
+## IranIntlTV — post 338673
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338673_1779580066.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی سرویس مخفی آمریکا در بیانیه‌ای به سی‌بی‌اس نیوز گفت این نهاد از «گزارش‌هایی درباره شلیک گلوله در نزدیکی خیابان هفدهم و خیابان پنسیلوانیا شمال غربی» آگاه است و «در حال بررسی و تایید این اطلاعات با نیروهای مستقر در محل» است.
+https://iranintl.com/202605237115
+</div>
+
+## IranIntlTV — post 338672
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338672_1779580067.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی سرویس مخفی آمریکا در بیانیه‌ای به سی‌بی‌اس نیوز گفت این نهاد از «گزارش‌هایی درباره شلیک گلوله در نزدیکی خیابان هفدهم و خیابان پنسیلوانیا شمال غربی» آگاه است و «در حال بررسی و تایید این اطلاعات با نیروهای مستقر در محل» است.
+https://iranintl.com/202605237115
+</div>
+
+## IranIntlTV — post 338671
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338671_1779580068.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان ساکن شهر تورین ایتالیا برای بیستمین هفته متوالی با برگزاری تجمعی اعتراضی، مخالفت خود را با سرکوب و نقض حقوق بشر در جمهوری اسلامی اعلام کردند.
+
+گزارش صدف باغبانی، خبرنگار ایران‌اینترنشنال و گفت‌وگوی او با دو نفر از شرکت‌کنندگان
+@iranintltv
+</div>
+
+## IranIntlTV — post 338670
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338670_1779580069.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی دریافت‌شده نشان می‌دهد جمعی از ایرانیان مقیم هلیفکس کانادا، روز شنبه دوم خرداد، در همبستگی با انقلاب شیر و خورشید تجمع اعتراضی در سکوت برگزار کردند. آن‌ها با این سکوت تلاش کردند درباره قطعی اینترنت در ایران اطلاع‌رسانی کنند.
+</div>
+
+## ManotoTV — post 105789
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105789_1779580071.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از سن‌فرانسیسکو:
+«می‌گفت با شنیدن صدای شما احساس می‌کنم تو ایرانم…
+و از سال‌هایی گفت که با برنامه‌های منوتو خندیده، گریه کرده و زندگی کرده بود.»
+</div>
+
+## ManotoTV — post 105788
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105788_1779580072.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از خارج ایران:
+«می‌گفت بسته شدن منوتو برای خیلی‌ها دردناک بود…
+و از همراهی و امیدی گفت که این سال‌ها از برنامه‌ها گرفته بودند.
+</div>
+
+## FarsiVOA — post 218482
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218482_1779580074.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ویدیوی صدای آمریکا از حضور نیروهای امنیتی پس از گزارش‌ها از تیراندازی شنبه عصر در نزدیکی کاخ سفید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نیروهای گارد ملی و دیگر ماموران امنیتی شنبه عصر و در پی گزارش‌ها از تیراندازی در اطراف کاخ سفید، در محل استقرار یافتند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خط قرمز جدید بغداد: دولت علی الزیدی به دنبال انحلال شبه‌نظامیان وابسته به جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218478
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش‌ها از تیراندازی در نزدیکی کاخ سفید
+
+▪️رسانه‌های آمریکایی از گزارش‌های مربوط به تیراندازی احتمالی در عصر شنبه در نزدیکی چمن شمالی کاخ سفید خبر دادند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8153104.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14809
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14809_1779580075.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لیندزی گراهام، سناتور جمهوری‌خواه،
+
+💢هشدار داد هر توافقی که به بقای حکومت ایران و بازگشت تدریجی نفوذ منطقه‌ای آن منجر شود، می‌تواند خاورمیانه را بی‌ثبات‌تر کرده و گروه‌های نیابتی تهران را تقویت کند.
+
+💢او در شبکه ایکس نوشت اگر در منطقه چنین برداشت شود که توافق با حکومت ایران به این رژیم اجازه می‌دهد زنده بماند و قدرتمندتر شود، «بنزین روی آتش درگیری‌ها در لبنان و عراق ریخته‌ایم» و حزب‌الله لبنان و شبه‌نظامیان شیعه در عراق به‌شدت تقویت خواهند شد.
+
+💢گراهام با تاکید بر اینکه ادامه فشار بر تهران برای مهار گروه‌های نیابتی آن ضروری است، هشدار داد جمهوری اسلامی ممکن است از مذاکرات برای تجدید قوا استفاده کند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14808
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14808_1779580075.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢همزمان با وقایع امشب روسیه هم با موشک اورشنیک مجهز به کلاهک خوشه ای حمله کرده به کی یف اوکراین
+
+ویدئویی لحظه اصابت موشک بالستیک میان‌برد «اورشنیک» روسیه به کی‌یف.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14807
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14807_1779580078.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری | گزارش تیراندازی در اطراف کاخ سفید شبکه CBS گزارش داده صدای تیراندازی در اطراف کاخ سفید شنیده شده است. بر اساس گزارش اولیه: ▪️ سرویس مخفی آمریکا از خبرنگاران حاضر در ورودی کاخ سفید خواسته فوراً به اتاق توجیه خبری منتقل شوند ▪️ هنوز جزئیاتی درباره…
+</div>
+
+## Persian_Trend_Official — post 14806
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14806_1779580079.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️درگذشت دیپلمات جمهوری آذربایجان در سانحه رانندگی در اتوبان جلفا-تبریز 💢وزارت امور خارجه جمهوری آذربایجان در فضای مجازی از درگذشت دیپلمات خود در شهر تبریز بر اثر تصادف خبر داد. 💢رامیل رضا اوغلو عمرانوف، کنسول جمهوری آذربایجان در جمهوری اسلامی ایران در شهر…
+</div>
+
+## Persian_Trend_Official — post 14805
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری | گزارش تیراندازی در اطراف کاخ سفید شبکه CBS گزارش داده صدای تیراندازی در اطراف کاخ سفید شنیده شده است. بر اساس گزارش اولیه: ▪️ سرویس مخفی آمریکا از خبرنگاران حاضر در ورودی کاخ سفید خواسته فوراً به اتاق توجیه خبری منتقل شوند ▪️ هنوز جزئیاتی درباره…
+</div>
+
+## Persian_Trend_Official — post 14804
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14804_1779580079.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢مدیر اف‌بی‌آی، کش پاتل:
+
+💢اف‌بی‌آی در محل حاضر است و در حال پشتیبانی از سرویس مخفی در واکنش به گزارش تیراندازی در نزدیکی محوطه کاخ سفید است .
+
+هر زمان امکان داشته باشد، اطلاعات جدید را به اطلاع عموم خواهیم رساند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14803
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14803_1779580080.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️🇺🇸 سرویس مخفی ایالات متحده:
+
+ما از گزارش‌هایی مبنی بر شلیک تیر در نزدیکی خیابان هفدهم و خیابان پنسیلوانیا در شمال غربی آگاهیم و در حال تأیید این اطلاعات با پرسنل حاضر در محل هستیم. اطلاعات بیشتری به محض در دسترس قرار گرفتن ارائه خواهد شد.
+</div>
+
+## Persian_Trend_Official — post 14802
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14802_1779580080.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری | گزارش تیراندازی در اطراف کاخ سفید شبکه CBS گزارش داده صدای تیراندازی در اطراف کاخ سفید شنیده شده است. بر اساس گزارش اولیه: ▪️ سرویس مخفی آمریکا از خبرنگاران حاضر در ورودی کاخ سفید خواسته فوراً به اتاق توجیه خبری منتقل شوند ▪️ هنوز جزئیاتی درباره…
+</div>
+
+## Persian_Trend_Official — post 14801
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14801_1779580081.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢استوری یکی از شهروندان امریکا از صدای تیر اندازی در نزدیکی کاخ سفید
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14800
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14800_1779580082.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢ویدئویی دیگر از صدای ممتد شلیک در اطراف کاخ سفید
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 281909
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خبرنگاران در پی شنیده‌شدن تیراندازی احتمالی در نزدیکی کاخ سفید به پناهگاه رفتند
+
+چند خبرنگار حاضر در کاخ سفید از شنیده شدن صدای احتمالی تیراندازی در نزدیکی این ساختمان خبر داده‌اند.
+
+https://bbc.in/3PUAMWO
+@BBCPersian
+</div>
+
+## BBCPersian — post 281908
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پایان پوشش زنده روز شنبه
+
+در اینجا پوشش زنده تحولات ایران و آمریکا در روز شنبه دوم خرداد ۱۴۰۵ برابر با ۲۳ مه ۲۰۲۶ به پایان می‌رسد.
+
+https://bbc.in/4dtIPCY
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390056
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390056_1779580084.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 390055
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390055_1779580085.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A2
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 390054
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390054_1779580085.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390053
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390053_1779580085.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین آپدیت از نمودار محبوبیت ترامپ:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390052
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جدی مملکت عالیه. در ۴-۵ ماه اخیر هرکس اندازه بضاعت خودش کیر شد. هیچ دسته یا گروهی رو نمیتونی پیدا کنی که کیر نشده باشه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390051
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شما اگه امیدوار باشی ایران بهترین جا برای کیر شدنه…
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390050
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏می‌رفتی عروسی پسرت به قر می‌دادی جای این کسشرا!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390049
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390049_1779580086.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ اسرائیل:
+ایرانِ آزاد 🦁☀️
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105789
+
+<div align="center">
+  <a href="telegram/content/manototv_105789_1779580086.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از سن‌فرانسیسکو:
+«می‌گفت با شنیدن صدای شما احساس می‌کنم تو ایرانم…
+و از سال‌هایی گفت که با برنامه‌های منوتو خندیده، گریه کرده و زندگی کرده بود.»
+</div>
+
+## manototv — post 105788
+
+<div align="center">
+  <a href="telegram/content/manototv_105788_1779580088.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از خارج ایران:
+«می‌گفت بسته شدن منوتو برای خیلی‌ها دردناک بود…
+و از همراهی و امیدی گفت که این سال‌ها از برنامه‌ها گرفته بودند.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/03 02:16
 ---
 
