@@ -7,6 +7,661 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 02:30
+---
+
+## VahidOOnLine — post 242195
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242195_1779750043.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دانشجو از حمله آمریکا و اسرائیل به جنوب جزیره لارک در سحرگاه گذشته به وقت محلی خبر داد. این گزارش به نقل از منابع محلی نوشت نام‌های سه نفر از کشته‌شدگان عباس اسلامی، قدرت زرنگاری و عبدالرضا گلزاری است، اما تعداد کشته‌شدگان هنوز مشخص نیست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242194
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242194_1779750044.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ به گزارش اسرائیل هیوم، دخالت قطر در مذاکرات تصادفی نیست و از چند هفته پیش آغاز شده است. براساس این گزارش، سفر روز دوشنبه عباس عراقچی، وزیر خارجه جمهوری اسلامی، به همراه عبدالناصر همتی، رئیس بانک مرکزی ایران، نشان‌دهنده نقش عمیق قطر، به‌ویژه در حوزه اقتصادی، است؛ اما ظاهرا این نقش فراتر از میانجی‌گری در مذاکرات می‌رود.
+دو منبع دیپلماتیک در خلیج فارس و یک مقام اطلاعاتی غربی که با «اسرائیل هیوم» گفت‌وگو کردند، گفتند قطر در هفته‌های اخیر کمک مالی در اختیار رژیم ایران قرار داده است. به نوشته اسرائیل هیوم، خزانه جمهوری اسلامی به‌دلیل محاصره دریایی آمریکا در آستانه ورشکستگی قرار دارد و حکومت، علاوه بر ناتوانی در پرداخت حقوق کارکنان بخش دولتی و دشواری در تامین هزینه واردات کالا و مواد غذایی، با بحران مالی در صندوق‌های سپاه پاسداران نیز روبه‌رو شده است.
+به گفته منابع، همین فشارها باعث شده جمهوری اسلامی در یادداشت تفاهم کنونی برخی امتیازها را بپذیرد.
+منابع یادشده گفتند قطر پس از تماس‌هایی که در هفته‌های اخیر انجام شد، مبالغ قابل توجهی به حکومت ایران منتقل کرده است. به گفته آن‌ها، تماس‌های دوحه و تهران پس از آتش‌بس بیش از یک ماه پیش گسترش یافت و هدف اصلی قطر جلوگیری از حمله دوباره ایران به این کشور بود؛ حمله‌ای که در جریان جنگ رخ داده بود.
+بر اساس این گزارش، حکومت ایران خواستار دسترسی به بخشی از سپرده‌های خود در قطر شده و قرار بوده بخشی از این پرداخت‌ها به‌عنوان هزینه عبور نفتکش‌ها از تنگه هرمز پنهان شود.
+یکی از منابع گفت دو کشور در حال انجام مذاکرات محرمانه درباره توافقی گسترده‌تر هستند.
+یکی از مقام‌ها گفت در جریان سفر عراقچی و همتی، تماس‌هایی از دوحه با واشینگتن برقرار شد. استیو ویتکاف و جرد کوشنر، نمایندگان مسئول مذاکرات، روابط دیپلماتیک و اقتصادی بسیار نزدیکی با قطر دارند و به گفته این مقام، در طرف دیگر خط تماس حضور داشتند.
+به گفته منبعی آگاه از روند مذاکرات، سه محور اصلی اختلاف وجود دارد، از جمله ۱۲ میلیارد دلار دارایی مسدودشده در قطر، که تهران بلافاصله پس از توافق خواستار دستیابی به آن است.
+دومین محور اختلاف، خودداری تهران از ارائه تعهد کتبی درباره اورانیوم غنی‌شده است و سومین مورد نیز امتناع تهران از پرداختن به موضوع ادامه غنی‌سازی است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242193
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242193_1779750044.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بامداد سه‌شنبه، پنجم خردادماه، علی هاشم، خبرنگار الجزیره، به نقل از منابع خود از وقوع یک درگیری شدید نظامی در جنوب ایران خبر داد و مدعی شد: «یک منبع ایرانی به من گفت صدای تیراندازی سنگینی که در نزدیکی بندرعباس شنیده شد، پس از آن آغاز شد که سپاه پاسداران یک شناور را در دریا هدف قرار داد و در پی آن، جنگنده‌های آمریکایی قایق‌های تندروی نیروی دریایی سپاه را در خلیج [فارس] بمباران کردند. به گفته این منبع، چندین تن از پرسنل نیروی دریایی سپاه پاسداران در این حمله کشته شدند».
+همزمان خبرگزاری مهر با انتشار گزارشی نوشت که «اوضاع در بندرعباس کاملا عادی است و صدای انفجار مربوط به منتهی‌الیه شرق این استان بوده است». براساس گزارش‌های منتشر شده، بامداد سه‌شنبه، صدای چند انفجار علاوه بر هرمزگان، در اسفهان و بابلسر نیز شنیده شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242192
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242192_1779750045.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث‌سوشال نوشت: «اورانیوم غنی‌شده (غبار هسته‌ای!) یا فورا به آمریکا تحویل داده خواهد شد تا در ایالات‌متحده نابود شود، یا ترجیحا با همکاری و هماهنگی با جمهوری اسلامی ایران، در همان محل یا در مکانی قابل قبول دیگر نابود خواهد شد.»
+ترامپ گفت در صورت نابودی اورانیوم غنی‌شده در مکانی غیر از آمریکا، «کمیسیون انرژی اتمی»، یا نهاد معادل آن، به عنوان شاهد بر این فرایند نظارت خواهد داشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242191
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242191_1779750045.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، با انتشار پیامی در شبکه اجتماعی «تروث سوشال»نوشت: «اورانیوم غنی‌شده (گرد‌وغبار هسته‌ای) یا باید فورا به ایالات متحده تحویل داده شود تا به آمریکا منتقل و نابود گردد، یا اینکه ترجیحا در بستر همکاری و هماهنگی با جمهوری اسلامی، در همان محل یا در مکان قابل‌قبول دیگری، در حضور و با نظارت کمیسیون انرژی اتمی یا نهاد معادل آن نابود شود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12505
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نفت ۹۷$
+@withyashar
+</div>
+
+## WithYashar — post 12504
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری اتاق جنگ : کار کانفیگ فروشا بود نت وصل نشه 🤣
+@withyashar
+</div>
+
+## WithYashar — post 12503
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتباط زنده صدا و سیما همین الان
+</div>
+
+## WithYashar — post 12502
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12502_1779750045.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## WithYashar — post 12501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 14 اسرائیل: "سلام خامنه‌ای کوچیکه"
+@withyashar 😈
+</div>
+
+## WithYashar — post 12500
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سناتور لیندزی گراهام: چه مسیحی انجیلی باشید و چه نباشید، اسرائیل برای آمریکا یک معامله بزرگ است.
+اگر ارتش اسرائیل، موساد و شین بت فردا ناپدید شوند، ما کنترل منطقه را از دست خواهیم داد.
+پولی که به اسرائیل می‌دهیم، چندین برابر آن را از نظر امنیتی پس می‌گیریم.
+
+اگر اسرائیل می‌خواست همه فلسطینی‌ها را بکشد، می‌توانست. از سوی دیگر، حماس می‌خواهد همه اسرائیلی‌ها را بکشد، اما نمی‌تواند.
+حزب‌الله اگر می‌توانست، همه اسرائیلی‌ها را می‌کشت. و هیچ‌کس در اسرائیل نمی‌خواهد همه مردم لبنان را بکشد
+@withyashar
+</div>
+
+## WithYashar — post 12499
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی:
+
+«یکی از نماینده‌های پارلمان حتی بهم گفت فکر نمی‌کنه ایرانی‌ها آماده دموکراسی باشن.
+ایرانی‌ها فقط آماده دموکراسی نیستن؛ ۴۰ هزار نفر جونشون رو برای رسیدن بهش دادن و من نمی‌ذارم این فداکاری بی‌نتیجه بمونه.
+چه اروپا کنار ما بایسته چه نه، چه خبرنگارها کارشون رو درست انجام بدن چه نه، چه سیاستمدارها شجاعت اقدام داشته باشن چه نه، من برای مردمم و کشورم می‌جنگم.
+حتی اگر مجبور باشیم تنهایی این مسیر رو بریم، می‌جنگیم تا ایران آزاد بشه.»
+@withyashar
+</div>
+
+## WithYashar — post 12498
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشها میگن که اپ های ، روبیکا و بله، سروس و بلو بانک از دسترس خارج شدند
+@withyashar
+</div>
+
+## WithYashar — post 12497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید خبرنگار آکسیوس : چرا مهمه؟ آمریکا داره موضعش رو کمی نرم‌تر می‌کنه
+
+- احتمالاً نسبت به قبل انعطاف بیشتری درباره اورانیوم غنی‌شده ایران نشون میده و حتی تا حدی به خواسته ایران نزدیک‌تر شده
+@withyashar
+</div>
+
+## WithYashar — post 12496
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ که به اسپانیایی واژه خداحافظ را نوشته که بسیار طعنه آمیز است و معنیه «بری دیگه برنگردی» را میدهد. @withyashar
+</div>
+
+## WithYashar — post 12495
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12495_1779750047.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به نظر می رسد 2 آتش سوزی در جزیره خارک ایران رخ داده است.
+
+جزیره خارک بندری برای صادرات 90 درصد فرآورده های نفتی ایران است.
+@withyashar
+</div>
+
+## mwarmonitor — post 9724
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9724_1779750048.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 شاهکار جدید دندان‌پزشکِ آقازاده چقدر دیدنی است؛ چنان با ذوق‌زدگی و حماقت از خاطره‌ی مسخره‌اش تعریف می‌کند که اگر خودش اعتراف نمی‌کرد، کسی متوجه نمی‌شد این موجودِ ذوق‌زده، بچه‌ی همان سردار تنگسیری است! شوخیِ استراتژیک و خنده‌دار این مشنگ به پدرش این بوده: «تبریک می‌گم، رئیس اوپک شدید و قیمت نفت را تعیین می‌کنید!» اما طنز سیاه و تحقیرآمیز روزگار اینجاست که پیش از آنکه قیمت نفت در دنیا تکانی بخورد، خودِ سردارِ توهمات دچار انفجار شد و کتلت شد! تلخیِ مضاعف این سیرک در استانداردهای دوگانه است؛ این جماعت با کمال وقاحت روبروی دوربین می‌نشینند، نیششان تا بناگوش باز است و به توهماتِ احمقانه‌ی خود می‌خندند، اما اگر یکی از معترضین یا مردم بدبخت در خیابان بابت همین اتفاقات ذره‌ای لبخند میزد، فوراً به جرم محاربه و اخلال، حکم اعدام برایش می‌بریدند. این ویدیو ویترین تمام‌عیار از سقوط، بلاهت و توهمات طبقه‌ای است که فکر می‌کردند اقتصاد جهان را هدایت می‌کنند، ولی در نهایت فقط مایه خنده و تحقیر شدند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9723
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«چرا این مهم است: به نظر می‌رسد در اینجا نوعی نرمش در موضع آمریکا درباره روش‌های از بین بردن ذخایر اورانیوم غنی‌شده وجود دارد و نوعی نزدیک شدن به موضع ایران دیده می‌شود.» باراک راوید @mwarmonitor
+</div>
+
+## mwarmonitor — post 9722
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ در شبکه اجتماعی Truth Social: «اورانیوم غنی‌شده (گرد هسته‌ای!) یا باید فوراً به ایالات متحده تحویل داده شود تا به کشور منتقل و نابود گردد، یا ترجیحاً با هماهنگی و همکاری جمهوری اسلامی ایران، همان‌جا در محل یا در مکانی دیگر که قابل قبول باشد، نابود…
+</div>
+
+## FoxNewsTwitter — post 342253
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342253_1779750049.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: Pope Leo is calling for robust regulations on artificial intelligence, warning the technology "hurts humanity." @BillMelugin_ reports.
+</div>
+
+## FoxNewsTwitter — post 342252
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342252_1779750051.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“The enriched uranium will either be immediately turned over to the United States... or destroyed in place.”
+
+President Trump says any remaining enriched uranium tied to Iran would be removed or eliminated under U.S. supervision, with atomic energy officials overseeing the process.
+
+The remarks come after Trump said any agreement with Iran would be “good and proper,” while sharply contrasting it with the Obama-era nuclear deal.
+</div>
+
+## pm_afshaa — post 91509
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری از سنتکام: نیروهای ایالات متحده امروز حملات دفاعی خود را در جنوب ایران انجام دادن تا از نیروهای ما در برابر تهدیدات ناشی از نیروهای ایرانی محافظت کنند. اهداف شامل سایت‌های پرتاب موشک و قایق‌های ایرانی در تلاش برای استقرار مین بودن. فرماندهی مرکزی آمریکا…
+</div>
+
+## pm_afshaa — post 91508
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری از سنتکام: نیروهای ایالات متحده امروز حملات دفاعی خود را در جنوب ایران انجام دادن تا از نیروهای ما در برابر تهدیدات ناشی از نیروهای ایرانی محافظت کنند.
+
+اهداف شامل سایت‌های پرتاب موشک و قایق‌های ایرانی در تلاش برای استقرار مین بودن. فرماندهی مرکزی آمریکا همچنان به دفاع از نیروهای ما در حین حرکت ادامه می‌دهد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91507
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91507_1779750052.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی وزارت خارجه قطر:
+اینکه گفتن قطر 12 میلیارد دلار از پول‌های بلوکه شده ایران رو قراره پرداخت کنه کاملا کذبه و از این خبرا نیست!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91506
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91506_1779750052.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ: اورانیوم غنی‌شده (غبار هسته‌ای) یا فوراً به آمریکا تحویل داده خواهد شد تا به خاک آمریکا برده شده و منهدم شود، یا ترجیحاً با هماهنگی و همکاری جمهوری اسلامی ایران، در همان مکان منهدم شود. یا در مکانی دیگر که مورد قبول باشه، با نظارت کمیسیون…
+</div>
+
+## pm_afshaa — post 91505
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91505_1779750053.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق تصاویر ماهواره‌ای 2 آتش سوزی در جزیره خارک ایران مشاهده شده اما رسانه‌های داخلی تا الان تکذیب کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75716
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دانشجو گزارش داد که در ["حمله سحرگاه شب گذشته ۴ خرداد"] در جنوب جزیره لارکآمریکا و اسرائیل به جنوب جزیره لارک، عباس اسلامی، قدرت زرنگاری و عبدالرضا گلزاری، نیروهای سپاه پاسداران کشته شدند.
+براساس این گزارش «تعداد دقیق کشته‌شدگان هنوز مشخص نشده است».
+@VahidOOnLine
+گویا این واقعه مربوط به اولین ساعت‌های دوشنبه است. یعنی حدود ۲۴ ساعت قبل
+ولی به نظر می‌رسه اون دسته از منابع جمهوری اسلامی که این خبر رو پخش کردند عمدا طوری گمراه‌کننده نوشتند که مربوط به صداهای شنیده شده الان به نظر بیاد.
+
+ولی این توییت مربوط به ساعت ۷ شب دوشنبه است که درباره همین خبر به نظر می‌رسه:
+دیشب یه قایق سپاه در حال مین ریزی در تنگه هرمز مورد اصابت یک جنگده که از خاک امارات بلند شده بود قرار میگیره و چهار نفر از نیروهای سپاه کشته میشن
+YourAnon_Zeus
+حالا این خبر درسته یا نه نمی‌دونم ولی مربوط به صداهای شنیده شده ساعتی پیش نیست. من هم ساعت سه چهار صبح دوشنبه پیام‌هایی داشتم از شنیده شدن صدا در قشم و بندرعباس
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 339000
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339000_1779750053.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دانشجو از حمله آمریکا و اسرائیل به جنوب جزیره لارک در سحرگاه گذشته به وقت محلی خبر داد. این گزارش به نقل از منابع محلی نوشت نام‌های سه نفر از کشته‌شدگان عباس اسلامی، قدرت زرنگاری و عبدالرضا گلزاری است، اما تعداد کشته‌شدگان هنوز مشخص نیست.
+https://iranintl.com/202605254753
+</div>
+
+## IranIntlTV — post 338999
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338999_1779750053.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز گزارش داد محمدباقر قالیباف و عباس عراقچی برای دیدار با نخست‌وزیر قطر وارد دوحه شده‌اند.
+
+به گزارش رویترز، این دیدار با هدف بررسی گزینه‌های دستیابی به توافق میان تهران و واشینگتن و پایان دادن به تنش‌ها، به‌ویژه درباره تنگه هرمز و اورانیوم با غنای بالا، انجام می‌شود.
+
+گفت‌وگو با میثم مهرانی، تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 338998
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338998_1779750055.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت روسای‌جمهوری پیشین آمریکا خواهان مذاکره بودند و تهران تهدید به اقدام نظامی می‌کرد، اما او جمهوری اسلامی را تهدید کرد و تهران به مذاکره تن داد.
+
+او همچنین تاکید کرد اجازه نخواهد داد ایران به سلاح هسته‌ای دست پیدا کند.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338997
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338997" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ بازگشت «برنامه» با «تریبون آزاد»
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338996
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338996_1779750057.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث‌سوشال نوشت: «اورانیوم غنی‌شده (غبار هسته‌ای!) یا فورا به آمریکا تحویل داده خواهد شد تا در ایالات‌متحده نابود شود، یا ترجیحا با همکاری و هماهنگی با جمهوری اسلامی ایران، در همان محل یا در مکانی قابل قبول دیگر نابود خواهد شد.»
+ترامپ گفت در صورت نابودی اورانیوم غنی‌شده در مکانی غیر از آمریکا، «کمیسیون انرژی اتمی»، یا نهاد معادل آن، به عنوان شاهد بر این فرایند نظارت خواهد داشت.
+https://iranintl.com/202605259577
+</div>
+
+## IranIntlTV — post 338995
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338995_1779750057.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «بسیاری از اختیارات پزشکیان گرفته شده او عملا نقش تعیین‌کننده‌ای در تصمیم‌گیری‌ها ندارد. پزشکیان عملا به تدارکاتچی سپاه تبدیل شده و حتی در جایگاه‌هایی مثل شورای عالی امنیت ملی هم بیشتر به ماشین امضای تصمیمات سپاه مثل جنایت دی‌ماه تبدیل شده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338994
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338994_1779750059.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با ادامه انتقاد برخی گروه‌های درون حکومت ایران به شیوه مذاکرات، بعضی نمایندگان مجلس می‌گویند نباید هیچ تعهدی پذیرفته شود که به تضعیف قدرت بازدارندگی منجر گردد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338993
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338993_1779750065.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «خروج قالیباف از مخفیگاه و سفرش به قطر و علنی شدن حضور علی عبداللهی، فرمانده قرارگاه خاتم الانبیا، پس از چند ماه می‌تواند نشانه امان‌نامه غیر رسمی و موقت ترامپ به فرماندهان سپاه برای رسیدن به یک توافق احتمالی باشد. اگر توافق نشود این امان‌نامه می تواند توسط نیروی هوایی اسراییل باطل شود.»
+@iranintltv
+</div>
+
+## DW_Farsi — post 125145
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125145_1779750066.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ترامپ: اورانیوم غنی‌شده باید بلافاصله به ایالات متحده تحویل داده شود
+
+دونالد ترامپ، رئیس جمهور آمریکا بامداد سه‌شنبه ۲۶ مه (۵ خرداد) با انتشار پستی در شبکه اجتماعی تروث سوشال، بار دیگر بر خواست واشنگتن مبنی بر تحویل اورانیوم با غنای بالای ایران تاکید کرد.
+
+او نوشت: «اورانیوم غنی‌شده (غبار هسته‌ای!) یا فورا به آمریکا تحویل داده می‌شود تا به کشورمان منتقل و نابود شود یا ترجیحا در همکاری و هماهنگی با جمهوری اسلامی ایران، در همان محل یا در مکانی دیگر که مورد قبول باشد، با نظارت کمیسیون انرژی اتمی یا نهاد معادل آن بر این فرآیند و رویداد، نابود شود.»
+
+این در حالی است که پیش از این مقامات ایرانی اعلام کرده بودند، "تهران هیچ تعهدی در پیش‌نویس توافق‌ اولیه با آمریکا در موضوع هسته‌ای و اورانیوم با غنای بالا به طرف مقابل نداده است."
+
+با این حال رویترز به نقل از یک مقام آگاه نوشته بود، محور اصلی مذاکرات محمدباقر قالیباف، مذاکره‌کننده ارشد ایران و عباس عراقچی، وزیر خارجه این کشور، در سفر به قطر موضوع تنگه هرمز و ذخایر اورانیوم بسیار غنی‌شده ایران خواهد بود.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15023
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️سخنگوی وزارت خارجه قطر:
+
+♦️گزارش‌هایی که مدعی می‌شوند قطر مبلغ ۱۲ میلیارد دلار به ایران «پیشنهاد» کرده تا تضمین‌کننده حصول توافق باشد، کاملاً بی‌اساس است و توسط طرف‌هایی منتشر می‌شود که به دنبال به شکست کشاندن توافق و تضعیف تلاش‌های دیپلماتیک با هدف کاهش تنش و تقویت ثبات در منطقه هستند.
+
+♦️تلاش‌های دیپلماتیک قطر که با هماهنگی شرکای منطقه‌ای انجام می‌شود، آشکار است و این روایت‌سازی‌ها چیزی جز تلاش‌های ناامیدانه‌ای برای خدشه‌دار کردن جایگاه قطر به‌عنوان یک بازیگر بین‌المللی قابل اعتماد در ایجاد صلح نیست./انتخاب
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15022
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15022_1779750067.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر ❤️
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15021
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15021_1779750067.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به نظر می‌رسد دو آتش‌سوزی در جزیره خارگ ایران رخ داده است. ⭕️جزیره خارگ بندری برای صادرات تا ۹۰٪ از محصولات نفتی ایران فراهم می‌کند 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15020
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/81sH1UrOPAM?feature=share
+</div>
+
+## Persian_Trend_Official — post 15019
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15019_1779750067.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇱‏۶۱ سال پیش، الی کوهن قهرمان افسانه‌ای  مردم اسرائیل در سوریه اعدام شد.
+
+اطلاعاتی که وی از طریق نفوذ در حکومت سوریه به دست آورد، نقش حیاتی در پیروزی اسرائیل در جنگ شش روزه داشت.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15018
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15018_1779750068.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به نظر می‌رسد دو آتش‌سوزی در جزیره خارگ ایران رخ داده است.
+
+⭕️جزیره خارگ بندری برای صادرات تا ۹۰٪ از محصولات نفتی ایران فراهم می‌کند
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20772
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20772_1779750068.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست کانال ۱۴ اسرائیل:
+
+سلام خامنه‌ای کوچیکه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20771
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20771_1779750068.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ:
+
+اورانیوم غنی شده( همان گرد و غبار هسته‌ای) یا باید فورأ به ایالات متحده تحویل داده شود تا به امریکا منتقل شود و نابود گردد، یا ترجیحأ با همکاری و هماهنگی جمهوری اسلامی ایران در همان محل یا در یک مکان مورد قبول دیگر نابود گردد در حالیکه کمیسیون انرژی اتمی یا نهاد معادل آن، شاهد و ناظر این روند باشد.
+پرزیدنت DJT
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282042
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل می‌گوید ساعتی پس از آنکه بنیامین نتانیاهو، نخست‌وزیر اسرائیل اعلام کرد اسرائیل در حال جنگ با حزب‌الله است، موجی از حملات هوایی را در سراسر لبنان آغاز کرده است. از جمله مناطقی که هدف این حملات قرار گرفته است «مواضع حزب‌الله در دره بقاع در شرق…
+</div>
+
+## Dirty_Kids — post 390203
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390203_1779750069.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعضی از رسانه‌های حکومتی نوشتن که حمله به خارک دیروز انجام شده [۴خرداد] و رسانه‌های روافض تحت فشار بودند که این قضیه رو رسانه‌ای نکنن تا خللی در مذاكرات ایجاد نشه،
+
+
+اگه حقیقت داشته باشه این داستان همزمان می‌شه با اون پست شیر AIبه‌باسن خدا در تروث‌سوشال که دیروز منتشر کرد و تصویری بود از حمله‌ی جنگنده‌ی آمریکا به قایق‌های تندروی روافض.
+
+در عین حال این داستان دیشب کسپر شدن اون چهار رأس سپاهی تروریست، ربطی به صدای انفجارهای امشب در بندر عباس نداره که احتمالاً اینو هم گفتن رسانه‌ای نکنید که مذاکرات بگا نره.
+
+در حکومت روافض همچنان و خوشبختانه سگ صاحبشو نمی‌شناسه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390202
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390202_1779750069.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فیلمی که به تازگی از اعتراضات دی ماه منتشر شده، یه پسر جوون به عنوان تک تیرانداز به مردم شلیک میکنه و مامانش کنارش داره آمار میده که کیو بزنه!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390201
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حیف شد شهید تنگسیری نیست. اگه الان بود، حسابی خط و نشون میکشید و دوباره بگا میرفت
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390200
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏تا این لحظه ۴ سپاهی کشته شدن.
+خوبه ولی کافی نیست. بجنبین که خیلی عقبیم بخدا.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390199
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390199_1779750071.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار الجزیره نوشت ابتدا سپاه پاسداران به یک کشتی در خلیج فارس حمله کرده و سپس جنگنده‌های آمریکایی قایق‌های نیروی دریایی سپاه را هدف حمله قرار دادند و چند نفرشان را کشتند.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390198
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 منابع عبری :
+عراقچی و قالیباف در دوحه در امنیت نخواهند بود.*
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122698
+
+<div align="center">
+  <img src="telegram/content/alonews_122698_1779750071.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داش فرامرز کف قیمت ایران وصلت می‌کنه حاجی 🤙
+
+فی ۱ گیگ = ۱۵۰ت
+فی ۲ گیگ = ۳۰۰ت
+فی ۳ گیگ = ۴۵۰ت
+🧡فی ۵ گیگ = ۷۵۰ت🧡
+فی ۱۰ گیگ = قابلتونو نداره ۱٫۵۰۰
+
+ایکی‌ثانیه تو جیباته جون داداش👇
+@VPNFaraMarzBot @VPNFaraMarzBot
+@VPNFaraMarzBot @VPNFaraMarzBot
+</div>
+
+## alonews — post 122697
+
+<div align="center">
+  <a href="telegram/content/alonews_122697_1779750072.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پدافند هوایی ایران سه پهپاد آمریکایی را در آسمان بندرعباس سرنگون کرد، از جمله یک پهپاد ام‌ویو-۹ای "ریپر".
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122696
+
+<div align="center">
+  <a href="telegram/content/alonews_122696_1779750072.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ هم اکنون: اورانیوم غنی‌شده (گرد هسته‌ای!) یا بلافاصله به ایالات متحده تحویل داده می‌شود تا به کشور بازگردانده شده و نابود شود یا ترجیحاً، با همکاری و هماهنگی جمهوری اسلامی ایران، در محل یا در مکان دیگری که مورد قبول باشد، با حضور کمیسیون انرژی اتمی…
+</div>
+
+## alonews — post 122694
+
+<div align="center">
+  <a href="telegram/content/alonews_122694_1779750072.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈در شرایطی که همه فکر میکنیم به فنا رفتیم امروز در ایران، تمام ظرفیت فروش لکسوس LX600 با قیمت 110 میلیارد تومن توی کمتر از 10 دقیقه به پایان رسید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 01:32
 ---
 
