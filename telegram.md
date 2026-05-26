@@ -7,6 +7,478 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 02:59
+---
+
+## VahidOOnLine — post 242363
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️صداوسیمای جمهوری اسلامی در برنامه‌ای با حضور کمیل خجسته، برادرزاده منصوره خجسته باقرزاده، همسر علی خامنه‌ای، درباره وضعیت اعضای خانواده رهبر کشته‌شده جمهوری اسلامی در زمان حمله گفتگو کرد.
+در این برنامه، کمیل خجسته با اشاره به کشته شدن برخی اعضای خانواده گفت دختر بزرگ خامنه‌ای، نوه او و شماری دیگر از اعضای خانواده کشته شده‌اند. او همچنین توضیح داد اعضای خانواده هنگام حمله در کنار علی خامنه‌ای حضور نداشتند و هرکدام در بخش‌های مختلف همان ناحیه مستقر بودند.
+مجری برنامه نیز در ادامه پرسید آیا همه در یک محل حضور داشتند که خجسته پاسخ داد حملات به چند نقطه مختلف انجام شده است.
+علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، در جریان حملات آمریکا و اسرائیل در تاریخ ۹ اسفند ۱۴۰۴ کشته شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242362
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242362_1779838169.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️گیدئون سعار، وزیر امور خارجه اسرائیل، با انتشار پیامی در شبکه اجتماعی اکس، به اظهارات منتسب به مجتبی خامنه‌ای، رهبر جدید جمهوری اسلامی، واکنش نشان داد. سعار با بازنشر موضع‌گیری مجتبی خامنه‌ای که موجودیت اسرائیل را تهدید کرده بود، نوشت: «آشنا به نظر می‌رسد. یادم هست فردی با نام‌خانوادگی مشابه قبلا چنین حرف‌هایی می‌زد. راستی، کجایی؟»
+پیش از این، در پیام منتسب به مجتبی خامنه‌ای به مناسبت حج، ادعا شده بود که اسرائیل تا ۱۵ سال دیگر وجود نخواهد داشت. این پیام با ارجاع به ادعای ۱۰ سال قبل علی خامنه‌ای، رهبر کشته‌‌شده جمهوری اسلامی، مبنی بر اینکه اسرائیل ۲۵ سال آینده را نخواهد دید، صادر شده است؛ این در حالی است که از زمان انتصاب مجتبی خامنه‌ای به رهبری، هنوز هیچ صدا یا تصویری از او منتشر نشده است.
+این تقابل لفظی در شرایطی صورت می‌گیرد که در پی دو جنگ در یک سال گذشته، مقام‌های عالی‌رتبه سیاسی و نظامی حکومت ایران از جمله علی خامنه‌ای کشته شده‌اند و بخش بزرگی از برنامه هسته‌ای، تاسیسات نظامی و زیرساخت‌های اقتصادی جمهوری اسلامی به شدت تضعیف یا نابود شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12622
+
+
+
+
+## WithYashar — post 12621
+
+
+
+
+## WithYashar — post 12620
+
+
+
+
+## WithYashar — post 12619
+
+
+
+
+## WithYashar — post 12618
+
+
+
+
+## mwarmonitor — post 9783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حملات هوایی شدید اسرائیل به منطقه سحمر در بقاع غربی، در شرق لبنان.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The White House lawn is starting to look different as construction continues on the UFC Freedom 250 arena at the White House.
+
+Crews are now building out the event site as President Trump moves forward with plans to host the UFC spectacle on White House grounds.
+
+The event is expected to blend politics, patriotism, and one of the biggest brands in combat sports in a way Washington has never seen before.
+</div>
+
+## FoxNewsTwitter — post 342284
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342284_1779838170.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: The ceasefire between the U.S. and Iran is still holding as negotiations between both sides continue behind closed doors. President Trump is expected to hold a Cabinet meeting at the White House tomorrow, @BillMelugin_ reports.
+</div>
+
+## mamlekate — post 103588
+
+<div align="center">
+  <img src="telegram/content/mamlekate_103588_1779838173.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الو پنج‌شنبه عصر ۳۱ اردیبهشت حوالی ساعت ۵ ، توی آرامستان آقا سید مرتضی لاهیجان، خانمی ۴۶ ساله برای سر زدن به مزار پدر و مادرش، همراه با پسر ۷ ساله برادرش رفته بود قبرستان که یه حرومزاده میاد گیر حجاب میده میگه چرا حجابت رو رعایت نمیکنی؟ و خانم گفته پوشش من به تو چه ربطی داره آخه. اون اسلحه گرفته سمتش باز خانم نترسیده و داد و بیداد کرده. اومده شلیک کنه تفنگش گیر کرده و از اونجا میره. چند نفر هم دنبالش میفتن ولی قاتل بعد از چند دقیقه برمیگرده و این‌بار به سمتش میاد و ۵ تا تیر به این خانم میزنه و فرار میکنه. فضای قبرستان کاملاً بهم می‌ریزه و مردم سعی می‌کنن کمکش کنن تا آمبولانس برسه. میگن وقتی به بیمارستان منتقل میشه، حالش خیلی وخیم بوده و قبل از رسیدن به اتاق عمل وارد احیا میشه اما متأسفانه تلاش پزشک‌ها نتیجه نمی‌ده.
+
+مژگان حسن‌پور به خونه ی تمام جاویدنام های لاهیجان سر زده بود و در اعتراضات هم دستگیر شده بود.
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 339176
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339176_1779838174.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با انتشار ویدیویی در تلگرام، از کشف و انهدام حدود ۱۱ کیلومتر تونل حماس در منطقه بیت‌حانون، در شرق «خط زرد» در شمال نوار غزه، خبر داد.
+در اطلاعیه ارتش اسرائیل آمده است این منطقه سال‌ها به‌عنوان یکی از پایگاه‌های اصلی تروریستی حماس عمل می‌کرد و یکی از اصلی‌ترین و پیچیده‌ترین مناطق نبرد بود که نیروهای اسرائیل در طول جنگ در آن عملیات انجام دادند.
+</div>
+
+## IranIntlTV — post 339175
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339175_1779838176.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شادی از مشهد: مردم بدانند ما وسط تاریخیم و انقلاب فست‌فود نیست که بزنیم برود؛ زمان می‌برد
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/FIC8NUzo9XI
+@iranintltv
+</div>
+
+## IranIntlTV — post 339174
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339174_1779838179.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا از شیراز: بدون سازمان‌دهی و با کت‌وشلوار نمی‌شود انقلاب کرد
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/FIC8NUzo9XI
+@iranintltv
+</div>
+
+## IranIntlTV — post 339173
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339173_1779838181.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام از تهران: هزینهٔ درمان آن‌قدر بالا رفته که بعضی به عمل اورژانسی نمی‌رسند و می‌میرند
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/FIC8NUzo9XI
+@iranintltv
+</div>
+
+## IranIntlTV — post 339172
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339172_1779838184.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام از تهران: هزینهٔ درمان آن‌قدر بالا رفته که بعضی به عمل اورژانسی نمی‌رسند و می‌میرند
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/FIC8NUzo9XI
+@iranintltv
+</div>
+
+## IranIntlTV — post 339171
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339171" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی «برنامه با کامبیز حسینی»؛ بازگشت اینترنت ایران بعد از ۸۸ روز
+@iranintlTV
+</div>
+
+## FarsiVOA — post 218751
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218751_1779838189.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تورم در اروپا سرسخت‌تر از پایان تنش‌ها؛ افزایش نرخ بهره حتی در صورت توافق با جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218750
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺لیندزی گراهام: پاکستان به درخواست رئیس جمهوری آمریکا برای پیوستن به پیمان ابراهیم باید پاسخی بدهد
+
+▪️لیندزی گراهام، سناتور جمهوری‌خواه آمریکایی روز سه‌شنبه ۵ خرداد در شبکه اجتماعی ایکس بار دیگر از میانجی‌گری پاکستان در خصوص عملیات مشترک آمریکا و اسرائيل علیه جمهوری اسلامی انتقاد کرد و اسلام‌آباد را تلویحا یک میانجی‌ بی‌طرف ندانست.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154197.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218749
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218749_1779838190.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اتصال محدود به اینترنت بعد ۸۸ روز خاموشی دیجیتال در ایران؛ واکنش کاربران شبکه‌های اجتماعی
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15091
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15091_1779838192.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📣 لطفا تا جایی که میتونین اپ های گوشی و کامپیوتر یا لپ‌تاپ، اپ های خود سیستم و سیستم عامل رو آپدیت کنید.
+
+❗️ اپ های قدیمی ریسک امنیتی بیشتری دارن.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20849
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما :
+
+بازکردن اینترنت تو این شرایط خیلی کار خطرناک و غیرقانونی بوده و سریع باید راجبش یه کاری انجام بدیم !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20848
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20848" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص همراه اول مخابرات
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282135
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282135_1779838193.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻علی خطیر، عضو هیئت رئیسه فدراسیون فوتبال ایران، از همراهی با کاروان تیم ملی فوتبال مردان این کشور به جام جهانی انصراف داده است. او سومین عضو از گروه بزرگ همراهان تیم ملی ایران است که به زودی عازم کمپ خود در مکزیک و آماده سه مسابقه مقدماتی در کرانه غربی آمریکا خواهد شد.
+
+خبرگزاری دولت ایران روز سه‌شنبه نوشت آقای خطیر با ارسال نامه‌ای به مهدی تاج، رئیس فدراسیون فوتبال اعلام کرده «به دلیل مشغله کاری و همچنین عدم نیاز به حضورش در این تورنمنت، در سفر همراه کاروان فدراسیون شرکت نخواهد کرد.»
+
+ایرنا نوشته پیش از این هم حیدر بهاروند و محمدرحمان سالاری دیگر اعضای هیات رئیسه» از همراهی کاروان ایران انصراف داده بودند.
+
+انصراف آقای خطیر و دیگر اعضای همراه تیم ایران در حالی است که هنوز گزارشی از نتیجه درخواست روادیدهای اعضای کرد.
+
+روز سه‌شنبه همچنین گزارش شد علیرضا جهانبخش، کاپیتان تیم ملی و همچنین، دنیس درگاهی، مهاجم جدید ایرانی‌تبار تیم ایران به اردوی ترکیه پیوسته‌اند تا جمع بازیکنان این اردو تکمیل شود.
+
+📷SNN
+@bbcpersian
+</div>
+
+## BBCPersian — post 282133
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تصاویر تازه‌ منتشر شده از «تلما» یوز معروف «تلخاب» که آبان گذشته در محدوده جاجرم و پناهگاه حیات‌وحش میاندشت ثبت شده، بار دیگر توجه‌ها را به یوز آسیایی که ایران آخرین زیستگاه طبیعی آن محسوب می‌شود، جلب کرده است.
+
+فعالان محیط‌زیست می‌گویند هر ثبت تازه، نه فقط یک خبر امیدوارکننده، بلکه داده‌ای حیاتی برای ارزیابی آینده یکی از نادرترین گوشت‌خواران جهان است.
+
+تلما سال ۱۳۹۸ به دنیا آمد و سال ۱۴۰۱، ثبت چهار توله همراه او یکی از مهم‌ترین نشانه‌های موفقیت زادآوری طبیعی یوز آسیایی در سال‌های اخیر تلقی شد.
+
+تصاویر جدید او که در ۱۹ آبان ۱۴۰۴ ثبت شده اما روز سه‌شنبه ۴ خرداد منتشر شده، نشان می‌دهد او بار دیگر موفق به بزرگ کردن دست‌کم یک توله یک ساله شده است؛ موضوعی که از نگاه کارشناسان محیط‌زیست، برای جمعیتی که شمار آن به ده‌ها قلاده محدود شده، اهمیتی حیاتی دارد.
+
+پناهگاه حیات‌وحش میاندشت در خراسان شمالی، در کنار ذخیره‌گاه زیست‌کره توران در سمنان، از معدود زیستگاه‌هایی است که هنوز نشانه‌هایی از زادآوری طبیعی یوز آسیایی در آن ثبت می‌شود.
+
+📷SNN
+@bbcpersian
+</div>
+
+## Dirty_Kids — post 390288
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390288_1779838193.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵 رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش…
+</div>
+
+## Dirty_Kids — post 390287
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390287_1779838194.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A5
+
+🌟اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین
+👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 390286
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390286_1779838195.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390285
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390285_1779838196.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمال برگشت پهلوی هست اما عاقات دیگه برنمیگرده 🕳💣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390284
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390284_1779838196.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به خونه خوش اومدین برخط‌های شیطون❤️
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگفتن ۴۰ میلیون جان‌فدا دارن.
+ولی از وقتی نت وصل شده هرکی آنلاین شده اول مینویسه کیرم تو خامنه‌ای.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390282
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها سودی که ترامپ داشت این بود که باعث شد یه مدت قیافه‌ی فرید کنزو رو نبینیم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390281
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینکه شب عید قربان نت وصل کردن حس گوسفندی رو دارم که قبل ذبح اب بهش میدن
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390280
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390280_1779838197.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی: رجز خونی مجتبی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390279
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بگو نتا رو قطع کنن جنبه نداریم تو ۲ساعت ۵بار جق زدم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122958
+
+<div align="center">
+  <a href="telegram/content/alonews_122958_1779838200.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات اسرائیل به سُهمور در دره بقاع در لبنان.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122957
+
+<div align="center">
+  <a href="telegram/content/alonews_122957_1779838203.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کی‌سی‌ان‌ای، رسانه دولتی کره شمالی: کره شمالی آزمایشی از سیستم پرتاب موشک چندمنظوره جدید انجام داده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 01:47
 ---
 
