@@ -7,6 +7,1901 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 00:19
+---
+
+## VahidOOnLine — post 242352
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242352_1779828566.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی با انتشار بیانیه‌ای در واکنش به صدور حکم اعدام برای چهار شهروند ایرانی، نوشت: «صدور دوباره احکام اعدام برای چهار تن از بچه‌های اکباتان، میلاد آرمون، محمدمهدی حسینی، مهدی ایمانی و نوید نجاران، سند دیگری از ماهیت جنایتکار رژیم جمهوری اسلامی است که برای حفظ قدرت، جوانان ایران را به قتل می‌رساند و از خون مردم برای بقای خود تغذیه می‌کند.»
+
+در این بیانیه آمده است: «رژیم ضحاکی جمهوری اسلامی، دادگاه را به ابزار سرکوب تبدیل کرده و اعدام، سلاحی برای ایجاد وحشت در جامعه است.»
+
+دفتر رسانه‌ای شاهزاده رضا پهلوی نوشت: «سکوت جهان در برابر اعدام معترضان ایرانی، یک شکست اخلاقی و سیاسی است. هر روزی که جامعه جهانی در برابر این رژیم مماشات می‌کند، جمهوری اسلامی با جسارت و قساوت بیشتری جان جوانان ایرانی را می‌گیرد و سرکوب را گسترش می‌دهد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242351
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242351_1779828567.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افیخای ادرعی، سخنگوی ارتش اسرائیل، در شبکه ایکس از ساکنان هفت شهر و روستا در جنوب لبنان خواست برای حفظ جان خود این مناطق را ترک کنند.
+
+سخنگوی عرب‌زبان ارتش اسرائیل با هشدار به ساکنان شهرها و روستاهای طورا، دیر قانون النهر، بدیاس، برج رحال، معرکه، العباسیه و طیر دبا، نوشت: «در پی نقض توافق آتش‌بس از سوی حزب‌الله، ارتش اسرائیل ناچار است با قدرت علیه آن اقدام کند. ارتش قصد آسیب رساندن به شما را ندارد.»
+
+افیخای ادرعی تاکید کرد: «هر فردی که در نزدیکی نیروها، تاسیسات یا تجهیزات نظامی حزب‌الله حضور داشته باشد، جان خود را به خطر می‌اندازد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242350
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242350_1779828568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سازمان هواپیمایی کشوری، روز سه‌شنبه، پنجم خردادماه، اعلام کرد که بر اساس مصوبات نشست هماهنگی نهادهای لشکری و کشوری، ساعت کاری ۱۰ فرودگاه ایران با هدف تسهیل عملیات پروازی و ارتقای خدمات هوانوردی افزایش یافته و فعالیت آن‌ها ۲۴ ساعته شده است. بر این اساس، از این پس فرودگاه‌های بین‌المللی «امام خمینی» و مهرآباد تهران و همچنین فرودگاه‌های مشهد، ساری، بیرجند، گرگان، بجنورد، کرمان، زاهدان و سبزوار به‌صورت شبانه‌روزی به مسافران و پروازها خدمات‌رسانی خواهند کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242349
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242349_1779828568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در تروث سوشال نوشت اگر جمهوری اسلامی تسلیم شود، نابودی نیروی دریایی و هوایی خود را بپذیرد، نیروهایش را از تهران خارج کند و مقام‌هایش اسناد تسلیم را امضا کنند، «رسانه‌های جعلی» مانند نیویورک‌تایمز، وال‌استریت ژورنال و سی‌ان‌ان باز هم این را پیروزی ایران مقابل آمریکا توصیف خواهند کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242348
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242348_1779828569.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران، روز سه‌شنبه گفت: «کشورهای منطقه بالاخره حساب کار خودشان را کردند و دانسته‌اند که اگر بخواهند میزبان پایگاه‌های آمریکا باشند، به هر حال به شدت صدمه می‌بینند.» او با تاکید بر اینکه حضور ایالات متحده هیچ منفعتی برای متحدانش نداشته است، گفت: «یعنی این‌جوری نبود که حضور آمریکا به نفع آن‌ها بوده باشد. این‌ها خیال می‌کردند می‌آیند در عرض سه روز می‌جنگند و فرماندهان و رهبر ما را می‌کشند و کشور از هم می‌پاشد. اما نشد و خیال خامی بود.» پزشکیان همچنین با اشاره به چالش‌های پیش‌رو، بر ضرورت ایستادگی در حوزه اقتصادی تاکید کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242347
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242347_1779828570.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ، رئیس‌جمهوری ایالات متحده، با انتشار پیامی در شبکه اجتماعی «تروث سوشال»، به شدت از رسانه‌های آمریکایی و دموکرات‌ها انتقاد کرد و آن‌ها را به جانبداری از جمهوری اسلامی متهم ساخت. ترامپ نوشت: «اگر ایران تسلیم شود، اعتراف کند که نیروی دریایی‌اش از بین رفته و در کف دریا آرام گرفته است، نیروی هوایی‌اش دیگر وجود ندارد، و اگر تمام ارتش آن‌ها از تهران بیرون بیایند، سلاح‌ها را زمین بگذارند، دست‌ها را بالا ببرند و در حالی که پرچم سفید تسلیم را به شدت تکان می‌دهند، فریاد بزنند من تسلیم می‌شوم، من تسلیم می‌شوم و اگر تمام رهبران باقی‌مانده آن‌ها همه اسناد لازم برای تسلیم را امضا کنند و به شکست خود در برابر قدرت و نیروی عظیم ایالات متحده باشکوه اعتراف کنند؛ باز هم نیویورک تایمز در حال سقوط، چاینا استریت ژورنال (همان وال‌استریت ژورنال!)، سی‌ان‌ان فاسد و بی‌اهمیت شده، و تمام دیگر اعضای رسانه‌های اخبار جعلی، تیتر خواهند زد که ایران یک پیروزی استادانه و درخشان بر ایالات متحده آمریکا داشته و [این رقابت] حتی نزدیک هم نبوده است.» او در پایان این پیام با حمله به مخالفان سیاسی خود افزود: «دموکرات‌ها و رسانه‌ها کاملا راه خود را گم کرده‌اند. آن‌ها به معنای واقعی کلمه دیوانه شده‌اند!!!»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242346
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242346_1779828571.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی ایالات متحده (سنتکام) با انتشار بیانیه‌ای در اکس، روز سه‌شنبه، ادعای روزنامه «وال‌استریت‌ ژورنال» مبنی بر ازسرگیری اسکورت کشتی‌های تجاری در تنگه هرمز را تکذیب کرد و نوشت: «ادعای اخیر برخی رسانه‌ها درباره اینکه نیروی دریایی آمریکا هدایت یا کمک به کشتی‌های تجاری را حین عبور از تنگه هرمز آغاز کرده، نادرست است.» سنتکام در ادامه تاکید کرد: «واقعیت این است که پروژه آزادی ازسر گرفته نشده و نیروهای آمریکایی در حال حاضر هیچ کشتی تجاری را در تنگه هرمز اسکورت نمی‌کنند.» پیش از این، وال‌استریت‌ژورنال ادعا کرده بود نیروی دریایی آمریکا هدایت نفت‌کش‌ها و کشتی‌های سرگردان را از مقابل سواحل ایران آغاز کرده و در نخستین اقدام، یک ابرنفت‌کش یونانی حامل دو میلیون بشکه نفت خام را با موفقیت از این آبراهه استراتژیک عبور داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242345
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242345_1779828571.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنیامین نتانیاهو، نخست‌وزیر اسرائیل و یسرائیل کاتز، وزیر دفاع این کشور، در بیانیه‌ای مشترک اعلام کردند که ارتش در جریان یک حمله هوایی در غزه، محمد عوده، فرمانده جدید شاخه نظامی حماس و یکی از طراحان اصلی حمله هفتم اکتبر را هدف قرار داده است. در این بیانیه آمده است که عوده در جریان حمله هفتم اکتبر مسئولیت رئیس ستاد اطلاعات حماس را بر عهده داشت و تنها یک هفته پیش، به عنوان جانشین عزالدین الحداد (که دو هفته قبل کشته شد) منصوب شده بود؛ مقامات اسرائیل با اشاره به اینکه عوده مسئول کشته، زخمی و ربوده شدن بسیاری از شهروندان و سربازان اسرائیلی بوده، تأکید کردند که ارتش و شین‌بت به تعقیب و نابودی تمامی عوامل دخیل در حمله هفتم اکتبر ادامه خواهند داد و دیر یا زود به همه آن‌ها دست خواهند یافت. بر اساس گزارش‌های تکمیلی، محمد عوده که از چهره‌های باسابقه اما مخفی‌کار و اطلاعاتی گردان‌های عزالدین قسام به شمار می‌رفت، پس از کشته شدن فرماندهان پیشین از جمله محمد ضیف و محمد سنوار، از معدود رهبران ارشد باقی‌مانده حماس در نوار غزه بود که به دلیل ملاحظات شدید امنیتی، همواره بدون راننده و محافظ شخصی تردد می‌کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242344
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از اولین روز کاهش محدودیت و قطع اینترنت- سه‌شنبه ۵ خرداد ۱۴۰۶
+
+🔹تازگی تو استان کردستان انگار اینترنت داره وصل میشه، اما فقط وای‌فای.
+
+🔹من بابت وصل شدن اینترنت خوشحال نیستم، چون ۴۰ هزار نفر دیگه هیچ‌وقت آنلاین نمی‌شن. طرح اینترنت پرو شکست خورد. سپاس از کسانی که تن به این خفت و خواری ندادن و متأسفم برای کسانی که بهش تن دادن.
+
+🔹من تازه تونستم وصل بشم. یه دختر دهه‌نودی هستم. حتی منم دیگه خسته شدم، هر روز اوضاع داره بدتر و بدتر میشه. فقط امیدوارم در نهایت همه‌مون آزادی ایرانمون رو ببینیم. جاوید شاه.
+
+🔹بالاخره اینترنت وصل شده، البته با هزار تا بدبختی و سرعت پایین، اونم فقط با مخابرات.
+
+🔹قربون دستت که دستور دادی اینترنت بین‌الملل وصل شه. حالا بی‌زحمت دستور بده اونایی که کسب‌وکار اینترنتیشون نابود شد برگردن سر کارشون، اونایی که زندگیشون از هم پاشید برگردن سر خونه و زندگیشون، اونایی که به خاطر اجاره خونه آواره خیابون شدن برگردن تو خونه‌هاشون.
+
+🔹از وصل شدن اینترنت بین‌الملل برای عموم مردم خرسندم، این حق طبیعی و اولیه هر شهرونده. اتفاقات بسیار خوب و روشنی در انتظار پارسیان و این خاکه، کمی منتظر بمونید. جاوید شاه، پاینده ایران.
+
+🔹بعد چند روز اینترنت‌ها رو باز کردن، فکر کردن می‌تونن با اینترنت گولمون بزنن.
+
+🔹بالاخره بعد از چند وقت تونستیم به اینترنت وصل بشیم، خدا رو شکر. به یاد جاویدنام‌ها.
+
+🔹سلام، بالاخره وصل شدیم، ولی این حق ما نبود که ۸۸ روز قطع باشیم.
+
+🔹از بجنورد: خواستم به همه کسانی که امکان استفاده از اینترنت پرو داشتن ولی شرافتمندانه انتخابش نکردن درود بفرستم. آزادی بیشتر از همه حق شماست.
+
+🔹واسه وصل شدن اینترنت زیاد خوشحال نباشین. اینترنت رو وصل کردن که مزرعه‌های ماینرشون رو فعال کنن و این یعنی روزی هفت، هشت ساعت قطعی برق.
+
+🔹درود، بازگشایی اینترنت رو بعد از ۸۸ روز قطعی گسترده تبریک می‌گم. به امید اینکه روزی شاه رضا پهلوی رو از نزدیک ببینم.
+
+🔹سلام، بعد از ۹۰ روز از محلات، واسه وصل شدن چیزی که حق هر آدمیه باید ذوق کنیم.
+
+🔹الان که اینترنت وصل شده، جاویدنامامون رو بیشتر یاد کنیم. به امید آزادی.
+
+🔹بعد از هشتاد و خورده‌ای روز با بدبختی وصل شدیم. بازم مثل همیشه متوجه شدیم که هیچ‌کس به فکر ما نیست و تهش خودمونیم و خودمون. هر چیزی به حالت قبلش برگرده، ما دیگه برنمی‌گردیم.
+
+🔹امروز (۵ خرداد) وصل شدم بعد از سه ماه. فقط مردم عزیزم، تورو خدا ناامید نشید، این آخرین نبرده.
+
+🔹بعد از ۸۸ روز قطعی اینترنت بالاخره وصل شدم. خواستم بگم ناامید نشید، نور بر تاریکی پیروزه. جاوید شاه.
+
+🔹مردم ایران، اینترنت حق طبیعی ماست. خوشحال باشید، ولی فکر نکنین امتیازیه که بهمون دادن، تسلیم نمیشیم.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242343
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242343_1779828572.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان اسرائیل گزارش داد در پی گسترش درگیری‌ها در لبنان و همزمان با مذاکرات آمریکا و جمهوری اسلامی، دونالد ترامپ و بنیامین نتانیاهو تلفنی گفت‌وگو کردند.
+
+همزمان کانال ۱۲ اسرائیل خبر داد که گفت‌وگوی ترامپ و نتانیاهو پس از نشست کابینه اسرائیل که حدود دو ساعت و نیم طول کشید، انجام شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242342
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242342_1779828572.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنیامین نتانیاهو، نخست‌وزیر اسرائیل، با انتشار بیانیه‌ای در اکس، از هدف قرار گرفتن فرمانده نیروی رضوان در بیروت خبر داد و اعلام کرد که نیروهای ارتش این کشور تاکنون حدود ۲,۵۰۰ شبه‌نظامی حزب‌الله را از پای درآورده‌اند. او با اشاره به آمار تلفات این گروه اظهار داشت: «تنها در طول دوره آتش‌بس، ۷۰۰ شبه‌نظامی حزب‌الله کشته شدند که این تعداد، بیشتر از کل تلفات آن‌ها در جنگ دوم لبنان است.» نتانیاهو با تاکید بر اینکه نیروهای اسرائیلی در حال تکمیل تخریب زیرساخت‌های تروریستی در نزدیکی شهرک‌های مرزی هستند، افزود: «نیروهای گسترده ارتش اسرائیل در عمق خاک لبنان در حال عملیات هستند، مناطق مشرف و استراتژیک را تصرف کرده و در حال مستحکم کردن منطقه امنیتی هستند؛ ما یک لحظه هم از مبارزه با حزب‌الله دست نمی‌کشیم و اقدامات بیشتری در راه است تا امنیت کامل شهروندان اسرائیل تضمین شود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242341
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242341_1779828574.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یسرائیل کاتس، وزیر دفاع اسرائیل، در شبکه ایکس اعلام کرد ارتش این کشور به دستور بنیامین نتانیاهو و او، محمد عوده، رهبر شاخه نظامی حماس و از طراحان حمله هفتم اکتبر، را در غزه هدف قرار داده است.
+
+وزیر دفاع اسرائیل اعلام کرد عوده مسئول کشته، ربوده و زخمی شدن شمار زیادی از شهروندان اسرائیلی و نیروهای ارتش این کشور بوده است.
+
+او افزود: «ما به تعقیب همه کسانی که در حمله هفتم اکتبر نقش داشتند ادامه خواهیم داد؛ دیر یا زود، اسرائیل همه آن‌ها را پیدا خواهد کرد.»
+
+همچنینن بنیامین نتانیاهو، نخست‌وزیر اسرائیل اعلام کرد که اسرائیل به فرمانده جدید شاخه نظامی حماس در غزه حمله کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242340
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان ساکن آلمان روز سه‌شنبه در تجمعی در هامبورگ علیه قطع اینترنت و اعدام شهروندان معترض در ایران شعار دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242339
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242339_1779828575.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه نیویورک‌ تایمز به نقل از دو مقام آمریکایی نوشت که حملات نظامی آمریکا به هدافی در جنوب ایران در شامگاه دوشنبه پس از آن انجام شد که تحلیلگران اطلاعاتی مجموعه‌ای از اقدامات نظامی جمهوری اسلامی را شناسایی کردند که به‌طور «بالقوه تهدیدآمیز» بود.
+
+این رسانه در گزارشی کوتاه که شامگاه سه‌شنبه منتشر شد، نوشت این مقام‌ها گفتند جمهوری اسلامی چند پهپاد انتحاری را در نزدیکی شماری از حدود ۲۴ ناو جنگی نیروهای آمریکا در محدوده دریای عمان و دریای عرب به پرواز درآورده بودند. این ناوها در اجرای عملیات محاصره دریایی بندرهای جنوب ایران نقش دارند.
+
+به گفته این منابع که به دلیل حساسیت مسائل عملیاتی نخواستند نامشان فاش شود، تحلیلگران اطلاعاتی آمریکا تحرکاتی را در برخی از مواضع موشک‌های زمین‌به‌هوای جمهوری اسلامی در نزدیکی تنگه هرمز شناسایی کردند که هواپیماهای تهاجمی مستقر در خشکی و ناوهای هواپیمابرِ فعال در عملیات محاصره دریایی را تهدید می‌کرد.
+
+ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242338
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242338_1779828576.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دو مقام آمریکایی روز سه‌شنبه پنجم خردادماه،‌به روزنامه نیویورک تایمز گفتند جمهوری اسلامی دوشنبه‌شب پهپادهای تهاجمی را به سمت ناوها و کشتی‌های جنگی آمریکا در خلیج عمان و دریای عرب پرتاب کرده و همین اقدام به حملات متقابل آمریکا علیه اهدافی در جنوب ایران منجر شده است.
+
+به گفته این مقام‌ها، نیروهای جمهوری اسلامی همچنین قایق‌های مین‌گذار را در تنگه هرمز مستقر کرده بودند و ارتش آمریکا پس از رصد این تحرکات، در آنچه «حملات دفاع از خود» توصیف شد، قایق‌ها و محل‌های پرتاب موشک را هدف قرار داد.
+
+نیویورک تایمز نوشت ارتش آمریکا علاوه بر پرواز پهپادها، تحرکات سامانه‌های پدافند هوایی ایران در نزدیکی تنگه هرمز را نیز تهدیدی برای نیروهای خود ارزیابی کرده بود.
+
+این گزارش در حالی منتشر می‌شود که مذاکرات درباره توافق احتمالی برای پایان جنگ و بازگشایی تنگه هرمز ادامه دارد و مقام‌های آمریکایی و جمهوری اسلامی همچنان پیام‌های متفاوتی درباره آینده این گفتگوها ارسال می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242337
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242337_1779828576.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال درباره تجمعات شبانه حامیان حکومت گفت که آن‌ها برای برنج و روغن تجمع می‌کنند اما مردم معترض در انقلاب ملی برنج‌ را زیر پای خود له کردند. پیام او با هوش مصنوعی خوانده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12609
+
+
+
+
+## WithYashar — post 12608
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی با انتشار بیانیه‌ای در واکنش به صدور حکم اعدام برای چهار شهروند ایرانی، نوشت: «صدور دوباره احکام اعدام برای چهار تن از بچه‌های اکباتان، میلاد آرمون، محمدمهدی حسینی، مهدی ایمانی و نوید نجاران، سند دیگری از ماهیت جنایتکار رژیم جمهوری اسلامی است که برای حفظ قدرت، جوانان ایران را به قتل می‌رساند و از خون مردم برای بقای خود تغذیه می‌کند.»
+@withyashar
+</div>
+
+## WithYashar — post 12607
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو از ترور هدفمند خبر داد : همین الان محمد عوده، از فرماندهان شاخه نظامی حماس و یکی از طراحان حمله ۷ اکتبر رو در غزه هدف قرار دادیم به حساب همه‌شون می‌رسیم @withyashar
+</div>
+
+## WithYashar — post 12606
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12606_1779828579.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تری ینگست خبرنگار فاکس‌نیوز از اسرائیل گزارش میکند : رسانه‌های حکومتی ایران ادعا می‌کنند که برای هرگونه توافق با آمریکا، باید ۲۴ میلیارد دلار آزاد شود.
+
+تیم ترامپ می‌گوید چنین چیزی قرار نیست اتفاق بیفتد و “هرگونه کاهش فشار مالی فقط در صورتی انجام می‌شود که ایران به تعهداتش عمل کند.”
+
+ایران باید کاملاً از برنامه هسته‌ای دست بکشد و هیچ‌گونه کنترلی بر تنگه هرمز نداشته باشد، تمام.
+@withyashar
+</div>
+
+## WithYashar — post 12605
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر ایران تسلیم شود، بپذیرد که نیروی دریایی‌اش از بین رفته و در کف دریا آرمیده است، و نیروی هوایی‌اش دیگر با ما نیست، و اگر تمام ارتش آن از تهران خارج شود در حالی که سلاح‌ها را زمین گذاشته و دست‌ها را بالا گرفته‌اند و هرکدام فریاد بزنند «من تسلیم می‌شوم، من…
+</div>
+
+## WithYashar — post 12604
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12604_1779828583.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر ایران تسلیم شود، بپذیرد که نیروی دریایی‌اش از بین رفته و در کف دریا آرمیده است، و نیروی هوایی‌اش دیگر با ما نیست، و اگر تمام ارتش آن از تهران خارج شود در حالی که سلاح‌ها را زمین گذاشته و دست‌ها را بالا گرفته‌اند و هرکدام فریاد بزنند «من تسلیم می‌شوم، من تسلیم می‌شوم» و همزمان دیوانه‌وار پرچم سفید را تکان دهند، و اگر تمام رهبران باقی‌مانده‌شان همه «اسناد تسلیم» لازم را امضا کنند و شکست خود را در برابر قدرت بزرگ و نیروی شگفت‌انگیز ایالات متحده آمریکا بپذیرند، در این صورت نیویورک تایمزِ شکست‌خورده، وال‌استریت ژورنال چین (!)، سی‌ان‌ان فاسد و اکنون بی‌اهمیت، و سایر اعضای رسانه‌های «اخبار جعلی»، تیتر خواهند زد که ایران یک پیروزی استادانه و درخشان بر ایالات متحده آمریکا به دست آورده و اصلاً رقابت نزدیک هم نبوده است. دموکرات‌ها و رسانه‌ها کاملاً راه خود را گم کرده‌اند. آن‌ها کاملاً دیوانه شده‌اند!!!
+رئیس‌جمهور DJT
+@withyashar
+</div>
+
+## WithYashar — post 12603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عزیمت ترامپ از کاخ سفید به بیمارستان @withyashar
+</div>
+
+## WithYashar — post 12602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منبعی آگاه به «اتاق جنگ با یاشار» گفت که در شروط توافق این مورد تأکیید شده که ترامپ باید ختنه کند.🤣 @withyashar
+</div>
+
+## WithYashar — post 12601
+
+
+
+
+## WithYashar — post 12600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم : فروش نخی سیگار ممنوع شد اتاق اصناف ایران: فروش سیگار نخی و فرآورده‌های دخانی بازشده در تمامی واحدهای صنفی ممنوع شد. @withyashar 😐
+</div>
+
+## WithYashar — post 12599
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم : فروش نخی سیگار ممنوع شد
+
+اتاق اصناف ایران:
+فروش سیگار نخی و فرآورده‌های دخانی بازشده در تمامی واحدهای صنفی ممنوع شد.
+@withyashar 😐
+</div>
+
+## WithYashar — post 12598
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادیو ارتش اسرائیل گزارش داد که دونالد ترامپ، رئیس‌جمهور آمریکا، و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در حال حاضر در یک تماس تلفنی هستند.
+@withyashar
+</div>
+
+## WithYashar — post 12597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نت بلاکس : ۸۶٪ اینترنت ایران برگشته @withyashar
+</div>
+
+## mwarmonitor — post 9776
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9776_1779828584.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️ساعت ۲۱:۲۳ به وقت گرینویچ پرواز DOOR 72 — یک فروند بمب‌افکن B-52H از پایگاه فیرفورد به پرواز درآمده و در حال ارتباط با بریز نورتن روی فرکانس 231.950 است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9775
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9775_1779828585.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️ساعت ۲۱:۲۰ به وقت گرینویچ پرواز DOOR 73 — یک فروند بمب‌افکن B-52H از پایگاه فیرفورد به پرواز درآمده و در حال ارتباط با بریز نورتن روی فرکانس 231.950 است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9774
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9774_1779828586.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌یک حرکت جدید – Coronet East 024
+
+✈️هواپیماهای سوخت رسان KC-46A با نام «BOBBY81» به شماره 19-46061 AE5FA8
+و KC-46A با نام «BOBBY82» به شماره 19-46007 AE574D
+
+✈️با کد مأموریت Coronet East 024 از خاک‌ آمریکا به پرواز درآمده‌اند. مشخص نیست که آیا از قبل هواپیمایی را همراهی می‌کردند یا اینکه این فقط یک پرواز جابه‌جایی و موقعیت‌گیری است، اما بدون شک به‌زودی مشخص خواهد شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جنگ در ایران نشان داده است که تأسیسات نمک‌زدایی آب (آب‌شیرین‌کن‌ها) در کشورهای عربی حوزه خلیج فارس تا چه اندازه آسیب‌پذیر هستند.
+
+🔸مسئله امنیت آب برای جمعیت کشورهای خلیج فارس در آینده تنها تشدید خواهد شد. مگر اینکه ایالات متحده آماده باشد سلطه بلندمدت ایران بر کشورهای خلیج فارس و همچنین تنگه هرمز را بپذیرد، در غیر این صورت باید بازدارندگی مؤثری در برابر حملات ایران به زیرساخت‌های حیاتی پیدا کند. «اندیشکده هادسن»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9772
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴(رویترز) - وانگ یی، وزیر امور خارجه چین، روز سه‌شنبه گفت امیدوار است طرف‌های درگیر در بحران ایران به تعهد خود برای پیگیری آتش‌بس پایبند بمانند و همچنان برای رسیدن به نقطه‌ای میانی با یکدیگر تعامل کنند.
+
+🔸ایران روز سه‌شنبه اعلام کرد که ایالات متحده آتش‌بس را نقض کرده است؛ پس از آنکه آمریکا آنچه «حملات دفاعی» در جنوب ایران خواند انجام داد. در همین حال، مارکو روبیو، وزیر امور خارجه آمریکا، گفت که مذاکره برای توقف درگیری ممکن است «چند روز زمان ببرد».
+
+🔹وانگ در جمع خبرنگاران در سازمان ملل در نیویورک و پس از ریاست جلسه شورای امنیت ۱۵ عضوی گفت:
+«امیدواریم طرف‌های مربوطه به تلاش برای آتش‌بس پایبند بمانند و همچنان برای رسیدن به نقطه‌ای میانی با یکدیگر تعامل کنند تا صلح هرچه سریع‌تر به خاورمیانه بازگردد.»
+
+🔹او افزود:
+«همان‌طور که گفته‌ایم، برای یخ بستن سه فوت یخ تنها یک روز سرد کافی نیست و مسائل ریشه‌دار را نمی‌توان یک‌شبه حل کرد.»
+
+🔸وانگ همچنین گفت:
+«با این حال، هر گام رو به جلو در مذاکرات امید بیشتری برای صلح ایجاد می‌کند و هر روز زودتر پایان یافتن درگیری یعنی کاهش تلفات غیرنظامیان.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9771
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر ایران تسلیم شود، اعتراف کند که نیروی دریایی‌اش نابود شده و در کف دریا آرام گرفته است، و نیروی هوایی‌اش دیگر در میان ما نیست، و اگر تمام ارتش آن‌ها با دست‌های بالا رفته و سلاح‌های زمین‌گذاشته از تهران خارج شوند و هر کدام در حالی که پرچم سفید نمادین را به…
+</div>
+
+## mwarmonitor — post 9770
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9770_1779828586.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌«اگر ایران تسلیم شود، اعتراف کند که نیروی دریایی‌اش نابود شده و در کف دریا آرام گرفته است، و نیروی هوایی‌اش دیگر در میان ما نیست (نابود شده)، و اگر کل ارتش آن‌ها در حالی که تسلیحات خود را زمین گذاشته‌اند و دست‌ها را بالا برده‌اند از تهران خارج شوند و هر کدام فریاد بزنند "من تسلیم می‌شوم، من تسلیم می‌شوم" در حالی که دیوانه‌وار پرچم سفید نمادین را تکان می‌دهند، و اگر تمام رهبریِ باقی‌مانده آن‌ها تمام "اسناد تسلیم" لازم را امضا کنند و به شکست خود در برابر قدرت بزرگ و نیروی ایالات متحدهِ باشکوه اعتراف کنند، [باز هم] نیویورک تایمزِ در حال سقوط، چاینا استریت ژورنال (همان وال استریت ژورنال!)، سی‌ان‌انِ فاسد و اکنون بی‌اهمیت، و تمام دیگر اعضای رسانه‌های اخبار جعلی، تیتر خواهند زد که ایران یک پیروزی استادانه و درخشان بر ایالات متحده آمریکا داشته است و [این رقابت] حتی نزدیک هم نبود (پیروزی قاطع ایران بوده). دِماکرات‌ها (ترکیب دموکرات و احمق) و رسانه‌ها کاملاً راه خود را گم کرده‌اند. آن‌ها کاملاً دیوانه شده‌اند!!!
+
+رئیس‌جمهور دونالد جی ترامپ»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9769
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9769_1779828588.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸یک ملوان نیروی دریایی آمریکا در اتاق فرماندهی (پل فرماندهی) داخل ناوشکن USS John Finn (DDG 113) در حال نگهبانی دیده می‌شود، در حالی که این ناوشکن موشک‌انداز در دریای عرب در چارچوب حمایت از محاصره دریایی آمریکا علیه ایران در حال عبور است.
+
+🔹طبق گزارش، تا تاریخ ۲۶ مه، نیروهای آمریکایی ۱۰۸ کشتی تجاری را تغییر مسیر داده‌اند تا از رعایت این محدودیت‌ها اطمینان حاصل شود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥 انفجار مخزن مواد شیمیایی در واشنگتن منجر به کشته و زخمی شدن تعدادی از افراد شده است؛ وضعیت برخی از مجروحان وخیم گزارش می‌شود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9767
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9767_1779828588.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ناوشکن کلاس Horizon CHEVALIER PAUL 🇫🇷 و ناوچه کلاس FREMM POSS ALSACE 🇫🇷 ۲ روز پیش در آب‌های جنوب عمان مشاهده شدند
+
+📍موقعیت ناوشکن: 16.8356, 55.3751
+📍موقعیت ناوچه: 16.8513, 56.070
+
+
+📌این دو شناور در حال عملیات مشترک با ناو هواپیمابر فرانسوی CDG (شارل دوگل) و تحت چارچوب مأموریت‌های نیروی دریایی فرانسه بوده‌اند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔰 سناتورهای ایالت کارولینای جنوبی با نادیده گرفتن فشارهای دونالد ترامپ برای تصویب نقشه جدید حوزه‌بندی مجلس نمایندگان، بدون بررسی آن جلسه را به پایان رساندند. نیویورک تایمز
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9765
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رادیو ارتش اسرائیل گزارش داد که دونالد ترامپ، رئیس‌جمهور آمریکا، و بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در حال حاضر در یک تماس تلفنی هستند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342281
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Socialist mayor Mamdani just put NYC landlords on notice as he calls for taking “aggressive legal action” against landlords and transferring ownership of chronically neglected buildings to “the community.”
+
+His pitch: crack down on bad owners and remake who controls housing in NYC.
+</div>
+
+## FoxNewsTwitter — post 342280
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342280_1779828589.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: VP Vance shares a gut-wrenching example of Medicaid fraud uncovered by his task force:
+
+"A man who was supposed to be providing services to allow elderly people to live full and independent lives... What happened instead is that the man who was supposed to provide these services, reimbursed by the Medicaid program, was providing nothing, no services, no help, no check ins."
+
+"The vulnerable elderly man that he was supposed to be protecting and looking after, was reimbursed by the taxpayer in order to do exactly that, that man died."
+
+"That man lived his final moments on this earth, neglected while a fraudster got rich by providing services that he never actually provided."
+</div>
+
+## FoxNewsTwitter — post 342279
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342279_1779828592.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: Stephen Miller reveals how America's welfare system was ransacked by fraudsters who took advantage of the U.S. and its generous programs meant to help the most vulnerable:
+
+"All of the systems in our country... were set up based on the honor system. They're set up based on the idea that you could trust the average person through their own morality, to abide by the rules and comply with the law."
+
+"We take your word for it. If you fill out a piece of paper and you say your kids are hungry, you are going to get food stamps. We don't check, as a country, if you even have kids. In fact, as basic as that, we don't even check if you even have children, you would just start getting the checks."
+
+"What's happened to our country is we became a society... where you have a large number of people that are not following the honor system, they're not playing by the rules, they're not abiding by our laws. And the amount that has been fleeced from us is in the hundreds of billions of dollars."
+</div>
+
+## pm_afshaa — post 91590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه از سرعت سرورا راضین میتونین از lex vpn که سرورارو داره به صورت رایگان بهمون میرسونه حمایت کنین @Lex_Server @Lex_Server
+</div>
+
+## pm_afshaa — post 91589
+
+<div align="center">
+  <a href="https://t.me/pm_afshaa/91589" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نپسترنت نامحدود وصل رو تمامی سرورا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه از سرعت سرورا راضین میتونین از lex vpn که سرورارو داره به صورت رایگان بهمون میرسونه حمایت کنین @Lex_Server @Lex_Server
+</div>
+
+## pm_afshaa — post 91587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه از سرعت سرورا راضین میتونین از lex vpn که سرورارو داره به صورت رایگان بهمون میرسونه حمایت کنین @Lex_Server @Lex_Server
+</div>
+
+## pm_afshaa — post 91586
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://f479f518-b927-4516-9723-52b27012aebd@185.143.234.235:2053?path=%3Fed%3D2048&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&host=dl.lexwill.site&fp=chrome&type=ws&allowInsecure=0&sni=dl.lexwill.site#Pmtv متصل سرعت بالا 
+💧 Rainbet.com…
+</div>
+
+## pm_afshaa — post 91585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://f479f518-b927-4516-9723-52b27012aebd@185.143.234.235:2053?path=%3Fed%3D2048&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&host=dl.lexwill.site&fp=chrome&type=ws&allowInsecure=0&sni=dl.lexwill.site#Pmtv متصل سرعت بالا 
+💧 Rainbet.com…
+</div>
+
+## pm_afshaa — post 91584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://4bebe55d-a34f-46f2-90ec-c292248c3076@weysam.luxurygaming1.ir:80?path=%2F&security=none&encryption=none&host=weysam.luxurygaming1.ir&type=ws#pmtv متصل سرعت بالا برای تمام اوپراتور ها 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom…
+</div>
+
+## pm_afshaa — post 91583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://f479f518-b927-4516-9723-52b27012aebd@185.143.234.235:2053?path=%3Fed%3D2048&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&host=dl.lexwill.site&fp=chrome&type=ws&allowInsecure=0&sni=dl.lexwill.site#Pmtv
+
+متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دمت گرم سرعت نپسترا خداسسس
+</div>
+
+## pm_afshaa — post 91581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دمت گرم سرعت نپسترا خداسسس
+</div>
+
+## pm_afshaa — post 91580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://4bebe55d-a34f-46f2-90ec-c292248c3076@weysam.luxurygaming1.ir:80?path=%2F&security=none&encryption=none&host=weysam.luxurygaming1.ir&type=ws#pmtv
+
+متصل سرعت بالا برای تمام اوپراتور ها
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خامنه ای کشته شد
+</div>
+
+## pm_afshaa — post 91578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خامنه ای کشته شد
+</div>
+
+## pm_afshaa — post 91577
+
+<div align="center">
+  <a href="https://t.me/pm_afshaa/91577" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نپسترنت v2ray پرسرعت
+🚀
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91576
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+PMTV NEWS🦁☀️.npvt
+</div>
+
+## pm_afshaa — post 91575
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+trojan://humanity@104.16.7.70:443?security=tls&sni=www.calmloud.com&alpn=http%2F1.1&fp=chrome&type=ws&host=www.calmloud.com&path=%2Fassignment#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+وصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91574
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میبینم مادر عمومیا به زدن ری اکت منفی افتادن😂😂
+</div>
+
+## pm_afshaa — post 91573
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://6af5890f-5267-40ed-bc60-1bd3ee31a88b@45.38.23.87:8080?encryption=none&security=none&type=ws&path=%2F#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نامحدود سرعت موشکی
+🚀
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91570
+
+<div align="center">
+  <a href="https://t.me/pm_afshaa/91570" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نپسرنت نا محدود متصل سرعت موشکی
+🚀
+
+بفرستین بقیه هم وصل شن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://b0f0bd25-1ff4-4644-827d-5f9675d6c5b6@104.253.134.125:21685?encryption=none&security=none&type=ws&path=%2F#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نامحدود بفرستین برا بقیه هم وصل شن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5002
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5002_1779828597.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📌 کار ترامپ با جمهوری اسلامی تمام نشده است.
+متاسفانه فضای رسانه‌ای و شبکه‌های اجتماعی مملو از اخباری است که موج ناامیدی را تزریق می‌کند. بسیاری از کارشناسان و تحلیل‌گرانی که سیاست کلان بین‌الملل را صرفا در فضای خبری و رسانه‌ای و شبکه های اجتماعی جست‌وجو می‌کنند، فراموش می‌کنند که این فضا از ابتدا برای نمایش، فریب، پنهان‌کاری و مدیریت افکارعمومی شکل گرفته است؛ فضایی که در آن نمی‌توان هر خبر و روایتی را بدون هدف و نیت خاصی واقعی و بی‌ جهت دانست.
+
+توافقی که در رسانه‌های جمهوری اسلامی از آن می‌گویند، از نگاه آمریکا یک تسلیم‌‌نامه است یعنی ترامپ به دنبال تسلیم بی‌قید و شرط جمهوری اسلامی است و سرداران سپاه و تندروهای نظام نیز به خوبی می‌دانند که پذیرش چنین تسلیمی، در نهایت به معنای تن دادن به فروپاشی و سرنگونی نرم نظام خواهد بود به همین دلیل حاضر به پذیرش آن نیستند و شروطی را تعیین می کنند که عملا این توافق و یا بهتر بگوئیم تسلیم نامه ممکن نباشد.
+
+ترامپ نیز برای وادار کردن جمهوری اسلامی به پذیرش این تسلیم، از روش‌های گوناگون استفاده می‌کند و همچنان گزینه نظامی یکی از آن روش‌هاست؛ همان‌گونه که شب گذشته نیز حملات محدودی علیه جمهوری اسلامی انجام شد.
+اما نباید فراموش کنیم که در نهایت این مردم ایران هستند که کار را تمام خواهند کرد.
+
+#ترامپ #مذاکرات
+@DEJradio
+</div>
+
+## DEJradio — post 5001
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5001_1779828598.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑 
+⭕️ صدور دوباره احکام اعدام برای چهار تن از بچه‌های اکباتان، میلاد آرمون، محمدمهدی حسینی، مهدی ایمانی و نوید نجاران، سند دیگری از ماهیت جنایتکار رژیم جمهوری اسلامی است که برای حفظ قدرت، جوانان ایران را به قتل می‌رساند و از خون مردم برای بقای خود تغذیه می‌کند.
+رژیم ضحاکی جمهوری اسلامی، دادگاه را به ابزار سرکوب تبدیل کرده و اعدام، سلاحی برای ایجاد وحشت در جامعه است.
+سکوت جهان در برابر اعدام معترضان ایرانی، یک شکست اخلاقی و سیاسی است. هر روزی که جامعه جهانی در برابر این رژیم مماشات می‌کند، جمهوری اسلامی با جسارت و قساوت بیشتری جان جوانان ایرانی را می‌گیرد و سرکوب را گسترش می‌دهد.
+تا زمانی که این رژیم اهریمنی پابرجاست، تروریسم، گروگان‌گیری، افراط‌گرایی و کشتار حکومتی در ایران، منطقه و جهان پایان نخواهد یافت.
+این رژیم سرچشمه بی‌ثباتی و خشونت در خاورمیانه است و بهای بقای آن را مردم ایران با جان خود می‌پردازند.
+بچه‌های اکباتان نماد نسلی هستند که جمهوری اسلامی از آن وحشت دارد؛ نسلی که دیگر حاضر نیست زیر سایه ترس و سرکوب زندگی کند.
+
+#بچه_های_اکباتان #شاهزاده_رضا_پهلوی
+@DEJradio
+</div>
+
+## DEJradio — post 5000
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5000_1779828599.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 پیام یک شهروند:
+یه‌دونه موز خریدم ۱۸۰ هزار تومن!
+
+#موز #تورم
+@DEJradio
+</div>
+
+## DEJradio — post 4999
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4999_1779828601.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 گیدئون سعار وزیر خارجه اسرائیل، در واکنش به پستی منتسب به مجتبی خامنه‌ای که موجودیت اسرائیل را تهدید کرده بود، در شبکه ایکس نوشت:
+«آشنا به نظر می‌رسد. یادم هست فردی با نام‌خانوادگی مشابه قبلا چنین حرف‌هایی می‌زد. راستی، کجایی؟»
+
+خامنه‌ای در پیامی گفته بود، «اسرائیل غده سرطانی است که به پایانش نزدیک می‌شود.»
+
+#موشعلی #موشتبا
+@DEJradio
+</div>
+
+## VahidOnline — post 75739
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75739_1779828602.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ متنی که ۸ روز پیش منتشر کرده بود رو دوباره پست کرد.
+
+ترجمه ماشین:
+اگر ایران تسلیم شود، اعتراف کند که نیروی دریایی‌اش از بین رفته و در کف دریا آرمیده، و نیروی هوایی‌اش دیگر در میان ما نیست؛ و اگر کل ارتشش از تهران بیرون بیاید، سلاح‌ها را زمین بگذارد و دست‌ها را بالا ببرد، در حالی که هر کدام فریاد می‌زنند «تسلیمم، تسلیمم» و با هیجان پرچم سفیدِ نمادین را تکان می‌دهند؛ و اگر تمام رهبران باقی‌مانده‌اش همه «اسناد تسلیم» لازم را امضا کنند و شکست خود را در برابر قدرت و نیروی عظیم ایالات متحده باشکوه آمریکا بپذیرند، نیویورک تایمز شکست‌خورده، چاینا استریت ژورنال، همان وال‌استریت ژورنال، سی‌ان‌ان فاسد و حالا بی‌اهمیت، و همه دیگر اعضای رسانه‌های جعلی، تیتر خواهند زد که ایران یک پیروزی استادانه و درخشان بر ایالات متحده آمریکا به دست آورد و اصلاً هم رقابت نزدیک نبود.
+
+دموکرات‌ها و رسانه‌ها کاملاً راه خود را گم کرده‌اند. آن‌ها به‌کلی دیوانه شده‌اند!!!
+
+رئیس‌جمهور دی‌جی‌تی
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87685
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87685_1779828602.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز
+جمهوری اسلامی درخواست ۲۴ میلیارد دلار برای هر توافقی با آمریکا کرده است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 339161
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339161_1779828605.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی با انتشار بیانیه‌ای در واکنش به صدور حکم اعدام برای چهار شهروند ایرانی، نوشت: «صدور دوباره احکام اعدام برای چهار تن از بچه‌های اکباتان، میلاد آرمون، محمدمهدی حسینی، مهدی ایمانی و نوید نجاران، سند دیگری از ماهیت جنایتکار رژیم جمهوری اسلامی است که برای حفظ قدرت، جوانان ایران را به قتل می‌رساند و از خون مردم برای بقای خود تغذیه می‌کند.»
+
+در این بیانیه آمده است: «رژیم ضحاکی جمهوری اسلامی، دادگاه را به ابزار سرکوب تبدیل کرده و اعدام، سلاحی برای ایجاد وحشت در جامعه است.»
+
+دفتر رسانه‌ای شاهزاده رضا پهلوی نوشت: «سکوت جهان در برابر اعدام معترضان ایرانی، یک شکست اخلاقی و سیاسی است. هر روزی که جامعه جهانی در برابر این رژیم مماشات می‌کند، جمهوری اسلامی با جسارت و قساوت بیشتری جان جوانان ایرانی را می‌گیرد و سرکوب را گسترش می‌دهد.»
+https://iranintl.com/202605265248
+</div>
+
+## IranIntlTV — post 339160
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339160_1779828606.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت مخابرات اعلام کرد اینترنت بین‌الملل برای مشترکان این شرکت برقرار شده و نت‌بلاکس در شبکه ایکس نوشت میزان دسترسی به اینترنت بین‌المللی در ایران به ۸۶ درصد رسیده است. این در حالی است که ساعاتی پیش دیوان عدالت اداری، زیر نظر قوه قضاییه جمهوری اسلامی، اعلام کرد اجرای مصوبه اتصال اینترنت را متوقف کرده است.
+
+
+گفت‌وگو با سحر تحویلی، پژوهشگر حوزه فناوری اطلاعات و نجات بهرامی، تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 339159
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339159_1779828609.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه، گفت مذاکره‌کنندگان جمهوری اسلامی در چارچوب تفاهم احتمالی با آمریکا، دنبال آزادسازی ۲۴ میلیارد دلار از دارایی‌های بلوکه‌شده ایران هستند؛ پولی که به گفته منبع نزدیک به تیم مذاکره‌کننده، باید در جریان مذاکرات آزاد شود.
+
+گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339158
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339158_1779828611.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افیخای ادرعی، سخنگوی ارتش اسرائیل، در شبکه ایکس از ساکنان هفت شهر و روستا در جنوب لبنان خواست برای حفظ جان خود این مناطق را ترک کنند.
+
+سخنگوی عرب‌زبان ارتش اسرائیل با هشدار به ساکنان شهرها و روستاهای طورا، دیر قانون النهر، بدیاس، برج رحال، معرکه، العباسیه و طیر دبا، نوشت: «در پی نقض توافق آتش‌بس از سوی حزب‌الله، ارتش اسرائیل ناچار است با قدرت علیه آن اقدام کند. ارتش قصد آسیب رساندن به شما را ندارد.»
+
+افیخای ادرعی تاکید کرد: «هر فردی که در نزدیکی نیروها، تاسیسات یا تجهیزات نظامی حزب‌الله حضور داشته باشد، جان خود را به خطر می‌اندازد.»
+https://iranintl.com/202605261988
+</div>
+
+## IranIntlTV — post 339157
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339157_1779828612.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت مخابرات از برقراری کامل اینترنت بین‌الملل برای مشترکان خبر داد. معاون وزیر ارتباطات گفت روند وصل شدن اینترنت در حال انجام است و تا ۲۴ ساعت آینده کامل می‌شود، اما دیوان عدالت اداری اجرای مصوبه اتصال را متوقف کرده است.
+
+گفت‌وگو با سحر تحویلی، پژوهشگر در حوزه فناوری اطلاعات
+@iranintltv
+</div>
+
+## IranIntlTV — post 339156
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339156_1779828614.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در تروث سوشال نوشت اگر جمهوری اسلامی تسلیم شود، نابودی نیروی دریایی و هوایی خود را بپذیرد، نیروهایش را از تهران خارج کند و مقام‌هایش اسناد تسلیم را امضا کنند، «رسانه‌های جعلی» مانند نیویورک‌تایمز، وال‌استریت ژورنال و سی‌ان‌ان باز هم این را پیروزی ایران مقابل آمریکا توصیف خواهند کرد.
+https://iranintl.com/202605263111
+</div>
+
+## IranIntlTV — post 339155
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339155" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: نشست کم‌سابقه دولت آمریکا در کمپ‌ دیوید برای بررسی جنگ ایران
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339154
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339154" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: مضحکه‌ای به نام رییس‌جمهور در جمهوری اسلامی
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339153
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339153_1779828616.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مضحکه‌ای به نام رییس‌جمهور در جمهوری اسلامی
+
+«چشم‌انداز با مهدی مهدوی‌آزاد»
+
+تماشای نسخه کامل این برنامه در یوتیوب:
+
+https://youtu.be/5g8yvPI6ZIg
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 339152
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از اولین روز کاهش محدودیت و قطع اینترنت- سه‌شنبه ۵ خرداد ۱۴۰۶
+
+🔹تازگی تو استان کردستان انگار اینترنت داره وصل میشه، اما فقط وای‌فای.
+
+🔹من بابت وصل شدن اینترنت خوشحال نیستم، چون ۴۰ هزار نفر دیگه هیچ‌وقت آنلاین نمی‌شن. طرح اینترنت پرو شکست خورد. سپاس از کسانی که تن به این خفت و خواری ندادن و متأسفم برای کسانی که بهش تن دادن.
+
+🔹من تازه تونستم وصل بشم. یه دختر دهه‌نودی هستم. حتی منم دیگه خسته شدم، هر روز اوضاع داره بدتر و بدتر میشه. فقط امیدوارم در نهایت همه‌مون آزادی ایرانمون رو ببینیم. جاوید شاه.
+
+🔹بالاخره اینترنت وصل شده، البته با هزار تا بدبختی و سرعت پایین، اونم فقط با مخابرات.
+
+🔹قربون دستت که دستور دادی اینترنت بین‌الملل وصل شه. حالا بی‌زحمت دستور بده اونایی که کسب‌وکار اینترنتیشون نابود شد برگردن سر کارشون، اونایی که زندگیشون از هم پاشید برگردن سر خونه و زندگیشون، اونایی که به خاطر اجاره خونه آواره خیابون شدن برگردن تو خونه‌هاشون.
+
+🔹از وصل شدن اینترنت بین‌الملل برای عموم مردم خرسندم، این حق طبیعی و اولیه هر شهرونده. اتفاقات بسیار خوب و روشنی در انتظار پارسیان و این خاکه، کمی منتظر بمونید. جاوید شاه، پاینده ایران.
+
+🔹بعد چند روز اینترنت‌ها رو باز کردن، فکر کردن می‌تونن با اینترنت گولمون بزنن.
+
+🔹بالاخره بعد از چند وقت تونستیم به اینترنت وصل بشیم، خدا رو شکر. به یاد جاویدنام‌ها.
+
+🔹سلام، بالاخره وصل شدیم، ولی این حق ما نبود که ۸۸ روز قطع باشیم.
+
+🔹از بجنورد: خواستم به همه کسانی که امکان استفاده از اینترنت پرو داشتن ولی شرافتمندانه انتخابش نکردن درود بفرستم. آزادی بیشتر از همه حق شماست.
+
+🔹واسه وصل شدن اینترنت زیاد خوشحال نباشین. اینترنت رو وصل کردن که مزرعه‌های ماینرشون رو فعال کنن و این یعنی روزی هفت، هشت ساعت قطعی برق.
+
+🔹درود، بازگشایی اینترنت رو بعد از ۸۸ روز قطعی گسترده تبریک می‌گم. به امید اینکه روزی شاه رضا پهلوی رو از نزدیک ببینم.
+
+🔹سلام، بعد از ۹۰ روز از محلات، واسه وصل شدن چیزی که حق هر آدمیه باید ذوق کنیم.
+
+🔹الان که اینترنت وصل شده، جاویدنامامون رو بیشتر یاد کنیم. به امید آزادی.
+
+🔹بعد از هشتاد و خورده‌ای روز با بدبختی وصل شدیم. بازم مثل همیشه متوجه شدیم که هیچ‌کس به فکر ما نیست و تهش خودمونیم و خودمون. هر چیزی به حالت قبلش برگرده، ما دیگه برنمی‌گردیم.
+
+🔹امروز (۵ خرداد) وصل شدم بعد از سه ماه. فقط مردم عزیزم، تورو خدا ناامید نشید، این آخرین نبرده.
+
+🔹بعد از ۸۸ روز قطعی اینترنت بالاخره وصل شدم. خواستم بگم ناامید نشید، نور بر تاریکی پیروزه. جاوید شاه.
+
+🔹مردم ایران، اینترنت حق طبیعی ماست. خوشحال باشید، ولی فکر نکنین امتیازیه که بهمون دادن، تسلیم نمیشیم.
+</div>
+
+## IranIntlTV — post 339151
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339151_1779828619.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان اسرائیل گزارش داد در پی گسترش درگیری‌ها در لبنان و همزمان با مذاکرات آمریکا و جمهوری اسلامی، دونالد ترامپ و بنیامین نتانیاهو تلفنی گفت‌وگو کردند.
+
+همزمان کانال ۱۲ اسرائیل خبر داد که گفت‌وگوی ترامپ و نتانیاهو پس از نشست کابینه اسرائیل که حدود دو ساعت و نیم طول کشید، انجام شده است.
+https://iranintl.com/202605264065
+</div>
+
+## IranIntlTV — post 339150
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339150_1779828620.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم به نقل از یک منبع آگاه نزدیک به تیم مذاکره‌کننده حکومت ایران گزارش داد مذاکره‌کنندگان جمهوری اسلامی به دنبال آزادسازی ۲۴ میلیارد دلار در چارچوب یادداشت تفاهم احتمالی با آمریکا هستند.
+
+گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال و آرام حسامی استاد علوم سیاسی کالج مونتگومری
+@iranintltv
+</div>
+
+## IranIntlTV — post 339149
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339149_1779828624.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یسرائیل کاتس، وزیر دفاع اسرائیل، در شبکه ایکس اعلام کرد ارتش این کشور به دستور بنیامین نتانیاهو و او، محمد عوده، رهبر شاخه نظامی حماس و از طراحان حمله هفتم اکتبر، را در غزه هدف قرار داده است.
+
+وزیر دفاع اسرائیل اعلام کرد عوده مسئول کشته، ربوده و زخمی شدن شمار زیادی از شهروندان اسرائیلی و نیروهای ارتش این کشور بوده است.
+
+او افزود: «ما به تعقیب همه کسانی که در حمله هفتم اکتبر نقش داشتند ادامه خواهیم داد؛ دیر یا زود، اسرائیل همه آن‌ها را پیدا خواهد کرد.»
+
+همچنینن بنیامین نتانیاهو، نخست‌وزیر اسرائیل اعلام کرد که اسرائیل به فرمانده جدید شاخه نظامی حماس در غزه حمله کرده است.
+https://iranintl.com/202605265269
+</div>
+
+## IranIntlTV — post 339147
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339147_1779828625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه نیویورک‌ تایمز به نقل از دو مقام آمریکایی نوشت که حملات نظامی آمریکا به هدافی در جنوب ایران در شامگاه دوشنبه پس از آن انجام شد که تحلیلگران اطلاعاتی مجموعه‌ای از اقدامات نظامی جمهوری اسلامی را شناسایی کردند که به‌طور «بالقوه تهدیدآمیز» بود.
+
+این رسانه در گزارشی کوتاه که شامگاه سه‌شنبه منتشر شد، نوشت این مقام‌ها گفتند جمهوری اسلامی چند پهپاد انتحاری را در نزدیکی شماری از حدود ۲۴ ناو جنگی نیروهای آمریکا در محدوده دریای عمان و دریای عرب به پرواز درآورده بودند. این ناوها در اجرای عملیات محاصره دریایی بندرهای جنوب ایران نقش دارند.
+
+به گفته این منابع که به دلیل حساسیت مسائل عملیاتی نخواستند نامشان فاش شود، تحلیلگران اطلاعاتی آمریکا تحرکاتی را در برخی از مواضع موشک‌های زمین‌به‌هوای جمهوری اسلامی در نزدیکی تنگه هرمز شناسایی کردند که هواپیماهای تهاجمی مستقر در خشکی و ناوهای هواپیمابرِ فعال در عملیات محاصره دریایی را تهدید می‌کرد.
+
+ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید.
+https://iranintl.com/202605265826
+</div>
+
+## IranIntlTV — post 339146
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339146_1779828626.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339145
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339145_1779828627.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال درباره تجمعات شبانه حامیان حکومت گفت که آن‌ها برای برنج و روغن تجمع می‌کنند اما مردم معترض در انقلاب ملی برنج‌ را زیر پای خود له کردند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 339144
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339144_1779828630.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» گفت: «علی خامنه‌ای با نحوه برخورد با جایگاه ریاست‌جمهوری، این مقام را عملا بی‌اعتبار کرده است. مواضع مسعود پزشکیان درباره مذاکره و جنگ جدی گرفته نمی‌شود و حتی عذرخواهی او از کشورهای عربی نیز با واکنش تند داخلی روبه‌رو شد.»
+@iranintltv
+</div>
+
+## Shin_Persian — post 6254
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 26 May 2026 20:45:59 UTC
+
+So, Mohammed Odeh, the new commander of the Izziddin Al Qassam (Military wing of Hamas) is DEAD.
+
+فارسی
+
+بنابراین، محمد عوده، فرمانده جدید گردان‌های عزالدین قسام (شاخه نظامی حماس) کشته شد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6253
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6253_1779828633.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DefenceGeek 🇬🇧 ✓ @DefenceGeek Tue, 26 May 2026 20:20:51 UTC A New Movement - Coronet East 024 #FreeIran‌ --- Operation EPIC FURY / Project FREEDOM --- KC-46A "BOBBY81" 19-46061 #AE5FA8 KC-46A "BOBBY82" 19-46007 #AE574D have launched on mission code for…
+</div>
+
+## Shin_Persian — post 6252
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Tue, 26 May 2026 20:20:51 UTC
+
+A New Movement - Coronet East 024 #FreeIran‌
+--- Operation EPIC FURY / Project FREEDOM ---
+
+KC-46A "BOBBY81" 19-46061 #AE5FA8
+KC-46A "BOBBY82" 19-46007 #AE574D
+
+have launched on mission code for Coronet East 024. No idea if they're dragging someone already or if this is a positioning flight, but we'll find out soon no doubt!
+
+@MATA_osint
+
+فارسی
+
+یک جنبش جدید - Coronet East 024 #FreeIran
+--- عملیات خشم حماسی (Operation EPIC FURY) / پروژه آزادی (Project FREEDOM) ---
+
+KC-46A "BOBBY81" 19-46061 #AE5FA8
+KC-46A "BOBBY82" 19-46007 #AE574D
+
+با کد مأموریت Coronet East 024 به پرواز درآمدند. مشخص نیست که آیا همین حالا در حال اسکورت (سوخت‌رسانی) کسی هستند یا این یک پرواز موقعیت‌دهی است، اما بدون شک به زودی متوجه خواهیم شد!
+
+@MATA_osint
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6251
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6251_1779828634.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 26 May 2026 19:39:03 UTC
+
+Well, don't blame me, he said it again :))
+
+فارسی
+
+خب، من را مقصر ندانید، او دوباره این را گفت :))
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6250
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6250_1779828635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Tue, 26 May 2026 19:35:35 UTC President Trump @POTUS: "If Iran surrenders, admits their Navy is gone and resting at the bottom of the sea, and their Air Force is no longer with us, and if their entire Military walks out of Tehran, weapons…
+</div>
+
+## Shin_Persian — post 6249
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 26 May 2026 19:35:35 UTC
+
+President Trump @POTUS:
+"If Iran surrenders, admits their Navy is gone and resting at the bottom of the sea, and their Air Force is no longer with us, and if their entire Military walks out of Tehran, weapons dropped and hands held high, each shouting “I surrender, I surrender” while wildly waving the representative White Flag, and if their entire remaining Leadership signs all necessary “Documents of Surrender,” and admit their defeat to the great power and force of the magnificent U.S.A., The Failing New York Times, The China Street Journal (WSJ!), Corrupt and now Irrelevant CNN, and all other members of the Fake News Media, will headline that Iran had a Masterful and Brilliant Victory over The United States of America, it wasn’t even close. The Dumacrats and Media have totally lost their way. They have gone absolutely CRAZY!!! President DJT"
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+«اگر ایران تسلیم شود، اعتراف کند که نیروی دریایی‌شان نابود شده و در کف دریا آرمیده است، و نیروی هوایی‌شان دیگر در میان ما نیست، و اگر تمام نظامیانشان از تهران خارج شوند، در حالی که سلاح‌ها را زمین گذاشته و دست‌ها را بالا برده‌اند و هر یک فریاد می‌زنند "من تسلیم هستم، من تسلیم هستم" و همزمان دیوانه‌وار پرچم سفیدِ نمادین را تکان می‌دهند، و اگر تمام رهبریِ باقی‌مانده‌شان تمام "اسناد تسلیم" لازم را امضا کنند و به شکست خود در برابر قدرت و نیروی عظیم ایالات متحده (U.S.A.) باشکوه اعتراف کنند، آن وقت روزنامه فشل نیویورک تایمز، چاینا استریت ژورنال (وال استریت ژورنال - WSJ!)، سی‌ان‌ان (CNN) فاسد و اکنون بی‌اهمیت، و تمام دیگر اعضای رسانه‌های اخبار جعلی، تیتر خواهند زد که ایران پیروزی استادانه و درخشانی بر ایالات متحده آمریکا داشته است و حتی رقابت نزدیکی هم نبود. دموکرات‌ها و رسانه‌ها کاملاً راه خود را گم کرده‌اند. آن‌ها کاملاً دیوانه شده‌اند!!! رئیس‌جمهور دی‌جی‌اتی (DJT)»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6248
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 26 May 2026 18:55:10 UTC
+
+PM @netanyahu has left the ministerial meeting to talk with @POTUS on the phone.
+
+فارسی
+
+نخست‌وزیر @netanyahu جلسه وزرا را برای گفتگوی تلفنی با @POTUS (رئیس‌جمهور ایالات متحده) ترک کرده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4435
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود؛ اکنون که اینترنت تا حدودی متصل شد، این را می‌نویسم.
+
+در این چند هفته اخیر، ترجیح دادم مانند آنان که در ایران به جهان آزاد دسترسی ندارند، من هم برای مدتی دور از شبکه‌های اجتماعی باشم تا شاید برخی از مسائل را نبینم یا حداقل کمتر ببینم.
+
+مشاهده روند فعالیت برخی از دوستان و همچنین زبان جدید جامعه در فقدان حضور ایرانیانِ داخل کشور، عمیقاً من را از ادامه‌ی حضور در این فضا نااُمید کرد و دو راه بیشتر نداشتم؛
+
+یا سکوت و صبر به امید یک بازنگریِ جمعی، یا نقدهایی که شاید آنچنان هم در فضای جدا افتاده از درون ایران، پُرفایده و اثرگذار نبود.
+
+متوجه شدم با قطع و عدم دسترسی یکسان جامعه به اینترنت، علی‌الخصوص اکثریتی که حتی توان خرید وی‌پی‌ان‌های نجومی را ندارند، جنس دغدغه‌ها در کُنش سیاسی ایرانیان بسیار متفاوت از گذشته می‌شود و گاهی آنقدر در فرعیات غرق می‌شوند که اصل هدف را فراموش می‌کنند.
+
+امروز، خوشحالم که می‌بینم اینترنت، هرچند نصفه و نیمه، اما در حال باز شدن است و دوباره کسانی حضور دارند که دغدغه‌هایشان، متمرکز بر آنچه در ایران رُخ می‌دهد است.
+
+نمی‌دانم اینترنت به قبل از جنگ، یا قبل از کشتار دِی برخواهد گشت یا خیر، اما می‌دانم ما هرگز به قبل از آن تاریخ برنخواهیم گشت.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 218742
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218742_1779828636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مهدی فتا پور: هم آمریکا و هم جمهوری اسلامی خواهان توافق هستند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218741
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218741_1779828637.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نازیلا گلستان در برنامه تفسیر خبر: بخش ولایت فقیه جمهوری اسلامی از بین رفته است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218740
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218740_1779828639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کامبیز غفوری در برنامه تفسیر خبر: دنیا کمتر به قطر اعتماد می کند تا امارات متحده عربی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218739
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218739_1779828640.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از پول‌های بلوکه شده ایران در قطر
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218738
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ: اگر نیروهای جمهوری اسلامی پرچم سفید را بالا بگیرند باز «رسانه‌های جعلی» می‌گویند رژیم «استادانه پیروز» شد
+
+◾️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز سه‌شنبه از نحوه پوشش اخبار مربوط به عملیات نظامی «خشم حماسی» آمریکا علیه جمهوری اسلامی در برخی رسانه‌ها انتقاد کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154178.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218737
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در گفت‌وگو با رضا علیجانی، روزنامه‌نگار از پاریس، به فضاسازی رسانه‌ای دولت و حاکمیت درباره بی‌اثر بودن محاصره دریایی و آزادسازی دارایی‌ها پرداختیم. به گفته او، جمهوری اسلامی در مواجهه با آمریکا «گربه‌ای بود که سعی کرد صدای شیر دربیاورد».
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بیانیه مشترک نتانیاهو و کاتس: به فرمانده جدید شاخه نظامی حماس حمله کردیم
+
+◾️بنیامین نتانیاهو به همراه یسرائیل کاتز، وزیر دفاع وزیر دفاع اسرائیل در شامگاه سه‌شنبه ۵ خرداد با انتشار بیانیه‌ای مشترک، از هدف قرار دادن محمد عوده، فرمانده جدید «کتائب عزالدین قسام» شاخه نظامی حماس در غزه خبر دادند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/ghaza-hamas-7october-irgc-iran/8154137.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218735
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در برنامه تفسیر خبر امروز، مهدی آقازمانی با کارشناسان مهمان، درباره تاکیذ پرزیدنت ترامپ بر نابودی کامل اورانیو غنی شده جمهوری اسلامی، بازه زمانی چند روزه برای رسیدن به تفاهم از سوی وزیر خارجه آمریکا، پیام منتسب به مجتبی خامنه‌ای و تکرار تهدید‌ها و شعارهای رایج در جمهوری اسلامی و گفتگو می‌کند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218734
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پاسخ سنتکام به ادعاهای رسانه‌ای: آمریکا کشتی‌های تجاری را در تنگه هرمز اسکورت نمی‌کند
+
+◾️فرماندهی مرکزی ایالات متحده، سنتکام، سه‌شنبه ۵ اردیبهشت برخی ادعاهای رسانه‌ای را رد کرد و اعلام کرد که «پروژه آزادی» از سرگرفته نشده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/centcom-project-freedom-strait-of-hormuz-commercial-ships/8154112.html
+</div>
+
+## FarsiVOA — post 218733
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم ملی فوتبال جمهوری اسلامی و چالش بزرگ در جام جهانی ۲۰۲۶: اقامت در مکزیک، بازی در خاک آمریکا؛ گفت‌وگو با فرید اشرفیان
+</div>
+
+## DW_Farsi — post 125172
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125172_1779828642.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سنتکام شروع دوباره "پروژه آزادی" در تنگه هرمز را تکذیب کرد
+
+در حالی که روزنامه وال‌استریت ژورنال به نقل از مقام‌های نظامی آمریکا که نامشان فاش نشد گزارش داد که این کشور قصد ازسرگیری همراهی کشتی‌های تجاری در تنگه هرمز در قالب "پروژه آزادی" را دارد سنتکام این خبر را تکذیب کرده است.
+
+سنتکام، فرماندهی مرکزی ایالات متحده سه‌شنبه ۲۶ مه طی پیامی در صفحه کاربری خود در شبکه ایکس چنین ادعایی که در گزارش رسانه‌ها بازتاب یافته را "نادرست" خواند و متذکر شد: «پروژه‌ آزادی ازسر گرفته نشده و نیروهای آمریکایی در حال حاضر شناورهای تجاری را در عبور از تنگه هرمز همراهی نمی‌کنند.»
+عملیات "پروژه آزادی" اوایل ماه جاری میلادی (مه) تنها ۳۶ ساعت پس از آغاز، متوقف شده بود.
+
+در شرایطی که گفت‌وگوهای میان آمریکا و ایران بر سر تمدید احتمالی آتش‌بس و دستیابی به توافقی گسترده‌تر به مرحله‌ای حساس رسیده، وال‌استریت ژورنال گزارش داده بود که نیروی دریایی آمریکا قصد دارد طی روزهای آینده حدود ۱۲ فروند شناور، از جمله ابرنفت‌کش‌ها و کشتی‌های کانتینری را برای عبور از این آ‌ب‌راه حیاتی حمل‌ونقل نفت، همراهی کند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15086
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15086_1779828643.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ محمد عوده فرمانده گردان قسام حماس توسط ارتش اسرائیل ترور شده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157588
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157588" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«حملات آمریکا به جنوب ایران و ابهام در مذاکرات پیش رو»
+
+🔸در حالی که میانجی‌گران پاکستانی و قطری در روزهای گذشته، برای پیشبرد توافق موقت و بازگشایی تنگه هرمز تلاش می‌کنند، حملات بامداد سه‌شنبه آمریکا به اهدافی درجنوب ایران و نزدیکی تنگه هرمز،‌ ابهاماتی را بر سر به نتیجه رسیدن این گفتگوها ایجاد کرده است. از سوی دیگر، میزان و نحوه آزادسازی منابع مسدودشده ایران از سوی آمریکا نیز، از دیگر موانع موجود در آغاز مذاکرات دو طرف عنوان شده است. در همین زمینه، ارزیابی امید معماریان، کارشناس مسائل ایران در اندیشکدهٔ داون «DAWN» در واشینگتن را جویا شده ایم.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20840
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20840" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص همراه اول مخابرات
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20839
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام دوستان من نتم تازه وصل شده آقای خامنه ای عید نوروز رو تبریک نگفتن اتفاقی افتاده خدایی نکرده؟
+</div>
+
+## IranianMinds — post 20838
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20838_1779828644.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نت‌بلاکس :
+در ایران ۸۶ درصد مردم تا الان وصل شدن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20837
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20837" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص همراه اول و مخابرات بقیه اینترنت ها هم تست کنید
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282130
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/282130" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه شصت دقیقه روز سه‌شنبه ۵ خرداد ۱۴۰۵
+
+این نسخه رادیویی برنامه شصت دقیقه تلویزیون فارسی بی‌بی‌سی است که هرشب بعد از پخش، با حجم کم از اپلیکیشن‌های پادگیر و صفحه تلگرام بی‌بی‌سی فارسی در دسترس است.
+
+
+با هشتگ BBCPersianRadio# با ما در ارتباط باشید
+</div>
+
+## BBCPersian — post 282129
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نتانیاهو بار دیگر درباره «تشدید حملات به لبنان» هشدار داد
+
+بنیامین نتانیاهو، نخست وزیر اسرائیل، روز سه‌شنبه بار دیگر تایید کرد که کشورش عملیات خود در لبنان را «تشدید» می‌کند.
+
+خبرنگار خبرگزاری فرانسه در نبطیه از حملات هوایی پس از هشدار در روز سه‌شنبه خبر داد و شاهد برخاستن ستون‌های دود از نقاط مختلف شهر بود.
+
+خبرگزاری دولتی لبنان اعلام کرد که یکی از حملات در نزدیکی یک بیمارستان دولتی بود و «خسارات قابل توجهی به بخش‌های بیمارستان» وارد کرده است.
+
+همزمان با گسترش عملیات اسرائیل به جنوب لبنان، حزب‌الله اعلام کرد که نیروهایش روز سه‌شنبه با نیروهای اسرائیلی که سعی داشتند به شهری مشرف به شهر نبطیه پیشروی کنند، مقابله کردند.
+
+حزب‌الله مسئولیت مجموعه‌ای از شلیک‌ پهپادها و موشک‌ها به نیروهای اسرائیلی در این شهر را بر عهده گرفته است.
+
+https://bbc.in/4uEhi80
+@bbcpersian
+</div>
+
+## BBCPersian — post 282128
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نماینده مجلس شورای اسلامی: قرار بود پول مسدود شده ایران از طریق روسیه وارد ایران شود
+
+احمد بخشایش اردستانی، عضو کمیسیون امنیت ملی و سیاست خارجی مجلس، در اظهاراتی به پول‌های مسدود شده ایران اشاره کرده است.
+
+او گفته است: «یک روایت این است که ایران می‌گوید ۲۵ میلیارد دلار بوده، اما آمریکایی‌ها گفته بودند فقط ۱۲ میلیارد دلار آن هم در قطر است.»
+
+این نماینده مجلس در ادامه گفته است: «حتی قرار بود چند روز پیش این پول از طریق روسیه وارد ایران شود، ولی آمریکایی‌ها مانع ایجاد کردند و الان مقدارش حدود ۱۲ میلیارد دلار است که در قطر قرار دارد. من تا اینجا این را می‌دانم.»
+
+بر اساس گزارش‌های رسمی، سفر هیئت ایرانی به ریاست محمدباقر قالیباف به قطر با هدف مذاکره بر سر برخی از دارایی‌های ایران بوده که به دلیل تحریم‌های ایالات متحده مسدود شده است.
+
+درباره نتایج این سفر گزارش رسمی منتشر نشده اما رسانه‌ها دیروز گفته بودند تفاهم‌هایی در این زمینه به دست آمده است.
+
+
+https://bbc.in/4uEhi80
+@bbcpersian
+</div>
+
+## BBCPersian — post 282127
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282127_1779828646.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سرخط خبرهای سه‌شنبه ۵ خرداد ۱۴۰۵
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من عادت ندارم همه چی با هم وصل باشه، هر چه سریعتر برق رو قطع کنید
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390273
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام دوستان من نتم تازه وصل شده آقای خامنه ای عید نوروز رو تبریک نگفتن اتفاقی افتاده خدایی نکرده؟
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390272
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏کانفیگ فروشا تو شوک رفتن چیزی نمیگن؛ قیمت رو آپدیت کن چاقال میخوام با ۵۰ هزار تومن ۱۰۰ گیگ بخرم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390271
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش سریال succession رو فراموش میکردم تا دوباره ببینمش
+تو هیچ سریالی انقدر حس های متفاوتی رو تجربه نکرده بودم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390270
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390270_1779828649.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاید باورتون نشه ولی ملت هنوز هم خوب کسخلن؛
+جلسه پاکسازی روح و روان که خداتومن هزینشه :
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390269
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390269_1779828653.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای بچه‌ها اینو !
+ما چرا ندیدیم لعنتیا 😂
+
+#عجب_وضع_کسشریه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390268
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390268_1779828655.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی‌رضا دبیر: کارمندان بهایی من‌وتو می‌تونن در صورت بیکاری، تو پارک دانشجو مشغول کار بشن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390267
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچها با عموهای وی‌پی‌ان فروشتون مهربون باشید، صلح این مملکت به یه گوز بنده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390266
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فروش سیگار به صورت نخی ممنوع شد
+دلیلش واسه این بوده که جوونا راحت به سیگار دسترسی نداشته باشن
+
++ کصخلا خب یه پاکت میگیرن کامل پاکتو میکشن
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390265
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390265_1779828656.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خلاصه جنگ ۴۰ روزه برای اونایی که تازه نتشون وصل شده:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390264
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390264_1779828658.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به مناسبت روز جهانی گوسفند(فردا)، کصننه عرازشه و سیمکارت سفیدا
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390263
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انگار از انفرادی آوردنت بند عمومی
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390262
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رمز پویای هفت رقمیم
+داره از موجودی چهار رقمیم محافظت میکنه...!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113187
+
+<div align="center">
+  <img src="telegram/content/Hranews_113187_1779828659.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تداوم محدودیت‌ها در اوین؛ وریشه مرادی از دسترسی به تماس تلفنی محروم شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – وریشه مرادی، زندانی سیاسی محبوس در زندان اوین، به صورت تنبیهی از حق استفاده از تلفن زندان محروم شد. این زندانی سیاسی پیشتر نیز از ملاقات با خانواده و وکلای خود محروم شده بود و این محدودیت همچنان ادامه دارد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، وریشه مرادی، زندانی سیاسی محبوس در زندان اوین از حق استفاده از تلفن زندان محروم شد.
+
+براساس اطلاعات دریافتی هرانا، خانم مرادی، از روز جاری به صورت تنبیهی از امکان دسترسی و استفاده از تلفن زندان منع شده‌ است.
+یک منبع مطلع در این خصوص اعلام کرد که این اقدام به دنبال سر دادن شعارهای اعتراضی نسبت به اجرای احکام اعدام، در محوطه هواخوری زندان اوین انجام شده است.
+
+ادامه مطلب
+
+#وریشه_مرادی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 122938
+
+<div align="center">
+  <a href="telegram/content/alonews_122938_1779828659.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۴ اسرائیل: از افراد درون این عکس(فرماندهان حماس) هیچکس زنده نمانده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122937
+
+<div align="center">
+  <a href="telegram/content/alonews_122937_1779828660.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویری از محمد عوده، فرمانده شاخه نظامی حماس که ساعاتی قبل در غزه ترور شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122936
+
+<div align="center">
+  <a href="telegram/content/alonews_122936_1779828660.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عوستاد خوش چشم: میتونیم بمب اتم درست کنیم و بجای اینکه بزنیم تو شهرها، بزنیم تو پایگاه‌های آمریکا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122935
+
+<div align="center">
+  <a href="telegram/content/alonews_122935_1779828660.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حالا مردم خودشون آنلاین شدن و دارن می‌بینن این حرام زاده های «سیم‌کارت سفید» تو این سه ماه چه مزخرفات و چرندیاتی رو به اسم مردم ایران جعل کردن و نشر دادن تو رسانه ها.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 122934
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈از کسایی که تو تجمعات شبانه شرکت کردن دارن میپرسن نظرتون با قطع دائم اینستاگرام چیه؟
+
+
+🔴و اما جواب حامیان حکومت:
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122933
+
+<div align="center">
+  <a href="telegram/content/alonews_122933_1779828661.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال‌استریت‌ژورنال: ایران به دنبال توافقی است که بدون واگذاری پیروزی به ترامپ، موجب آرامش اقتصادی شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122930
+
+<div align="center">
+  <a href="telegram/content/alonews_122930_1779828662.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 آتش‌سوزی گسترده شهری در فیلیپین را درنوردید و 489 خانواده را تحت تأثیر قرار داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122929
+
+<div align="center">
+  <a href="telegram/content/alonews_122929_1779828665.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 قیمت زمین و مسکن در ژاپن همچنان از سقف تاریخی خودش در اوایل دهه ۱۹۹۰ کمتر است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122928
+
+<div align="center">
+  <img src="telegram/content/alonews_122928_1779828665.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ فروشا:
+
+[@AloTweet]
+</div>
+
+## alonews — post 122926
+
+<div align="center">
+  <a href="telegram/content/alonews_122926_1779828666.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 همچنان در جهان ۲.۱ میلیارد نفر دسترسی به آب شیرین ندراند و مجمع جهانی اقتصاد تخمین می‌زند که نیاز جهانی به سرمایه‌گذاری کل تجمعی تا سال ۲۰۴۰ در زیرساخت‌های آب ۱۱.۴ تریلیون یورو است که ۶.۵ تریلیون یورو بیشتر از سطح سرمایه‌گذاری فعلی است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122925
+
+<div align="center">
+  <a href="telegram/content/alonews_122925_1779828666.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیوی تازه‌ای از پیکر جوانان جان‌باخته در دی‌ماه ۱۴۰۴ منتشر شده؛ تصاویری از سردخانه‌ای در خرم‌آباد، همراه با فریاد دردناک مردی که می گوید: « دو برادرم رو از ما گرفتند.»
+
+
+🔴این تصاویر فقط روایتِ درد نیست؛ یادآور بهایی‌ست که جوانان این سرزمین برای آزادی پرداختند.
+
+
+🤔 صدای یک ملت خاموش نمی‌شود. راهی که با امید و ایستادگی آغاز شده، با آزادی و پیروزی به پایان خواهد رسید.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 122924
+
+<div align="center">
+  <a href="telegram/content/alonews_122924_1779828669.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق رسانه‌های عبری، ساختار امنیتی اسرائیل از کشته شدن محمد عوده، رئیس ستاد تیپ‌های عزالدین قسام، اطمینان دارد.
+
+
+🔴هنوز هیچ تاییدیه رسمی منتشر نشده است، اما انتظار می‌رود که منتشر شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122923
+
+<div align="center">
+  <a href="telegram/content/alonews_122923_1779828669.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره: جهان اکنون به‌شدت محتاج توافق میان آمریکا و ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122922
+
+<div align="center">
+  <a href="telegram/content/alonews_122922_1779828670.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه ۱۲ اسرائیل : تو نهاد امنیتی، ترور محمد عودة تأیید شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122921
+
+<div align="center">
+  <a href="telegram/content/alonews_122921_1779828670.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چین توافق پایان جنگ ایران و‌آمریکا برای تأیید به شورای امنیت سازمان ملل ارائه خواهد کرد
+
+
+🔴چین: معتقدیم که پس از دستیابی به توافق، برای تأیید به شورای امنیت سازمان ملل ارائه خواهد شد تا مشروعیت و اقتدار داشته باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122920
+
+<div align="center">
+  <a href="telegram/content/alonews_122920_1779828670.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه آرتی: وزیر نفت هند می‌گوید پالایشگاه‌های این کشور متحمل زیان‌های روزانه می‌شوند و در صورت ادامه اختلالات مرتبط با جنگ ایران، افزایش بیشتر قیمت‌ها محتمل خواهد بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122919
+
+<div align="center">
+  <a href="telegram/content/alonews_122919_1779828670.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فعالیت ۱۰ فرودگاه مهم کشور (از جمله مهرآباد و امام خمینی ) و ۳ فرودگاه دیگر برای پروازهای حج، با هدف تسهیل خدمات هوانوردی شبانه‌روزی شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 22:16
 ---
 
