@@ -7,6 +7,1272 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 00:53
+---
+
+## VahidOOnLine — post 242485
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242485_1779917032.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش ایسنا، اسماعیل بقایی، سخنگوی وزارت خارجه، درباره تحولات قفقاز و طرح موسوم به «مسیر ترامپ برای صلح و شکوفایی بین‌المللی» (TRIPP)، گفت موضع جمهوری اسلامی درباره امنیت در قفقاز جنوبی تغییری نکرده و در این زمینه «هیچ شبهه‌ای وجود ندارد».
+او گفت جمهوری اسلامی از گسترش مراودات اقتصادی و بازگشایی مسیرهای ارتباطی استقبال می‌کند، اما نسبت به «نیات بدخواهانه» آمریکا سوءظن شدید دارد و مخالفت خود را با حضور «ناامن‌ساز» واشنگتن در قفقاز جنوبی اعلام کرده است.
+بر اساس این گزارش بقایی همچنین گفت قفقاز جنوبی همسایه مستقیم ایران است و جمهوری اسلامی صلح، ثبات و پیشرفت اقتصادی در این منطقه را بخشی از منافع ملی خود می‌داند.
+این اظهارات پس از آن مطرح شد که مارکو روبیو و آرارات میرزویان، وزرای خارجه آمریکا و ارمنستان، روز سه‌شنبه ۶ خرداد در ایروان این توافق‌نامه را امضا کردند. هدف این طرح، اتصال آسیای مرکزی به اروپا با دور زدن ایران و روسیه است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242484
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242484_1779917033.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه، درباره تحولات قفقاز و طرح موسوم به «TRIPP» (مسیر ترامپ برای صلح و شکوفایی بین‌المللی)، گفت موضع جمهوری اسلامی درباره امنیت در قفقاز جنوبی «روشن» است و هیچ شبهه‌ای در این خصوص وجود ندارد.
+
+او افزود جمهوری اسلامی از گسترش مراودات اقتصادی و رفع انسداد از مسیرهای مواصلاتی استقبال می‌کند، اما نسبت به «نیات بدخواهانه» آمریکا که سابقه «شرارت و تجاوزگری» در مناطق مختلف جهان دارد، سوءظن شدید دارد و مخالفت خود را با حضور «ناامن‌ساز» آن در قفقاز جنوبی صراحتا اعلام کرده است.
+
+بقائی همچنین گفت قفقاز جنوبی «همسایه بلاواسطه ایران» است و جمهوری اسلامی صلح، ثبات و پیشرفت اقتصادی در این منطقه را در راستای منافع ملی خود می‌داند.
+
+او افزود مداخله قدرت‌های فرامنطقه‌ای در تحولات منطقه، صلح، ثبات و منافع جمعی کشورهای منطقه را با چالش جدی مواجه می‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242483
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242483_1779917033.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، دولت هلند روز چهارشنبه ۷ خرداد در نامه‌ای به پارلمان این کشور اعلام کرد که یک فروند کشتی مین‌روب را به عنوان بخشی از عملیات ناتو به دریای مدیترانه اعزام می‌کند. این اقدام با هدف آمادگی برای استقرار سریع احتمالی در تنگه هرمز، در صورت توافق بر سر یک ماموریت بین‌المللی پس از پایان جنگ ایران، صورت می‌گیرد.
+وزیران دفاع و خارجه هلند در نامه‌ای به پارلمان این کشور اعلام کردند این کشتی از اواخر خرداد به گروه دائمی مقابله با مین ناتو ملحق خواهد شد و آمادگی‌ها برای ایفای نقش احتمالی هلند در تامین امنیت مسیرهای دریایی خلیج فارس ادامه دارد.
+بر اساس این گزارش، ناتو در حال آماده‌سازی تجهیزات و پشتیبانی لجستیکی در نزدیکی خلیج فارس است و هلند همچنین در حال بررسی مشارکت نیروهای تخصصی جستجو، غواصی، خنثی‌سازی مواد منفجره و اعزام نیرو به ائتلاف احتمالی آینده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242482
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242482_1779917034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سعید کوزه‌چی، سفیر جمهوری اسلامی در سئول، پس از احضار به وزارت خارجه کره جنوبی، نقش جمهوری اسلامی را در حمله به کشتی باری اچ‌ام‌ام نامو در تنگه هرمز رد کرد.
+
+پیش‌تر کره جنوبی اعلام کرد حمله به کشتی اچ‌ام‌ام نامو در اوایل این ماه احتمالا با استفاده از یک موشک ایرانی انجام شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242479
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242479_1779917034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تانکرترکرز، نهاد ردیابی نفتکش‌ها در تازه‌ترین گزارش خود اعلام کرد در پی محاصره دریایی آمریکا، نزدیک به ۶۰ میلیون بشکه نفت خام ایران در دریا متوقف شده و حدود شش میلیارد دلار درآمد نفتی فعلا به تهران نرسیده است.
+بر اساس اطلاعات منتشرشده از سوی این مجموعه، کاهش صادرات نفت ایران در هفته‌های اخیر باعث شده بخش قابل توجهی از نفت خام ایران روی نفتکش‌ها باقی بماند و امکان انتقال یا فروش آن با دشواری روبه‌رو شود. تانکرترکرز همچنین اعلام کرده هنوز تعداد زیادی نفتکش خالی برای بارگیری وجود دارد، اما همزمان با کاهش تولید نفت، میزان بارگیری نفتکش‌ها نیز افت کرده است.
+گزارش‌های منتشرشده در رسانه‌های بین‌المللی و داده‌های رهگیری دریایی نشان می‌دهد بخشی از نفتکش‌های ایرانی همچنان تلاش می‌کنند با خاموش کردن سیستم‌های رهگیری یا انتقال محموله‌ها در دریا، محدودیت‌ها را دور بزنند. با این حال، ارزیابی‌ها حاکی از آن است که فشار بر صادرات نفت ایران در مقایسه با ماه‌های گذشته افزایش یافته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242478
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242478_1779917035.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رویترز روز چهارشنبه ششم خرداد گزارش داد نیروهای امدادی در لائوس، کشوری در جنوب‌شرق آسیا، پنج نفر را که حدود یک هفته در غاری در استان زایسامبون گرفتار شده بودند، زنده پیدا کردند و عملیات جستجو برای یافتن دو نفر دیگر همچنان ادامه دارد.
+
+بر اساس گزارش رسانه‌های دولتی لائوس، این هفت نفر هفته گذشته برای جستجوی طلا وارد غار شده بودند، اما بارندگی شدید و رانش زمین راه خروج آن‌ها را مسدود کرد.
+
+ده‌ها امدادگر از لائوس و تایلند در عملیات نجات مشارکت دارند. یک گروه داوطلب تایلندی نیز از روز یکشنبه به این عملیات پیوسته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242477
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242477_1779917036.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تانکر ترکرز در شبکه ایکس اعلام کرد در پی محاصره دریایی آمریکا، نزدیک به ۶۰ میلیون بشکه نفت خام ایران متوقف شده و حدود شش میلیارد دلار درآمد نفتی در حال حاضر به تهران نمی‌رسد.
+
+این نهاد ردیابی نفتکش‌ها افزود هنوز نفتکش‌های خالی زیادی برای بارگیری نفت بیشتر وجود دارد، اما با کاهش تولید نفت، بارگیری نفتکش‌ها نیز کاهش یافته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12742
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12742_1779917037.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ حتما با پوشک بسته نگاه کنید⚠️
+میگن سیلوستر استالونه بعد از دیدن این ویدیو فروش آنلاین تمام فیلمهای رامبو رو متوقف کرد.
+@withyashar
+</div>
+
+## WithYashar — post 12741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا فیروزجا با پرچم فرانسه نفر اول شطرنج جهانو شکست داد
+@withyashar
+</div>
+
+## WithYashar — post 12740
+
+
+
+
+## WithYashar — post 12739
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عضو تیم رسانه‌ای هیئت مذاکراتی ایران: سفر قالیباف به قطر درباره آزادسازی ۱۲ میلیارد دلار از اموال بلوکه‌شده، موفقیت‌آمیز بود!
+@withyashar
+</div>
+
+## WithYashar — post 12738
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار جان احساس میکنم این جام جهانی امسال خیلی اتفاقات عجیب و غریبی میوفته ، دنیا باز هم خواهد دید که ما تا تهش پای ایران وایسادیم ☀️🦁 خواهیم دید چه خواهد شد !
+</div>
+
+## WithYashar — post 12737
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار جان
+احساس میکنم این جام جهانی امسال خیلی اتفاقات عجیب و غریبی میوفته ، دنیا باز هم خواهد دید که ما تا تهش پای ایران وایسادیم ☀️🦁
+خواهیم دید چه خواهد شد !
+</div>
+
+## WithYashar — post 12736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دایی جان، ایران همش دنبال پوله بخاطر این نیست که پول ندارن به ادماشون بدن؟ نمیشه جاهایی که ربط به دولت داره رو اعتصاب کنیم! و هر دفعه میگن قراره پولمون رو بدن تا انگار ساکتشون کنه.!!
+</div>
+
+## WithYashar — post 12735
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دایی جان، ایران همش دنبال پوله بخاطر این نیست که پول ندارن به ادماشون بدن؟ نمیشه جاهایی که ربط به دولت داره رو اعتصاب کنیم!
+و هر دفعه میگن قراره پولمون رو بدن تا انگار ساکتشون کنه.!!
+</div>
+
+## WithYashar — post 12734
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی جمعه پیش در نشستی با شماری از فعالان رسانه ای که ویدیو آن الان پخش شده گفت : تیشرت های سیاه یا ساواک به خصوص و هر چیزی غیر از تم اصلی شیر و خورشید نپوشید این جریان در کمترین حالت ایجاد جنجال میکند و انحرافی است من واقعاً درک نمی‌کنم این موضوع از کجا آب میخورد و این مسئله نگران‌کننده است.
+@withyashar
+</div>
+
+## WithYashar — post 12733
+
+
+
+
+## WithYashar — post 12732
+
+
+
+
+## WithYashar — post 12731
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12731_1779917038.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارسالی : داداش این ایده ایی که دادی رو یه مقدارخلاقیت دادم بهش که بفهمن دقیقا چطورمیشه رفت بدون پرچم
+@withyashar
+</div>
+
+## WithYashar — post 12730
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Voice message
+</div>
+
+## WithYashar — post 12729
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون گزارش ها از دو ترور بزرگ در شمال غزه.
+@withyashar
+</div>
+
+## mwarmonitor — post 9837
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9837_1779917039.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ناوشکن کلاس Horizon CHEVALIER PAUL 🇫🇷 و ناوچه کلاس FREMM POSS ALSACE 🇫🇷 ۲ روز پیش در آب‌های جنوب عمان مشاهده شدند 📍موقعیت ناوشکن: 16.8356, 55.3751 📍موقعیت ناوچه: 16.8513, 56.070 📌این دو شناور در حال عملیات مشترک با ناو هواپیمابر فرانسوی CDG (شارل دوگل)…
+</div>
+
+## mwarmonitor — post 9836
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9836_1779917040.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پایگاه NSF دیه‌گو گارسیا: به‌روزرسانی لجستیکی و SOC
+
+🛰تصاویر ماهواره‌ای Sentinel-2 مربوط به امروز (۲۷ مه) نمای به‌روزی از وضعیت و استقرارها در داخل آب‌سنگ حلقوی پایگاه NSF دیه‌گو گارسیا ارائه می‌دهد.
+
+🔸تأمین تدارکات ناوگان:
+کشتی پشتیبانی سریع رزمی USNS Arctic (T-AOE-8) در حال حاضر در تالاب لنگر انداخته است. این موضوع الگویی را نشان می‌دهد که مدتی است مشاهده می‌کنیم: کشتی‌های USNS همچنان به‌صورت متناوب از دیه‌گو گارسیا برای سوخت‌گیری، تدارکات و تعمیر و نگهداری خود در فاصله بین مأموریت‌ها به ناوگان استفاده می‌کنند.
+
+🚢کشتی مادر SOC:
+با احتمال بسیار زیاد، MV Ocean Trader همچنان در آب‌سنگ حلقوی لنگر انداخته است. پوشش سنگین ابر در عبور امروز شناسایی ۱۰۰٪ قطعی را دشوار می‌کند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9835
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9835_1779917040.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝وقتی شهر که خلوت بشه، قورباغه هفت‌تیرکش میشه! بله آقای ترامپ، وقتی درست وسط جنگ که این جمهوری اسلامیِ فکسنی داشت نفله و تکه‌پاره می‌شد، تو با اون مغز فندقی و ژست‌های پوچت دویدی وسط و آتش‌بس دادی، باید هم تهش به این افتضاح ختم بشه. مردک هالو، با همین حماقتت به این «بچه شیعه‌های رافضی» که کارشون تموم بود، تنفس مصنوعی دادی تا حالا از قعر ذلت بلند بشن و برات شاخ و شونه بکشن!
+
+🔸حالا نگاه کن؛ این نظامِ مفلوک و در حال احتضار که تا دیروز داشت غزل خداحافظی رو می‌خوند، چنان وهمِ قدرت برش داشته که با وقاحت تمام، یک لیست باج‌خواهی ۳۰۰ میلیارد دلاری جلوی چشمای نابینات گذاشته! تویی که ادعای معامله‌گری داشتی، حالا باید بشینی و شروط مسخره‌ی یه مشت بازنده رو گوش کنی که دارن برات حکم خروج از منطقه و لغو تحریم‌ها رو صادر می‌کنن. حماقت تو و وقاحت اون‌ها، واقعاً یه کمدی سیاه و تهوع‌آوره!
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342325
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342325_1779917041.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+</div>
+
+## FoxNewsTwitter — post 342324
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342324_1779917042.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“Donald Trump” the buffalo has been spared from sacrifice in Bangladesh after going viral.
+
+“Donald Trump,” the rare albino buffalo named for its blond tuft of hair, was hours away from being sacrificed for Eid al-Adha... until the government stepped in.
+
+It had already been sold for ritual slaughter when viral videos turned it into a national attraction.
+
+Crowds started flooding the farm to see the nearly 1,500-pound animal in person, forcing officials to intervene due to security concerns.
+
+Now the buffalo is headed to the national zoo in Dhaka instead.
+</div>
+
+## FoxNewsTwitter — post 342323
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342323_1779917043.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Matthew Perry’s live-in assistant has been sentenced to more than 3 years in prison for his role in the actor’s ketamine overdose death.
+
+60-year-old Kenneth Iwamasa admitted he injected Perry with ketamine before the “Friends” star was found dead at his Los Angeles home in 2023.
+
+“You were privy to his struggle with addiction,” the judge told him before sentencing. “Your conduct was reckless.”
+
+The sentencing closes the final chapter in the nearly three-year federal investigation into Perry’s death.
+</div>
+
+## pm_afshaa — post 91682
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.13&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d
+
+
+✉️ @Glitch_Config
+</div>
+
+## pm_afshaa — post 91681
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=195.254.165.4&port=8443&secret=EERighJJvXrFGRMCIMJdCQ==
+
+پروکسی متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://406d8436-0eb9-4eb2-84fb-960e076ffba6@104.17.121.71:443?encryption=none&security=tls&sni=de.lezzatzone.ir&fp=chrome&type=tcp&headerType=none#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نپسترنت متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91679
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علیرضا فیروزجا با پرچم فرانسه نفر اول شطرنج جهانو شکست داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://762ca06a-daba-4510-8533-7ba0667fb1f1@188.137.230.245:8880?path=%2F&security=none&encryption=none&type=ws#pmtv%E2%8F%B3 نامحدود سرعت بالا برا تمام اوپراتورها 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://762ca06a-daba-4510-8533-7ba0667fb1f1@188.137.230.245:8880?path=%2F&security=none&encryption=none&type=ws#pmtv%E2%8F%B3
+
+نامحدود سرعت بالا برا تمام اوپراتورها
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عضو تیم رسانه‌ای هیئت مذاکراتی جمهوری اسلامی: سفر قالیباف به قطر درباره آزادسازی 12 میلیارد دلار از اموال بلوکه‌شده، موفقیت‌آمیز بود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91675
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91675_1779917043.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی روز جمعه ۱ خرداد (۲۲ مه)، در نشستی آنلاین با شماری از فعالان و چهره‌های رسانه‌ای و هنری گفتگو کردند. ایشان ضمن شنیدن دیدگاه‌ها و نظرات حاضران، به برخی پرسش‌ها نیز پاسخ دادند. بخش‌های بیشتری از این گفتگو در روزهای آینده منتشر خواهد شد.
+
+@OfficialRezaPahlavi
+</div>
+
+## pm_afshaa — post 91674
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=195.254.165.185&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d
+
+پروکسی متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91673
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴2 فرمانده ارشد حماس توسط ارتش اسرائیل به هلاکت رسیدن 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91672
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://06b65903-406d-4a41-8463-6fd5c0ee7798@43.169.18.179:443?encryption=none&security=tls&sni=sni.skylee4.cloudns.ch&fp=chrome&type=ws&host=sni.skylee4.cloudns.ch&path=%2F#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F کانفینگ پر سرعت مخصوص اینستا و یوتیوب…
+</div>
+
+## pm_afshaa — post 91671
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://06b65903-406d-4a41-8463-6fd5c0ee7798@43.169.18.179:443?encryption=none&security=tls&sni=sni.skylee4.cloudns.ch&fp=chrome&type=ws&host=sni.skylee4.cloudns.ch&path=%2F#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+کانفینگ پر سرعت مخصوص اینستا و یوتیوب
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91670
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴2 فرمانده ارشد حماس توسط ارتش اسرائیل به هلاکت رسیدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91669
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=connect.tproxy.store&port=8443&secret=dd79e7010200010007f0030386e24c3add
+
+پروکسی متصل مختص تلگرام
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91668
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_91668_1779917044.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ یه خبری رو یه ریپوست کرده که گزارشیه که نشون میده آزار جنسی در زندان های جمهوری اسلامی در دوران آتش بس بیشتر شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://06b65903-406d-4a41-8463-6fd5c0ee7798@43.169.18.179:443?encryption=none&security=tls&sni=sni.skylee4.cloudns.ch&fp=chrome&type=ws&host=sni.skylee4.cloudns.ch&path=%2F#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+کانفینگ پر سرعت مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5044
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5044_1779917044.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی روز جمعه ۱ خرداد (۲۲ مه)، در نشستی آنلاین با شماری از فعالان و چهره‌های رسانه‌ای و هنری گفتگو کردند. ایشان ضمن شنیدن دیدگاه‌ها و نظرات حاضران، به برخی پرسش‌ها نیز پاسخ دادند. بخش‌های بیشتری از این گفتگو در روزهای آینده منتشر خواهد شد.
+
+@OfficialRezaPahlavi
+</div>
+
+## IranIntlTV — post 339305
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339305_1779917045.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه، درباره تحولات قفقاز و طرح موسوم به «TRIPP» (مسیر ترامپ برای صلح و شکوفایی بین‌المللی)، گفت موضع جمهوری اسلامی درباره امنیت در قفقاز جنوبی «روشن» است و هیچ شبهه‌ای در این خصوص وجود ندارد.
+
+او افزود جمهوری اسلامی از گسترش مراودات اقتصادی و رفع انسداد از مسیرهای مواصلاتی استقبال می‌کند، اما نسبت به «نیات بدخواهانه» آمریکا که سابقه «شرارت و تجاوزگری» در مناطق مختلف جهان دارد، سوءظن شدید دارد و مخالفت خود را با حضور «ناامن‌ساز» آن در قفقاز جنوبی صراحتا اعلام کرده است.
+
+بقائی همچنین گفت قفقاز جنوبی «همسایه بلاواسطه ایران» است و جمهوری اسلامی صلح، ثبات و پیشرفت اقتصادی در این منطقه را در راستای منافع ملی خود می‌داند.
+
+او افزود مداخله قدرت‌های فرامنطقه‌ای در تحولات منطقه، صلح، ثبات و منافع جمعی کشورهای منطقه را با چالش جدی مواجه می‌کند.
+https://iranintl.com/202605271825
+</div>
+
+## IranIntlTV — post 339304
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339304_1779917045.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال با اشاره به مشکلات اقتصادی از بیکار شدن همسرش گفته و اشاره می‌کند که اقدام به سقط جنین کرده است.
+</div>
+
+## IranIntlTV — post 339303
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339303_1779917047.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سعید کوزه‌چی، سفیر جمهوری اسلامی در سئول، پس از احضار به وزارت خارجه کره جنوبی، نقش جمهوری اسلامی را در حمله به کشتی باری اچ‌ام‌ام نامو در تنگه هرمز رد کرد.
+
+پیش‌تر کره جنوبی اعلام کرد حمله به کشتی اچ‌ام‌ام نامو در اوایل این ماه احتمالا با استفاده از یک موشک ایرانی انجام شده است.
+https://iranintl.com/202605272938
+</div>
+
+## IranIntlTV — post 339302
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339302_1779917048.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سعید کوزه‌چی، سفیر جمهوری اسلامی در سئول، پس از احضار به وزارت خارجه کره جنوبی، نقش جمهوری اسلامی را در حمله به کشتی باری اچ‌ام‌ام نامو در تنگه هرمز رد کرد.
+
+پیش‌تر کره جنوبی اعلام کرد حمله به کشتی اچ‌ام‌ام نامو در اوایل این ماه احتمالا با استفاده از یک موشک ایرانی انجام شده است.
+https://iranintl.com/202605272938
+</div>
+
+## IranIntlTV — post 339301
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339301_1779917049.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سعید کوزه‌چی، سفیر جمهوری اسلامی در سئول، پس از احضار به وزارت خارجه کره جنوبی، نقش جمهوری اسلامی را در حمله به کشتی باری اچ‌ام‌ام نامو در تنگه هرمز رد کرد.
+
+پیش‌تر کره جنوبی اعلام کرد حمله به کشتی اچ‌ام‌ام نامو در اوایل این ماه احتمالا با استفاده از یک موشک ایرانی انجام شده است.
+https://iranintl.com/202605272938
+</div>
+
+## IranIntlTV — post 339300
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339300_1779917049.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت اطلاعات از نفوذ گسترده امنیتی و سایبری علیه ایران و پیامدهای جنگ ۴۰ روزه خبر داد. در این بیانیه به ورود استارلینک، خرابکاری، ناامن‌سازی مرزها و تلاش برای ایجاد آشوب داخلی اشاره شده و گفته شده این اقدامات خنثی شده‌اند. همچنین از بازداشت ده‌ها نفر به اتهام همکاری با موساد و گروه‌های تروریستی و هشدار نسبت به احتمال اعتراض‌های خیابانی خبر داده شده است.
+
+گفت‌وگو با مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339299
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339299" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: پشت‌ پرده امتیازات حیرت‌آور ترامپ به حکومت ایران
+@iranintlTV
+</div>
+
+## FarsiVOA — post 218846
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رئیس جمهوری آمریکا: مقامات جمهوری اسلامی مصمم به دستیابی به توافق با ما هستند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218845
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اف‌بی‌آی با «تهدیدات دولت‌های متخاصم» از جمله «سرکوب فراملی» در زمان برگزاری مسابقات جام جهانی مقابله می‌کند
+
+▪️کش پتل، رئیس پلیس فدرال آمریکا (اف‌بی‌آی)، روز چهارشنبه ۶ خرداد گفت ایالات متحده درباره اقدامات «ضد دموکراتیک» احتمالی «دولت‌های خارجی متخاصم» در طول برگزاری جام جهانی فوتبال هشدار داد و از عموم مردم خواست هوشیار باشند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154589.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218844
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سناتور گراهام: دونالد ترامپ می‌تواند هم به درگیری با جمهوری اسلامی پایان دهد و هم عربستان را وارد «پیمان ابراهیم» کند
+
+▪️لیندزی گراهام، سناتور جمهوری‌خواه ایالت کارولینای جنوبی، روز چهارشنبه ۶ خرداد با انتشار پیامی در شبکه اجتماعی ایکس از تلاش‌های دونالد ترامپ، رئیس‌جمهوری آمریکا، برای پایان دادن به درگیری‌ها با جمهوری اسلامی از طریق یک توافق «واقعی و پایدار» حمایت کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/sen-graham-praises-president-trump-for-trying-to-end-iran-conflict/8154582.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218843
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218843_1779917051.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر: از چرایی قطع اینترنت تا دلایل بازگشت دوباره و محدود آن
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218842
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218842_1779917052.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حذف ناخواسته گوشت از سفره مردم؛ جایگزین‌ چیست؟ گفت‌وگو با مریم دادخواه متخصص تغدیه
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218841
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218841_1779917053.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️علیرضا فیروزی در برنامه تفسیر خبر: فیلترینگ یک بنگاه اقتصادی برای حکومت است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218840
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کابینه پرزیدنت ترامپ روز چهارشنبه ۶ خرداد در کاخ سفید تشکیل جلسه داد. در بخش‌هایی از این جلسه موضوع «خشم حماسی» و مذاکره با رژیم ایران نیز مطرح شد. صدای آمریکا بخش‌هایی از این جلسه را به طور مستقیم و با ترجمه همزمان پژواک کیومرثی پخش کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218839
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218839_1779917053.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️علی بیگی در برنامه تفسیر خبر: تمرکز جمهوری اسلامی روی اینترنت طبقاتی است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218838
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺افزایش نگرانی‌ها درباره وضعیت چند جوان معترض ۱۷ تا ۲۰ ساله در زندان‌های جمهوری اسلامی
+
+▪️سازمان‌های حقوق بشری روز چهارشنبه ۶ خرداد ۱۴۰۵، درباره وضعیت چند جوان کم‌ سن‌وسال معترض، محبوس در زندان‌های جمهوری اسلامی عمیقا ابراز نگرانی کردند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-arrest-teenager-execution-prison/8154579.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218837
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218837_1779917054.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سینا قنبرپور در برنامه تفسیر خبر: مردم می‌گویند کانفیگ‌فروش دست تو رو شده برام
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218836
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218836_1779917054.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️روزنه‌ای برای حرف‌های نگفته کاربران ایرانی در طولانی‌ترین خاموشی دیجیتال جهان
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218835
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تلاش آمریکا برای جلوگیری از ورود ایبولا به کشور؛ شمار قربانیان در کنگو از ۲۲۰ نفر گذشت
+
+▪️مارکو روبیو، وزیر امور خارجه آمریکا، می‌گوید ایالات متحده باید از ورود افراد مبتلا به ایبولا از جمهوری دموکراتیک کنگو جلوگیری کند. شیوع این بیماری در کنگو تاکنون دست‌کم ۲۲۰ مرگ مشکوک و بیش از ۹۰۰ مورد مشکوک به ابتلا بر جای گذاشته است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/marco-rubio-vows-to-keep-ebola-out-of-us/8154574.html
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125212
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125212_1779917055.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 هگست: ایران هنوز ذخایر موشکی دارد اما نمی‌تواند موشک تازه تولید کند
+
+پیت هگست، وزیر دفاع (جنگ) آمریکا می‌گوید، ایران با وجود هفته‌ها بمباران ایالات متحده و اسرائیل، همچنان ذخایر موشکی در اختیار دارد.
+
+او در نشست هیات دولت آمریکا در کاخ سفید در روز چهارشنبه ششم خرداد گفت: «ممکن است آنها هنوز موشک داشته باشند، اما در حال حاضر نمی‌توانند موشک‌های بیشتری بسازند.»
+
+وزیر دفاع آمریکا همچنین افزود که ایران "در حال حاضر نمی‌تواند پهپادهای بیشتری تولید کند و کشتی‌های بیشتری بسازد".
+
+او اضافه کرد: «آن‌ها به همین دلیل آمدند و برای گفت‌وگو اعلام تسلیم کردند.»
+
+هگست ضمن ستایش محاصره بنادر ایران از سوی آمریکا نیز گفت: «هیچ نفتکش ایرانی در هیچ نقطه جهان در امان نیست و ما در سراسر جهان شاهد توقیف‌ها بوده‌ایم؛ اقدامی که شریان حیاتی اقتصادی آنها را قطع می‌کند.»
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15146
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/2HyaIyBB-ko?feature=share
+</div>
+
+## Persian_Trend_Official — post 15145
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه لایو امشب آغاز میشه
+حدودا 30 دقیقه
+</div>
+
+## RadioFarda — post 157628
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157628_1779917056.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸سازمان دولتی انرژی هسته‌ای فدراسیون روسیه از تصمیمش برای به تعویق‌انداختن بازگشت کارکنانش به نیروگاه هسته‌ای بوشهر خبر داد.
+
+🔸این موضوع را الکسی لیخاچِف، مدیرعامل این نهاد دولتی روسیه اعلام کرد.
+
+🔸مدیر عامل «روس اتم» روز چهارشنبه در جمع خبرنگاران گفت: «متاسفانه اخبار ضد و نقیضی در ارتباط با روند مذاکرات ایران و آمریکا به گوش می‌رسد و هر از گاهی هم اخباری از وقوع حملاتی به نقاطی از ایران منتشر می‌شود. به همین دلیل بازگشت همکارانمان را به تعویق انداختیم».
+
+🔸الکسی لیخاچف تأکید کرد که ولادیمیر پوتین رئیس‌جمهور فدراسیون روسیه هم در جریان این تصمیم قرار گرفته و آن‌را تأیید کرده است.
+
+🔸«روس اتم» پیشتر و به دنبال آغاز جنگ آمریکا و اسرائیل با ایران، ۸۱۳ تن از کارکنانش را از بوشهر خارج کرده و تنها ۲۰ تن از کارکنانی که حضورشان در محل برای اطمینان از ایمنی و فعالیت نیروگاه و پیشرفت ساخت فازهای بعدی ضروری بوده را، همچنان در بوشهر نگه داشته است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20904
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اپ استور هم باز شد. @IranianMinds
+</div>
+
+## IranianMinds — post 20903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اپ استور هم باز شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20902
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20902_1779917056.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی روز جمعه ۱ خرداد (۲۲ مه)، در نشستی آنلاین با شماری از فعالان و چهره‌های رسانه‌ای و هنری گفتگو کردند. ایشان ضمن شنیدن دیدگاه‌ها و نظرات حاضران، به برخی پرسش‌ها نیز پاسخ دادند. بخش‌های بیشتری از این گفتگو در روزهای آینده منتشر خواهد شد.
+
+@OfficialRezaPahlavi
+</div>
+
+## IranianMinds — post 20901
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20901_1779917057.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا فیروزجا (ایرانی)
+با پرچم فرانسه
+نفر اول شطرنج جهانو شکست داد
+
+اینم از نابغه هامون...
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لطفا هرچی زودتر اینترنت رو قطع کنید تا بتونیم راحت تر وصل شیم
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20899
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20899" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص تمام اینترنت ها
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20898
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20898_1779917058.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## IranianMinds — post 20897
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20897" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص تمام اینترنت ها
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20896
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20896_1779917059.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عادی ترین وضعیت اینترنت تو ایران :
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گوگل پلی و اپ استور رفع فیلتر شدن
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20894
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20894" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص تمام اینترنت ها
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20893
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20893_1779917060.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اسرائیل دوباره داره غزه رو شخم میزنه یه ساختمون بزرگو کامل نابود کردن برای ترور
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282208
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رئیس بزرگترین آژانس جاسوسی بریتانیا: نزدیک به ۵۰۰ هزار سرباز روسیه در جنگ با اوکراین، از دست رفته‌اند
+رئیس بزرگترین آژانس جاسوسی بریتانیا (GCHQ) می‌گوید که روسیه از زمان آغاز تهاجم تمام عیار به اوکراین در چهار سال پیش، نزدیک به نیم میلیون سربازش را از دست داده است.
+
+ان کیست-باتلر رئیس این آژانس در حالی این آمار را اعلام کرد که هم روسیه و هم اوکراین تا کنون به طور مداوم تخمین‌هایی از کشته‌شدگان طرف مقابل منتشر کرده‌اند، اما تمایلی به ارائه جزئیات در مورد تعداد نیروهای کشته‌شده خود در این جنگ نداشته‌اند.
+
+با این حال، در ماه فوریه، ولادیمیر زلنسکی، رئیس‌جمهور اوکراین، گفت که این کشور از سال ۲۰۲۲ تاکنون ۵۵ هزار سرباز خود را از دست داده است.
+
+بخش روسی بی‌بی‌سی به همراه رسانه مستقل مدیازونا و گروهی از داوطلبان از فوریه ۲۰۲۲ در حال شمارش کشته‌شدگان نیروهای روسیه در این جنگ بوده است. این اقدام با استفاده از گزارش‌های رسمی، مطالب روزنامه‌ها، رسانه‌های اجتماعی و یادبودها و قبرهای جدید صورت گرفته و بر اساس آن بی‌بی‌سی تاکنون توانسته است نام ۲۲۳,۵۳۹ سرباز و افسر کشته شده روسیه را در جنگ اوکراین تأیید کند.
+
+اما فرانک گاردنر، خبرنگار امور امنیتی بی‌بی‌سی، می‌گوید: اعتقاد بر این است که تعداد واقعی کشته‌شدگان بسیار بیشتر است و کارشناسان نظامی که با آنها مشورت شده معتقدند که تجزیه و تحلیل بی‌بی‌سی از طریق تعداد قبرها، یادبودهای جنگ و آگهی‌های ترحیم ممکن است ۴۵ تا ۶۵ درصد از کل کشته‌شدگان را تشکیل دهد.
+
+https://bbc.in/4fckZNj
+@BBCPersian
+</div>
+
+## BBCPersian — post 282207
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282207_1779917060.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖋دن سیلز
+بی‌بی‌سی
+
+رئیس سازمان بهداشت جهانی هشدار داده است که درگیری‌های مداوم در جمهوری دموکراتیک کنگو مانع از پاسخ به شیوع ابولا می‌شود.
+
+دکتر تدروس آدهانوم گبریسوس گفت که شرق آن کشور مرکز «تصادم فاجعه‌بار بیماری و درگیری» است و شیوع ابولا در استان ایتوری از میزان اقدامات و واکنش‌ها به آن پیشی گرفته است.
+
+آقای گبریسوس در بیانیه‌ای در شبکه ایکس نوشت که سازمان جهانی بهداشت «نمی‌تواند، در حالی که بمب‌ها سرازیر می‌شوند، بین این سازمان و مردم ارتباط و اعتماد ایجاد کند، یا بیماران را جداسازی کند».
+
+آقای گبریسوس قرار است روز چهارشنبه (۲۷ مه، ۶ خرداد) وارد جمهوری دموکراتیک کنگو شود تا تلاش‌های خود را برای مهار این ویروس افزایش دهد.
+
+از زمان اعلام شیوع این بیماری حدود دو هفته پیش، ۲۲۰ مورد مرگ مشکوک گزارش شده است.
+
+امدادگران با مشکل مواجه هستند، چرا که به‌دلیل شرایط نامناسب جاده‌ها سفر دشوار است.
+
+ادامه خبر را از لینک زیر در وبسایت بی‌بی‌سی فارسی بخوانید.
+
+📷 Reuters
+https://bbc.in/3PKbJWs
+@BBCPersian
+</div>
+
+## BBCPersian — post 282206
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻شریف پس از تماس تلفنی با پزشکیان: پاکستان در کنار ایران خواهد ایستاد
+شهباز شریف، نخست‌وزیر پاکستان، و مسعود پزشکیان، رئیس‌جمهور ایران، تلفنی با هم گفت‌وگو کردند.
+
+آقای شریف در پیامی در ایکس نوشت که مسعود پزشکیان از «تلاش‌های صادقانه پاکستان برای صلح در منطقه» قدردانی کرده و در عین حال نقش فیلد مارشال عاصم منیر، فرمانده کل ارتش و نیروهای مسلح پاکستان را مورد توجه قرار داده است.
+
+او همچنین گفت که بار دیگر تأکید کرده است که «پاکستان همواره به‌عنوان دوستی صمیمی و همسایه‌ای نزدیک در کنار ایران خواهد ایستاد.»
+
+آقای شریف افزود: «ابراز امیدواری کردم که تلاش‌های جاری برای صلح به‌زودی به توافقی پایدار منجر شود و راه را برای ثبات، رفاه و همکاری منطقه‌ای هموار کند.»
+
+خبرگزاری رسمی ایران در گزارشی درباره این تماس تلفنی گفته است که دو طرف «به‌ویژه در حوزه‌های اقتصادی، بازرگانی و گمرکی صحبت و و درباره تداوم رایزنی‌های مشترک برای حمایت از صلح و ثبات منطقه‌ای تأکید کردند.»
+
+پاکستان میانجی آتش‌بس کنونی بین ایران و آمریکاست و در حال وساطت میان دو کشور برای رسیدن به توافق صلح است.
+
+https://bbc.in/4dP5Yi6
+@BBCPersian
+</div>
+
+## BBCPersian — post 282205
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282205_1779917061.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم چهارشنبه ۶ خرداد ۱۴۰۵
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390355
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390355_1779917063.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه‌ها شما که نبودید این عکس یکی از گنگ‌ترین عکسایی بود که دیدم
+
+
+@Dirty_Kids 
+👻
+</div>
+
+## Dirty_Kids — post 390354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه آمریکا ‎بوش پدر و پسر داره
+ایران هم ‎موش پدر و پسر داره!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## officialrezapahlavi — post 1835
+
+<div align="center">
+  <a href="telegram/content/officialrezapahlavi_1835_1779917063.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی روز جمعه ۱ خرداد (۲۲ مه)، در نشستی آنلاین با شماری از فعالان و چهره‌های رسانه‌ای و هنری گفتگو کردند. ایشان ضمن شنیدن دیدگاه‌ها و نظرات حاضران، به برخی پرسش‌ها نیز پاسخ دادند. بخش‌های بیشتری از این گفتگو در روزهای آینده منتشر خواهد شد.
+
+@OfficialRezaPahlavi
+</div>
+
+## alonews — post 123183
+
+<div align="center">
+  <a href="telegram/content/alonews_123183_1779917063.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روتِم یانای ۲۰ ساله از تیپ گیواتی امروز در حمله پهپادی حزب‌الله به یک پایگاه نظامی نزدیک شومرا، شمال اسرائیل کشته شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123182
+
+<div align="center">
+  <a href="telegram/content/alonews_123182_1779917063.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لحظه شکست دادن نفر اول شطرنج جهان توسط علیرضا فیروزجا
+
+
+🔴علیرضا نخبه ایرانی مدتی قبل به دلیل مسائل سیاسی از ایران خارج و به فرانسه پناهنده شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123181
+
+<div align="center">
+  <a href="telegram/content/alonews_123181_1779917065.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دی تا خرداد.......
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123180
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈علیرضا فیروزجا (ایرانی) با پرچم فرانسه، نفر اول شطرنج جهانو شکست داد
+
+#نخبه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123179
+
+<div align="center">
+  <a href="telegram/content/alonews_123179_1779917066.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چین: تلاش می‌کنیم تنش بین ایران و آمریکا را کاهش دهیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123178
+
+<div align="center">
+  <a href="telegram/content/alonews_123178_1779917066.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یه FPV حزب الله افتاد دنبال سرباز اسرائیلی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123177
+
+<div align="center">
+  <a href="telegram/content/alonews_123177_1779917068.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عضو تیم رسانه‌ای هیئت مذاکراتی ایران:
+سفر قالیباف به قطر درباره آزادسازی ۱۲ میلیارد دلار از اموال بلوکه‌شده، موفقیت‌آمیز بود!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123176
+
+<div align="center">
+  <a href="telegram/content/alonews_123176_1779917068.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چین: تلاش می‌کنیم تنش بین ایران و آمریکا را کاهش دهیم
+ 
+
+🔴 به گزارش سی‌جی‌تی‌ان، وانگ یی، وزیر خارجه چین روز چهارشنبه به خبرنگاران گفت که پکن نقش فعالی در کاهش تنش بین ایران و آمریکا ایفا می‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123175
+
+<div align="center">
+  <a href="telegram/content/alonews_123175_1779917068.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گویا گوگل پلی تو اکثر مناطق وصل شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123174
+
+<div align="center">
+  <a href="telegram/content/alonews_123174_1779917068.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 جایگزینی تسلیحات راهبردی مصرف شده در جنگ با ایران برای آمریکا، ۳ تا ۵ سال زمان می‌خواهد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123173
+
+<div align="center">
+  <a href="telegram/content/alonews_123173_1779917068.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله امشب اسرائیل به غزه 
+🔴احتمالا ترور 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123172
+
+<div align="center">
+  <a href="telegram/content/alonews_123172_1779917068.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی کمیسیون امنیت ملی: اصلا چرا باید به آمریکا تعهد عدم ساخت سلاح هسته‌ای بدهیم؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123171
+
+<div align="center">
+  <a href="telegram/content/alonews_123171_1779917068.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله امشب اسرائیل به غزه
+
+
+🔴احتمالا ترور
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123170
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 حجم‌های بالا با قیمت‌های باورنکردنی 🔥 ⚡ سرعت بالا 🌐 پایداری عالی 🚀 کیفیتی که حسش میکنی همین الان جوین شو که جا نمونی 😍 @NetAazaadVPN @NetAazaadVPN
+</div>
+
+## alonews — post 123169
+
+<div align="center">
+  <img src="telegram/content/alonews_123169_1779917069.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 حجم‌های بالا با قیمت‌های باورنکردنی 🔥
+
+⚡ سرعت بالا
+🌐 پایداری عالی
+🚀 کیفیتی که حسش میکنی
+
+همین الان جوین شو که جا نمونی 😍
+
+@NetAazaadVPN
+@NetAazaadVPN
+</div>
+
+## alonews — post 123168
+
+<div align="center">
+  <img src="telegram/content/alonews_123168_1779917069.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴🇮🇷 کشوری فرد، دبیر سازمان لیگ: پرسپولیس به چی اعتراض داره؟ اونا حتی تو جام حذفی هم نیستن. 22 بازی نتیجه نگرفتن، بعد می‌خوان تو 8 بازی همه تیم‌ها رو ببرن؟ چطور وقتی خودشون میرفتن آسیا، مشکلی نبود؟
+@AloSport
+</div>
+
+## alonews — post 123167
+
+<div align="center">
+  <a href="telegram/content/alonews_123167_1779917069.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بقایی: موضع ایران در رابطه با قفقاز جنوبی هیچ تغییری نکرده است
+
+
+
+🔴سخنگوی وزارت خارجه: جمهوری اسلامی ایران نسبت به نیات بدخواهانه امریکا که سابقه شرارت و تجاوزگری در مناطق مختلف دنیا دارد، سوء ظن شدید دارد و مخالفت خود را با حضور ناامن‌ساز آن در قفقاز جنوبی صراحتا اعلام کرده‌ است.
+
+
+🔴موضع جمهوری اسلامی ایران درباره امنیت در قفقاز جنوبی روشن است و هیچ شبهه‌ای در این خصوص وجود ندارد.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123166
+
+<div align="center">
+  <a href="telegram/content/alonews_123166_1779917069.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 امانی، سفیر پیشین ایران در لبنان: حزب‌الله برای حمله به اسرائیل در ایام جنگ ایران فرصت را مناسب دید، قضیه راهبردی است و اینطور نیست که حزب‌الله بخواهد در این جنگ طرف ایران را بگیرد و موضوع تبدیل به موضوع کلانی شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 23:00
 ---
 
