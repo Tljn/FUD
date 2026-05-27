@@ -7,6 +7,928 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 02:30
+---
+
+## VahidOOnLine — post 242491
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242491_1779922854.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش خبرگزاری فارس، حوالی ساعت ۱:۳۰ بامداد، صدای سه انفجار در شرق شهر بندرعباس شنیده شد و هم‌زمان، سامانه‌های پدافند هوایی این شهر برای دقایقی فعال گردیدند. در حال حاضر محل دقیق و منشا اصلی این صداها مشخص نیست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242490
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242490_1779922854.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از شنیده شدن صدای ۳ انفجار از شرق شهر بندرعباس حوالی ساعت ۱:۳۰ بامداد خبر دادند. هنوز محل دقیق و منشا این صداها مشخص نیست و پیگیری‌ها برای مشخص شدن آن ادامه دارد. هم‌زمان برای دقایقی پدافند هوایی بندرعباس نیز فعال شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242489
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242489_1779922855.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️از ساعتی پیش، فروشگاه برنامه‌های گوگل، «گوگل‌پلی»، پس از ماه‌ها مسدودسازی بار دیگر برای بخشی از کاربران داخل ایران در دسترس قرار گرفته است. به گزارش مهر، این بازگشایی روی اپراتورهای ثابت و همراه انجام شده است؛ هرچند که این دسترسی هنوز برای تمام کاربران یکسان نیست، اما بر اساس تجربه‌های قبلی، انتظار می‌رود این سامانه به تدریج برای همگان فعال شود.
+این گشایش تدریجی در شرایطی رخ می‌دهد که جمهوری اسلامی از روز سه‌شنبه ۵ خرداد، پس از ۸۸ روز خاموشی و قطع گسترده اینترنت بین‌الملل که در پی کشته شدن علی خامنه‌ای و آغاز جنگ ۳۸ روزه رخ داد، دسترسی به شبکه را به صورت محدود، کند و ناپایدار برقرار کرده است. با وجود اعلام رسانه‌های دولتی مبنی بر «بازگشت اینترنت»، داده‌های بین‌المللی موسسه کنتیک و گزارش‌های شهروندان نشان می‌دهد که سطح اتصال کاربران هنوز از ۳۹ درصد فراتر نرفته و شبکه با اختلالات شدید، سرعت پایین و پالایش (فیلترینگ) گسترده سکوهای اصلی مواجه است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242488
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242488_1779922855.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ابراهیم عزیزی، رئیس کمیسیون امنیت ملی و سیاست خارجی مجلس شورای اسلامی، در واکنش به اظهارات اخیر دونالد ترامپ تاکید کرد که جمهوری اسلامی با الفاظی‌های رئیس‌جمهور آمریکا، هرگز از خطوط قرمز خود از جمله «حق غنی‌سازی و حفظ اورانیوم غنی‌شده»، «مدیریت تنگه هرمز» و «لغو تحریم‌ها» عقب‌نشینی نخواهد کرد.
+عزیزی با انتشار پیامی در شبکه اجتماعی اکس نوشت: «دیگر همه می‌دانند ترامپ برای نجات خود از این بن‌بست راهبردی، یک روز از ابزار تهدید استفاده می‌کند و روز دیگر برای توافق التماس می‌کند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242487
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242487_1779922856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در ایکس نوشت: «جمهوری اسلامی از خطوط قرمز خود مانند حق غنی‌سازی و اورانیوم غنی‌شده، مدیریت تنگه هرمز و لغو تحریم‌ها عقب‌نشینی نخواهد کرد.»
+او افزود: «همه می‌دانند ترامپ برای نجات خود از این بن‌بست راهبردی یک روز از ابزار تهدید استفاده می‌کند و روز دیگر برای توافق التماس‌ می‌کند.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242486
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242486_1779922857.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش اسرائیل هیوم، دونالد ترامپ، رئیس‌جمهوری آمریکا، متن پیش‌نویس توافق با تهران را برای شماری از رهبران منطقه، از جمله بنیامین نتانیاهو، نخست‌وزیر اسرائیل، ارسال کرده و از آن‌ها خواسته است دیدگاه‌های خود را درباره این سند ارائه کنند.
+بر اساس این گزارش، متن پیش‌نویس که طی ۲۴ ساعت گذشته برای رهبران منطقه ارسال شده، یکی از محورهای گفتگوی تلفنی اخیر ترامپ و نتانیاهو بوده است. با این حال، هنوز مشخص نیست این متن نسخه‌ای است که جمهوری اسلامی نیز با آن موافقت کرده یا آخرین پیشنهاد آمریکا به تهران محسوب می‌شود.
+اسرائیل هیوم همچنین گزارش داد تهران نسخه جداگانه‌ای از پیش‌نویس خود را منتشر کرده که در آن اشاره‌ای به برنامه هسته‌ای نشده و خواستار دور شدن نیروی دریایی آمریکا از منطقه شده است. کاخ سفید گزارش‌های مربوط به پذیرش کنترل ایران بر تنگه هرمز یا عقب‌نشینی نظامی آمریکا را «کاملا ساختگی» توصیف کرده است.
+بر اساس این گزارش، یکی از شرط‌های اصلی آمریکا برای پیشرفت مذاکرات، تعهد کتبی جمهوری اسلامی به واگذاری اورانیوم غنی‌شده عنوان شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12755
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یا موسی
+</div>
+
+## WithYashar — post 12754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند اصفهان فعال شد !
+@withyashar
+</div>
+
+## WithYashar — post 12753
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس : شنیده‌شدن صدای ۳ انفجار از شرق بندرعباس
+
+حوالی ساعت ۱:۳۰ بامداد صدای ۳ انفجار از شرق شهر بندرعباس شنیده شد.
+
+هنوز محل دقیق و منشأ این صداها مشخص نیست و پیگیری‌ها برای مشخص شدن آن ادامه دارد.
+
+همزمان برای دقایقی پدافند شهر بندرعباس نیز فعال شد.
+
+طی ۴ روز اخیر نیروهای مسلح کشورمان یک پهپاد آر کیو ۹ و یک پهپاد اوربیتر‌ دشمن آمریکایی صهیونی را در منطقه هرمزگان منهدم و همچنین سامانه‌های پدافندی نیز یک اف ۳۵ و یک پهپاد آر کیو ۴ را نیز رهگیری کردند.
+@withyashar
+</div>
+
+## WithYashar — post 12752
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبر گزاری فارس‌ انفجار رو تایید کرد !!!
+@withyashar
+</div>
+
+## WithYashar — post 12751
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تایید نشده ۳ نفر‌گفتن ماشین این کاربر‌ با آدرس گفته :
+بولوار‌خلیج فارس یه ماشین رو با پهپاد زدنن رفت رو هوا و بعد پدافند با تاخییر شروع کرد فعالیت
+@withyashar
+</div>
+
+## WithYashar — post 12750
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش من بندرم ۳ تا انفجار ۳۰ مین پیش بود و تا ۱۰ مین پیشم صدای پدافند می اومد میگن گویا یه ماشینو زدن و ترور بوده
+@withyashar
+</div>
+
+## WithYashar — post 12749
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+</div>
+
+## WithYashar — post 12748
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چیزی ‌نیست بی بی اومده یه قلیه ماهی ‌بزنه بره 🐟 شلوغش نکنید
+</div>
+
+## WithYashar — post 12747
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام همین الان پدافند بندر عباس درگیر شد
+@withyashar
+</div>
+
+## WithYashar — post 12746
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشها شما اکثرن به پایگاه هوایی/فرودگاه اشاره میکنه
+</div>
+
+## WithYashar — post 12745
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای سه انفجار در بندرعباس دوباره
+@withyashar
+</div>
+
+## WithYashar — post 12744
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشهای ززززیاد از انفجار در بندر عباس
+@withyashar
+</div>
+
+## WithYashar — post 12743
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کره شمالی تشکیل ائتلاف چهارگانه شامل آمریکا، استرالیا، هند و ژاپن را محکوم کرد. پیونگ یانگ همچنین تاکید کرد که هرگز از برنامه هسته‌ای خود چشم‌پوشی نخواهد کرد.
+@withyashar
+</div>
+
+## mwarmonitor — post 9838
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 دنیای موازیِ صداوسیما واقعاً جای قشنگیه؛ سنت‌کام بیانیه رسمی صادر کرد، پدافند بندرعباس پودر شد ، اسامی تلفات رو دارن می‌شمارن، اونوقت خبرنگارِ تیزبین اون وسط واستاده، نسیم خنک دریا رو بو می‌کشه و با آرامشِ فیلسوفانه‌ای می‌گه: «همه‌چیز عادیه، مردم هم دارن…
+</div>
+
+## FoxNewsTwitter — post 342329
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342329_1779922857.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Kathy Hochul attempted to dunk on President Trump over the Knicks — and ended up getting roasted by fans instead.
+
+The New York governor tried to quiz the president's support for the team when asked about him potentially attending an NBA Finals game.
+
+“I ask him to name the starting lineup from the 1993 championship team and see how he does,” Hochul said.
+
+There’s just one problem: the Knicks didn’t win a championship in 1993. Their last NBA title came in 1973.
+</div>
+
+## FoxNewsTwitter — post 342328
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342328_1779922858.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Al Green isn't going quietly.
+
+The defiant anti-Trump Texas congressman lost his primary on Tuesday, but is making clear he still plans to call out President Trump with his remaining time.
+
+His remarks were in response to a Truth Social post from the president, who called Green, "one of the most mentally deficient Congressmen in the history of our Country."
+
+Trump added, “I will miss that lunatic not screaming and violently waving his cane at me during my next State of the Union Speech.”
+</div>
+
+## FoxNewsTwitter — post 342327
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342327_1779922859.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Former AG Pam Bondi has reportedly been diagnosed with thyroid cancer.
+
+The diagnosis came shortly after Bondi wrapped up her time as attorney general. She reportedly underwent treatment and is recovering.
+
+Katie Miller, who is married to White House Deputy Chief of Staff Stephen Miller, reacted to the news: “Pam has been quietly kicking cancer’s ass the last few weeks.”
+</div>
+
+## FoxNewsTwitter — post 342326
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342326_1779922860.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: DHS footage captures the chaotic takedown of a tractor-trailer near the southern border after authorities say 20 illegal migrants were found hidden inside the cab.
+
+Video shows the driver suddenly jumping out and running as DPS troopers, Border Patrol agents, and sheriff’s deputies move in around the truck on Interstate 35 in La Salle County.
+
+Officials say the migrants were concealed in the sleeper area behind the driver’s seat. The suspect, identified as John David Amaya, was arrested and charged with smuggling of persons.
+
+Four minors from Mexico and Guatemala were among the group, according to DPS.
+
+Following the incident, the group was referred to U.S. Border Patrol.
+</div>
+
+## pm_afshaa — post 91683
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴3 انفجار در بندر عباس
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103592
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📞 الو بندرعباس رو زدن ۱:۳۳ پنج‌شنبه ۷ خرداد
+
+@mamlekate
+</div>
+
+## mamlekate — post 103591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 دونالد ترامپ درباره مذاکره با رژیم ایران: توافق نکنند کار را تمام می‌کنیم
+
+رئیس جمهوری آمریکا با تاکید بر این که جمهوری اسلامی چاره‌ای جز توافق با آمریکا ندارد، از این که تاکنون نتیجه‌ای از گفت‌و‌گوها به دست نیامده است ابراز نارضایتی کرد.
+
+ترامپ روز چهارشنبه ۶ خرداد همزمان با برگزاری نشست کابینه خود در کاخ سفید گمانه‌زنی‌ها درباره آزادسازی پول‌‌های بلوکه‌شده و رفع تحریم‌های رژيم ایران از سوی ایالات متحده را نیز رد کرد و به خبرنگاران گفت که با انتقال اورانیوم‌های غنی‌شده [رژیم] ایران به چین یا روسیه مخالف است.
+
+@mamlekate
+</div>
+
+## VahidOnline — post 75760
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بندرعباس
+پیام‌های دریافتی:
+
+چهار تا صدای انفجار پشت سر هم اومد الان
+ساعت ۱:۳۳ بندرعباس
+
+درود آقا وحید همین الان سه تا صدای انفجار اومد تو بندرعباس ساعت ۱:۳۳ دقیقه
+
+حاجی صدای انفجار دوباره شرق بندرعباس همین حالا سه تا پشت سر هم ساعت1/43 دقیقه
+
+سلام وحید
+۰۱:۳۳ شب
+همین الان بندرعباس صدای ۳ تا انفجار اومد
+سمت بهشت بندر
+احتمالا باز مثل سری قبل باند فرودگاهه
+
+
+بندرعباس ساعت ۱:۳۰ هفتم خرداد صدای جنگنده بعدش سه تا صدا انفجار اومد
+
+سه تا انفجار بندرعباس
+
+ساعت 1 و 33 دقیقه بامداد پنجشنبه 7 خرداد صدای سه تا انفجار رو از بندر عباس کس دیگه ای هم گزارش کرده ؟
+شبیه صدای موشک زمین به هوا بود
+
+بندرعباس صدا اومد
+سه بار
+درود. ساعت ۱:۳۲ دقیقه صدای سه انفجار شدید در بندرعباس اومد و خونه شدید لرزید.
+ساعت ۱:۴۷ باز هم صدای دو انفجار دیگه اومد
+
+صدای سه انفجار بندرعباس همین الان
+
+سلام وحید جان بندرعباس چند انفجار وحشتناک پنجره خونه لرزید 1.38
+دباره زدن بندرعباس ساعت 1.49
+
+۳تا صدای انفجار بعد صدای پدافند
+
+سه انفجار پشت سر هم و یکی هم ده دقیقه بعدش بندرعباس رخ داده
+Vahid
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 339318
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339318" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ بازگشت اینترنت و عبور مردم از روایت رسمی حکومت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339317
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339317_1779922862.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریک اسکات، سناتور جمهوری‌خواه، گفت ایالات متحده به رهبری دونالد ترامپ به هر شکل مانع دستیابی جمهوری اسلامی به سلاح هسته‌ای خواهد شد.
+او افزود یا توافقی برای توقف این برنامه حاصل می‌شود یا اقدام نظامی قاطع انجام خواهد شد.
+
+گزارش مرضیه حسینی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339316
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339316_1779922863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از شنیده شدن صدای ۳ انفجار از شرق شهر بندرعباس حوالی ساعت ۱:۳۰ بامداد خبر دادند. هنوز محل دقیق و منشا این صداها مشخص نیست و پیگیری‌ها برای مشخص شدن آن ادامه دارد. هم‌زمان برای دقایقی پدافند هوایی بندرعباس نیز فعال شد.
+https://iranintl.com/202605276527
+</div>
+
+## IranIntlTV — post 339315
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339315_1779922864.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با افزایش امیدها به بازگشایی تنگه هرمز، قیمت جهانی نفت حدود پنج درصد کاهش یافت. رویترز گزارش داد تردد نفتکش‌ها در تنگه هرمز هنوز به سطح پیش از جنگ بازنگشته است.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339314
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339314_1779922865.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت واشینگتن درباره کاهش تحریم‌ها یا پرداخت پول به جمهوری اسلامی گفت‌وگو نمی‌کند. نیویورک‌تایمز نیز گزارش داد دارایی‌های بلوکه‌شده و برنامه هسته‌ای جمهوری اسلامی همچنان از محورهای اختلاف در مذاکرات هستند.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339313
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339313_1779922867.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «ترامپ و روبیو تاکید کرده‌اند که هنوز توافقی با جمهوری اسلامی شکل نگرفته و اختلافات سیاسی همچنان پابرجاست. به روایت آمریکا هنوز توافقی به‌دست نیامده و اگر توافق نشود آمریکا به جنگ برخواهد گشت.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339312
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339312_1779922868.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قطع اینترنت برای دانشجویان ایرانی‌تبار در کانادا فقط به معنای بی‌خبری از خانواده‌هایشان نبوده است.
+
+اختلال در انتقال پول، فشار اقتصادی بر خانواده‌ها و سقوط ارزش ریال، بسیاری از این دانشجویان را با مشکلات مالی و روانی روبه‌رو کرده است.
+
+گزارش مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339311
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339311_1779922869.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «در جریان جنگ، ده‌ها مقام ارشد جمهوری اسلامی از جمله فرماندهان نظامی و امنیتی کشته شده‌اند. فرماندهان سپاه، ستاد کل و قرارگاه خاتم‌الانبیا در سطوح بالای حکومت کشته شدند، اما جمهوری اسلامی با وجود ادعاهای زیاد حتی قادر به کشتن هیچ‌یک از نیروهای ارشد اسرائیلی و آمریکایی نشد. این مشخص می‌کند چه کسی دست بالا را داشت و چه کسی دست پایین را.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339310
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339310_1779922870.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، گفت: «اگر یک چیز را تحولات اخیر دوباره ثابت کرده باشد، این است که ایران نباید به سلاح هسته‌ای دست پیدا کند. ایران همچنان بزرگ‌ترین حامی تروریسم در جهان است و نباید سلاح هسته‌ای داشته باشد.»
+
+او افزود: «اگر توافق امکان‌پذیر باشد، ما می‌خواهیم به آن برسیم. اگر این مسیر جواب ندهد، گزینه‌های دیگری هم وجود دارد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339309
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339309" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: وقتی شما نبودید
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339308
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339308_1779922872.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: « ‌"وقتی شما نبودید" کارزاری است که ایرانیان خارج از کشور برای مطلع کردن هم‌میهنان داخل کشور از وقایع کشور در دوران پنج‌ماهه قطع اینترنت راه انداخته‌اند. هم‌میهنان داخل نیز در همین کارزار در حال توضیح دادن جزییات و ابعاد جنایت دی‌ماه و وضعیت خود در دوران جنگ ۴۰ روزه هستند. کارزار رسانه‌ای مشترکی از سوی شهروندان برای مقابله با روایت تحریف شده حکومت از کشتار دی ماه و جنگ ۴۰ روزه.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339307
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339307_1779922873.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در ایکس نوشت: «جمهوری اسلامی از خطوط قرمز خود مانند حق غنی‌سازی و اورانیوم غنی‌شده، مدیریت تنگه هرمز و لغو تحریم‌ها عقب‌نشینی نخواهد کرد.»
+او افزود: «همه می‌دانند ترامپ برای نجات خود از این بن‌بست راهبردی یک روز از ابزار تهدید استفاده می‌کند و روز دیگر برای توافق التماس‌ می‌کند.»
+
+https://iranintl.com/202605271902
+</div>
+
+## IranIntlTV — post 339306
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339306" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: ترامپ: تهران به‌شدت بدنبال توافق است ولی از روند مذاکرات راضی نیستم
+@iranintlTV
+</div>
+
+## Shin_Persian — post 6265
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6265_1779922874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 27 May 2026 22:40:43 UTC
+
+2210Z
+Explosion heard in Bandar Abbas, Hormozgan Province, #Iran
+
+فارسی
+
+۲۲۱۰ زولو (۰۱:۴۰ به وقت تهران)
+صدای انفجار در بندرعباس، استان هرمزگان، #Iran شنیده شد.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218848
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کابینه پرزیدنت ترامپ روز چهارشنبه ۶ خرداد در کاخ سفید تشکیل جلسه داد. در بخش‌هایی از این جلسه موضوع «خشم حماسی» و مذاکره با رژیم ایران نیز مطرح شد. صدای آمریکا بخش‌هایی از این جلسه را به طور مستقیم و با ترجمه همزمان پژواک کیومرثی پخش کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218847
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218847_1779922875.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کانال تلگرامی وحیدآنلاین دقایقی قبل به نقل از کاربران از شنیده شدن صدای چندین انفجار در بندرعباس خبر داد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15147
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/2HyaIyBB-ko?feature=share
+</div>
+
+## IranianMinds — post 20912
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسانه آمریکایی: ایالات متحده یک عملیات دفاعی در بندرعباس ایران انجام داده و افزوده است که آمریکا برای حفاظت از منافع منطقه‌ای خود اقدام خواهد کرد و این موضوع تأثیری بر آتش‌بس ندارد. @IranianMinds
+</div>
+
+## IranianMinds — post 20911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسانه آمریکایی:
+
+ایالات متحده یک عملیات دفاعی در بندرعباس ایران انجام داده و افزوده است که آمریکا برای حفاظت از منافع منطقه‌ای خود اقدام خواهد کرد و این موضوع تأثیری بر آتش‌بس ندارد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20910
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه زمانی هر شب تلگرام جنگ بود
+
+الان هر شب ترور هدفمنده
+</div>
+
+## IranianMinds — post 20909
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20909_1779922875.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یادش بخیر
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20908
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری فارس :
+
+سه انفجار در بندرعباس عباس رخ داده و پدافند هم فعال شده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20907
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20907" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص تمام اینترنت ها
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20906
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20906" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص تمام اینترنت ها
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20905
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20905" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص تمام اینترنت ها
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282220
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282220_1779922876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻‌دادگاه رسیدگی به مرگ متیو پری، ستاره سریال «فرندز»، کِنِت ایواماسا، دستیار آقای پری را به «۴۱ ماه» زندان محکوم کرد. این دادگاه که چهارشنبه ۲۷ مه (۶ خرداد) در لس‌آنجلس برگزار شد، آقای ایواماسا را به جرم «تامین کتامین» برای آقای پری مجرم شناخت. متیو پری اکتبر ۲۰۲۳ به دلیل عوارض بیش مصرفی مواد درگذشت.
+
+در این جلسه دادستان گفت که کِنِت ایواماسا، ۶۰ ساله، به آقای پری کتامین تزریق کرده بود و همچنین برای تهیه بیش از ۵۰ هزار دلار کتامین در هفته‌های پیش از مرگ او با دو پزشک همکاری کرده بود.
+
+آقای ایواماسا در اوت ۲۰۲۴ به «توطئه برای توزیع کتامین منجر به مرگ» اعتراف کرد و دادگاه با اشد مجازات او را به ۱۵ سال حبس در زندان فدرال محکوم کرده بود. همچنین او به دو سال آزادی تحت نظارت و پرداخت ۱۰ هزار دلار جریمه محکوم شده بود. او باید روز ۱۷ ژوئن خود را به زندان معرفی کند.
+
+
+ادامه خبر را از لینک زیر در وبسایت بی‌بی‌سی فارسی بخوانید.
+
+📷 Getty Images for GQ
+https://bbc.in/4uAVNou
+@BBCPersian
+</div>
+
+## BBCPersian — post 282219
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پم باندی، دادستان کل پيشين آمريکا که ماه گذشته توسط دونالد ترامپ از سمت خود برکنار شد، اعلام کرد به سرطان تيروئيد مبتلا شده است.
+
+باندی ۶۰ ساله به سی‌بی‌اس گفت که تحت درمان قرار دارد و چند هفته پيش نيز تحت عمل جراحی قرار گرفته است.
+
+هنوز مشخص نيست سرطان پم باندی از کدام انواع سرطان تیروئید است اما پزشکان دست کم دو نوع رایج سرطان تیروئید را که روند آهسته‌ای دارد، بسیار درمان‌پذیر می‌دانند.
+
+او در یک سال و اندی حضور در دولت، از حامیان سرسخت دونالد ترامپ بود و خود را دنبال‌کننده جدی سیاست‌های رئیس جمهور آمریکا معرفی می‌کرد هرچند حواشی مرتبط با پرونده اپستین و همچنین به گزارش رسانه‌های آمریکا، انتظار از او برای پیگیری شکایاتی چون پرونده جیمز کومی و دیگر منتقدان جدی آقای ترامپ، زمینه‌ساز جدایی‌اش شد.
+
+https://bbc.in/3PpIMz2
+@BBCPersian
+</div>
+
+## BBCPersian — post 282218
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/282218" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پادکست برنامه شصت دقیقه چهارشنبه ۶ خرداد ۱۴۰۵
+این برنامه رادیویی را می‌توانید هر شب ساعت ۲۳ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.
+تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 282209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖋سوتیک بیسواس
+خبرنگار هند، بی‌بی‌سی
+
+برای نخستین بار از سال ۱۹۵۷، دیگر هیچ‌یک از دولت‌های ایالتی در هند تحت رهبری کمونیست‌ها نیست.
+
+شکست «جبهه دموکراتیک چپ» به رهبری حزب کمونیست هند (مارکسیست) در ایالت کرالا در انتخابات اخیر، پس از یک دهه حضور در قدرت، به یکی از ماندگارترین تجربه‌های کمونیسم دموکراتیک در جهان پایان داده است.
+
+در اوج قدرت، احزاب کمونیست هند بر ایالت‌هایی از بنگال غربی تا کرالا و تریپورا حکومت می‌کردند. این احزاب از طریق اتحادیه‌های کارگری، سازمان‌های دهقانی، شاخه‌های دانشجویی و شبکه‌های منظم حزبی، بر زندگی بیش از ۱۰۰ میلیون نفر تاثیر گذاشتند.
+
+آلبوم را ورق بزنید و ادامه مطلب را از لینک زیر در وبسایت بی‌بی‌سی فارسی بخوانید.
+
+
+📸GettyImages/ Reuters/ Anadolu via Getty Images/ AFP via Getty Images/ Hindustan Times via Getty Images/
+Bloomberg via Getty Images/NurPhoto via Getty Images
+https://bbc.in/3POJXYS
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390367
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390367_1779922877.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵 رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش…
+</div>
+
+## Dirty_Kids — post 390366
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390366_1779922878.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A6
+
+🌟اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین
+👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 390365
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390365_1779922878.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390364
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390364_1779922878.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهروندان در بندرعباس از وقوع انفجارهای پیاپی و پرواز جنگنده‌های خارجی در بامداد پنجشنبه خبر می‌دهند.
+
+خبرگزاری فارس، وابسته به سپاه هم با تایید خبر انفجارها نوشت محل دقیق و منشا آن مشخص نیست و پدافند بندرعباس نیز فعال شده است.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390363
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390363_1779922879.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین تصویری که خامنه ای دیده 😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390362
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390362_1779922879.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط در برزیل چنین چیزی ممکن است!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390361
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390361_1779922880.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه‌ها شما که نبودین قرار بود پیام لاریجانی تا دقایقی دیگر منتشر بشه.
+شما هستین و پیامش هنوز منتشر نشده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390360
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390360_1779922881.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این سریال YourFriendes & Neighbors رو ببینید، ازش لذت ببرید و بعدا ازم تشکر کنید.
+
+ژانر کمدی/درام هست
+این داداشمون پولدار بوده، تو بالاشهر امریکا میشینه ورشکسته میشه، رو میاره به لاشی‌بازی و دزدی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390359
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390359_1779922881.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طرف تازه اینترنت پرو خریده، بعد پسرش بهش خبر میده اینترنتا وصل شده.
+
+واکنش باباهه خداست😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390356
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390356_1779922881.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش تو دیگه به کسی کمک نکن😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123187
+
+<div align="center">
+  <img src="telegram/content/alonews_123187_1779922883.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهترین سرعت با بهترین قیمت با God Vpn🔵
+تخفیف ویژه برای امشب فقط✅✅
+
+10 گیگ فقط 150,000 تومن😍
+بقیه قیمت ها در ربات👍✅😍
+
+❌قیمت در حالت عادی گیگی
+10 گیگ 250,000❌
+
+✅تضمین بدون قطعی
+🌐 اتصال با تمامی دستگاه
+🔻🏪پشتیبانی ۲۴ ساعته
+✔️ دور زدن نت ملی
+🔘 بالاترین سرعت با تمام اپراتورها
+⭐با کیفیت عالی و ضمانت بازگشت وجه
+🌐🌐🌐🌐🌐🌐⭐️
+➖➖➖➖➖➖➖➖➖➖
+ربات تلگرام جهت خرید لحظه ای:
+@GodVpnV2_Bot ربات 1
+@V2rayPc1bot ربات 2
+
+ایدی کانال:
+t.me/God_of_Vpn
+پشتیبانی و خرید عمده:
+@Pc_V2ray
+@Mmkhh00
+</div>
+
+## alonews — post 123186
+
+<div align="center">
+  <a href="telegram/content/alonews_123186_1779922884.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون حمله به اسرائیل بندر صور
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123185
+
+<div align="center">
+  <a href="telegram/content/alonews_123185_1779922885.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خسارت حدودی قطع اینترنت در ۸۸روز
+
+605,440,000,000,000تومان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123184
+
+<div align="center">
+  <img src="telegram/content/alonews_123184_1779922885.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستانی که تازه آنلاین شدن در جریان باشید اون موقع که شما نبودید، دنیا جهانبخت و مهدی رسولی باهم رل زدن
+
+[@AloTweet]
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 00:53
 ---
 
