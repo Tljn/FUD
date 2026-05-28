@@ -7,6 +7,1332 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 01:21
+---
+
+## VahidOOnLine — post 242662
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ستاد فرماندهی مرکزی آمریکا، سنتکام، پنجشنبه هفتم خرداد با انتشار تصاویری اعلام کرد که ناو هواپیمابر «یواس‌اس آبراهام لینکلن» در حین عبور از دریای عرب، عملیات پروازی انجام داده است. سنتکام پیش‌تر اعلام کرده بود این ناو و نیروهای همراه آن در چارچوب عملیات‌های آمریکا در منطقه و پشتیبانی از محاصره دریایی اعمال‌شده بر بنادر ایران فعالیت می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242661
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242661_1780005067.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا در گفتگو با شبکه فاکس‌نیوز در پاسخ به سوالی درباره خط قرمز واشنگتن برای اقدام نظامی دوباره اعلام کرد که مرز نهایی و خط قرمز اصلی، توافقی است که برای آمریکا خوب نباشد. ترامپ با بیان اینکه شرایط را زیر نظر دارد و باید دید در آینده چه پیش می‌آید، طرف مقابل را مذاکره‌کنندگانی بسیار خوب و حیله‌گر توصیف کرد، اما تاکید کرد که در نهایت تمامی کارت‌های بازی در دست آمریکا قرار دارد، چرا که واشنگتن پیش از این آن‌ها را از نظر نظامی شکست داده است.
+پیش‌تر، ان‌بی‌سی نیوز به نقل از یک مقام ارشد عرب گزارش داده بود مذاکره‌کنندگان آمریکا و جمهوری اسلامی ایران سه روز پیش در دوحه بر سر مفاد توافق آتش‌بس به تفاهم رسیده‌اند، اما اعلام نهایی آن به تعویق افتاده است. همچنین آکسیوس به نقل از منابع آمریکایی و منطقه‌ای گزارش داد طرفین بر سر یک تفاهم‌نامه ۶۰ روزه برای تمدید آتش‌بس و آغاز گفتگوها درباره برنامه هسته‌ای به توافق رسیده‌اند، اما اجرای آن همچنان نیازمند تایید نهایی دونالد ترامپ است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242660
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242660_1780005068.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت خزانه‌داری آمریکا اعلام کرد تحریم‌های جدیدی مرتبط با جمهوری اسلامی ایران اعمال شده است.
+بر اساس این اعلام، دفتر کنترل دارایی‌های خارجی وزارت خزانه‌داری آمریکا ۱۷ شرکت و نهاد، از جمله شرکت «سپهر انرژی جهان نمای پارس» و همچنین هشت کشتی با پرچم کشورهای مختلف را در چارچوب تلاش‌ها برای مختل کردن شبکه تجارت نفت و پتروشیمی جمهوری اسلامی ایران تحریم کرده است.
+وزارت خزانه‌داری آمریکا اعلام کرد این تحریم‌ها بخشی از تلاش‌ها برای قطع منابع درآمدی مرتبط با فروش نفت جمهوری اسلامی است. اسکات بسنت، وزیر خزانه‌داری آمریکا، تاکید کرد که این اقدامات بخشی از کمپین «خشم اقتصادی» برای قطع منابع مالی رژیم ایران و متوقف کردن فعالیت‌های بی‌ثبات‌کننده آن در منطقه است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242659
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242659_1780005069.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش خبرگزاری مهر، در پی شنیده شدن صدای انفجار در منطقه ۷ چاه شهرستان جم واقع در استان بوشهر، مشخص شد که این رخداد ناشی از عملکرد پدافند دفاعی بوده است.
+پیش‌تر، خبرگزاری تسنیم گزارش داده بود صداهای شنیده‌شده احتمالا به شلیک‌های اخطار نیروی دریایی ایران به برخی شناورها مرتبط است. خبرگزاری فارس نیز اعلام کرد نیروهای مسلح جمهوری اسلامی پنجشنبه شب از مناطق جنوبی کشور به‌سمت اهدافی نامشخص موشک شلیک کرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242658
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242658_1780005070.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وب‌سایت وزارت خزانه‌داری آمریکا اعلام کرد تحریم‌های جدیدی مرتبط با جمهوری اسلامی اعمال شده است.
+
+این وزارتخانه اعلام کرد ۱۷ شرکت را به دلیل ارتباط با شبکه‌های وابسته به جمهوری اسلامی و شرکت «سپهر انرژی جهان‌نما پارس» که در حوزه نفت و پتروشیمی فعالیت می‌کرده، در فهرست تحریم قرار داده است. شرکت سپهر انرژی پیش‌تر نیز در لیست تحریم‌های آمریکا بوده است.
+
+همچنین هشت کشتی و نفتکش نیز در فهرست تحریم‌های جدید قرار گرفته‌اند. این کشتی‌ها با پرچم کشورهایی از جمله جزایر مارشال، پاناما، کامرون و سان‌مارینو فعالیت می‌کنند و با شرکت‌های تحریم‌شده مرتبط هستند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242657
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242657_1780005071.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رسانه‌ها در ایران از جمله خبرگزاری تسنیم وابسته به سپاه از شنیده شدن صدای شلیک در اطراف منطقه بندرعباس و تنگه هرمز خبر دادند.
+
+تسنیم گزارش داد، صداهای شنیده شده احتمالا مربوط به شلیک اخطار نیرویی دریایی ایران به بعضی شناورها بوده است.
+
+خبرگزاری فارس هم اعلام کرد که شامگاه پنجشنبه نیروهای مسلح ایران از مناطق جنوبی کشور به‌سمت اهداف مشخص موشک شلیک کردند.
+
+بنا به گزارش فارس هنوز هدف دقیق این موشک‌ها مشخص نیست اما برخی منابع از احتمال درگیری بر روی آب‌های خلیج فارس خبر می‌دهند.
+
+برخی رسانه‌ها در ایران پنجشنبه شب از وقوع انفجارهایی در استان‌های بوشهر و هرمزگان خبر داده بودند که فارس،‌ خبرگزاری نزدیک به سپاه وقوع این انفجارها را رد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242656
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242656_1780005072.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران گزارش دادند که نیروی دریایی سپاه شامگاه پنج‌شنبه در نزدیکی تنگه هرمز به ۴ «شناور خاطی» که قصد عبور بدون هماهنگی از تنگه هرمز را داشتند، «شلیک اخطار» کرده است.
+
+همزمان، گزارش‌های منتشرشده در رسانه‌های اجتماعی از شنیده‌شدن صدای انفجار در هرمزگان و بوشهر حکایت دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242655
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال لحظاتی از بی‌تابی مادر جاویدنام مهرداد فلاحی را نشان می‌دهد که با قاب عکس پسرش گریه می‌کند. او شهروند ساکن گیلان و دارای دو فرزند بود که در اعتراضات انقلاب ملی در ۱۸ دی با گلوله ماموران در رشت کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar بوست داره میریزههههه
+</div>
+
+## WithYashar — post 12833
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+
+بوست داره میریزههههه
+</div>
+
+## WithYashar — post 12832
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیکتاتور مهربون ردبول رو امشب میزنی یا فرداشب؟👀
+</div>
+
+## WithYashar — post 12831
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیکتاتور مهربون
+ردبول رو امشب میزنی یا فرداشب؟👀
+</div>
+
+## WithYashar — post 12830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند اصفهان فعال شد
+@withyashar
+</div>
+
+## WithYashar — post 12829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم : یک منبع نظامی رهگیری پهپاد آمریکایی را تایید کرد
+
+به گفته این منبع نظامی، این رهگیری در اطراف بوشهر از طریق شلیک موشک پدافندی به سمت این پهپاد انجام شد.
+@withyashar
+</div>
+
+## WithYashar — post 12828
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود بر یاشار جان از جم پیام میدم حوالی ساعت 22:41 بود که فک کنم صدای فرستادن موشک یا رد شدن جت و این داستانا یهو اومد صدای مهیب و خوبی بود @withyashar
+</div>
+
+## WithYashar — post 12827
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12827_1780005073.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران: آنها مذاکره‌کنندگان بسیار خوبی هستند آنها زیرک‌اند اما ما همه کارت‌ها را در دست داریم، چون آنها را از نظر نظامی شکست داده‌ایم.
+@withyashar
+</div>
+
+## WithYashar — post 12826
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12826_1780005076.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه CNN: تصاویر ماهواره ای نشان میدهد ایران به سرعت در حال بیرون کشیدن زرادخانه موشکی عظیم خود از زیرِ زمین است.
+@withyashar
+</div>
+
+## WithYashar — post 12825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویو از کانال میلیونی ‌بیشتره، ری اکشن از کانال پوشاک زیر کمتر 😕 بد میگین ما ایرانیم چه کاری ازمون برم یاد بکنیم برات !!! خوب اسمت که نمی افته کاملا مخفیه همه پستا و ری اکشن بده دست آدم به کار بره…
+</div>
+
+## WithYashar — post 12824
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال‌های وابسته به محور شیعه ادعا می‌کنند که ۴ کشتی تجاری آمریکایی پس از تلاش برای عبور از تنگه هرمز بدون اجازه ایران، توسط سپاه پاسداران ایران مورد حمله قرار گرفته‌اند.
+@withyashar
+</div>
+
+## WithYashar — post 12823
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: دقایقی پیش نیروهای مسلح ایران از مناطق جنوبی کشور به‌سمت اهداف مشخص موشک شلیک کردند.
+
+بامداد امروز هم پس از تعرض دشمن یه مناطق شرقی بندرعباس پایگاه مبدأ این تجاوز مورد هدف نیروهای مسلح جمهوری اسلامی قرار گرفت.
+
+هنوز هدف دقیق این موشک‌ها مشخص نیست اما برخی منابع از احتمال درگیری بر روی آب‌های خلیج فارس خبر می‌دهند.
+@withyashar
+</div>
+
+## WithYashar — post 12822
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های عبری : گزارشهای رسمی از تبادل آتش بین ایران و آمریکا در تنگه هرمز خبر می‌دهند. @withyashar
+</div>
+
+## WithYashar — post 12821
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : یا موسی 💥 یااااا موسیییی
+</div>
+
+## WithYashar — post 12820
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های عبری : گزارشهای رسمی از تبادل آتش بین ایران و آمریکا در تنگه هرمز خبر می‌دهند.
+@withyashar
+</div>
+
+## WithYashar — post 12819
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایلنا: شلیک اخطار نیروی دریایی به چهار شناور
+
+نیروی دریایی در نزدیکی تنگه هرمز به ۴ فروند شناور خاطی شلیک اخطار انجام داد. این شناورها قصد عبور بدون هماهنگی از تنگه هرمز را داشتند.
+@withyashar
+</div>
+
+## WithYashar — post 12818
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه های عبری : گزارش‌های اولیه: موشک‌های کروز «ابومهدی المهندس» از ایران به سمت کشتی‌های آمریکایی در منطقه تنگه هرمز شلیک شدند.
+@withyashar
+</div>
+
+## WithYashar — post 12817
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود بر یاشار جان از جم پیام میدم
+حوالی ساعت 22:41 بود که فک کنم صدای فرستادن موشک یا رد شدن جت و این داستانا یهو اومد
+صدای مهیب و خوبی بود
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342366
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342366_1780005076.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A graduating Air Force cadet went in for a chest bump with Vice President JD Vance... and Vance delivered.
+
+The quick exchange happened right during the commencement ceremony, with the crowd cheering and laughing at the unexpected moment between the VP and the newly commissioned officer.
+</div>
+
+## FoxNewsTwitter — post 342365
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342365_1780005079.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A massive explosion and fire ripped through an apartment building in Dallas, sending heavy flames and smoke into the air and injuring at least four people.
+
+Nearly 100 firefighters rushed to the scene in the city’s Oak Cliff neighborhood. It's not clear how many people were in the building at the time.
+</div>
+
+## FoxNewsTwitter — post 342364
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342364_1780005082.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A calm poolside moment turned terrifying in seconds.
+
+A little girl lost her balance and slipped underwater, but her dad’s reflexes kicked in instantly, pulling her back to safety before the moment turned tragic.
+</div>
+
+## pm_afshaa — post 91799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=tg.capycore.ru&port=443&secret=27ebe852539fb8ec5f327c73262bb721
+
+پروکسی مخصوص دانلود فیلم و سریال سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91798
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پزشکیان :به جلیلی گفتم توام بیا یه گوشه کارو بگیر کمک کن کشورو درست کنیم. گفت نه من فقط پیشنهاد میدم. گفتم پیشنهاد به چه دردم میخوره اخه عمل میخوام; نخواستیم اصلا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91797
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رکنا : یه پسر 20 ساله دزفولی که دارای اختلالات روانی بود، پدر و مادر و برادر خودش رو سلاخی کرد و به قتل رسوند و در آخر خودکشی کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91796
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با توجه به درخواست خیلیاتون کانفیگ اختصاصی برای فروش موجود کردیم
+💙
+
+اگر قصد تهیه دارید به آیدی پایین پیام بدید
+👇
+
+
+🔤 @Gliitch_Admin
+
+🔤 @Gliitch_Admin
+</div>
+
+## pm_afshaa — post 91795
+
+<div align="center">
+  <a href="https://t.me/pm_afshaa/91795" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نپسترنت سرعت بالا مخصوص اینستا و یوتیوب
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91793
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صبحا صلح شبا جنگ🗿
+</div>
+
+## pm_afshaa — post 91792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پدافند بندر عباس فعال شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91791
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر هم میخوای از اخبار جا نمونی و اطلاعات نظامیت بالا باشه تو چنل پادشاهی خواه فایتر رادار جوین شو https://t.me/+9C1ENi5qn6hhZjk0 https://t.me/+9C1ENi5qn6hhZjk0
+</div>
+
+## pm_afshaa — post 91790
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://c575c0fd-4833-4cba-937d-2342fd32544b@104.17.121.71:443?encryption=none&security=tls&sni=de.vpncustomize.cc.cd&alpn=h2%2Chttp%2F1.1&fp=chrome&type=tcp&headerType=none#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نامحدود سرعت بالا مخصوص اینستا و دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://478cc26d-16b3-4fdd-be64-60d5a58c1622@162.159.36.5:80?path=%2F&security=none&encryption=none&host=tt.andishehparenting.com&type=ws#PMTV%20NEWS%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نامحدود سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.210&port=4455&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91787
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=ui.geodns.info.&port=4455&secret=7nnjRIGHSb16xRkTAiDCXQk%3D
+
+پروکسی سرعت بالا مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91786
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر هم میخوای از اخبار جا نمونی و اطلاعات نظامیت بالا باشه
+تو چنل پادشاهی خواه فایتر رادار جوین شو
+
+https://t.me/+9C1ENi5qn6hhZjk0
+
+https://t.me/+9C1ENi5qn6hhZjk0
+</div>
+
+## pm_afshaa — post 91785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس : دقایقی پیش ایران از جنوب کشور چند موشک به سمت اهداف مشخص شلیک کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91784
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.210&port=4455&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+پروکسی مخصوص دانلود سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=45.86.153.138&port=443&secret=ee07266a279143bcff09a5e484abb277636972616e2e6d69642e7275
+
+پروکسی مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=ams1.tlgfast.com&port=443&secret=083fe0c452e2407d835537872f097c54
+
+پروکسی سرعت بالا مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91780
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خزانه‌داری آمریکا از اعمال تحریم‌های جدیدی مرتبط با ایران خبر داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpDSmpWSXZITnFickFtVzNI@4.168.201.153:443#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نامحدود متصل سرعت بالا
+🚀
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91778
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://b51b79ef-de4e-4c88-924a-9b32ae7bfadd@108.61.198.98:80?encryption=none&security=none&type=ws&host=play.google.com&path=%2F#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نامحدود سرعت موشکی مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5079
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5079_1780005085.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟪 
+🔺 حمایت ایرانیان مقیم اروپا از انقلاب شیر و خورشید
+
+#همبستگی
+@DEJradio
+</div>
+
+## mamlekate — post 103602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 الو ساعت ۰۰:۱۳ جمعه ۸ خرداد
+بیدگنه صدای پدافند پشت‌ هم
+
+
+📝الو جمعه فعالیت مکرر پدافند در لنجان اصفهان
+
+
+🚀 گزارش‌های رسانه‌های حکومتی در ایران از حملات موشکی جمهوری اسلامی
+
+@mamlekate
+</div>
+
+## VahidOnline — post 75781
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75781_1780005088.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران گزارش دادند که نیروی دریایی سپاه شامگاه پنج‌شنبه در نزدیکی تنگه هرمز به ۴ «شناور خاطی» که قصد عبور بدون هماهنگی از تنگه هرمز را داشتند، «شلیک اخطار» کرده است.
+
+همزمان، گزارش‌های منتشرشده در رسانه‌های اجتماعی از شنیده‌شدن صدای انفجار در هرمزگان و بوشهر حکایت دارد.
+@VahidOOnLine
+ساعتی پیش پیامی دریافت کرده بودم که در پست قبلی نقلش کرده بودم و الان به اینجا منتقلش کردم. پیامی از شهروندی که درباره یکی از اعضای خانواده‌اش نوشته بود: الان قشم بود. پلاک موقت دادن بهشون گفتند فقط از جزیره خارج شید سریع
+
+همزمان با خبر بالا هم پیام‌هایی داشتم:
+صدای انفجارهایی در بندر عباس شنیده میشه.
+صدای انفجار داره سمت قشم و دریا میاد.
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 339476
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339476_1780005088.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی یک هواگرد را در آسمان جم در استان بوشهر هدف قرار دادند و هم‌اکنون شهرستان در وضعیت عادی قرار دارد.
+طبق این گزارش، دلیل صدای انفجار در جم، مقابله پدافند با هواگردهای متخاصم بوده است.
+https://iranintl.com/202605280555
+</div>
+
+## IranIntlTV — post 339475
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339475_1780005089.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی یک هواگرد را در آسمان جم در استان بوشهر هدف قرار دادند و هم‌اکنون شهرستان در وضعیت عادی قرار دارد.
+طبق این گزارش، دلیل صدای انفجار در جم، مقابله پدافند با هواگردهای متخاصم بوده است.
+https://iranintl.com/202605280555
+</div>
+
+## IranIntlTV — post 339474
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339474_1780005090.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی یک هواگرد را در آسمان جم در استان بوشهر هدف قرار دادند و هم‌اکنون شهرستان در وضعیت عادی قرار دارد.
+طبق این گزارش، دلیل صدای انفجار در جم، مقابله پدافند با هواگردهای متخاصم بوده است.
+https://iranintl.com/202605280555
+</div>
+
+## IranIntlTV — post 339473
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339473_1780005091.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی یک هواگرد را در آسمان جم در استان بوشهر هدف قرار دادند و هم‌اکنون شهرستان در وضعیت عادی قرار دارد.
+طبق این گزارش، دلیل صدای انفجار در جم، مقابله پدافند با هواگردهای متخاصم بوده است.
+https://iranintl.com/202605280555
+</div>
+
+## IranIntlTV — post 339472
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339472_1780005092.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسرین ستوده، وکیل و فعال حقوق بشر، گفت پس از بازداشت توسط ماموران وزارت اطلاعات، در بازداشتگاه این نهاد مورد ضرب و جرح قرار گرفته است.
+
+او همچنین شرایط بازداشتگاه را غیرانسانی توصیف کرد.
+
+گفت‌وگو با رقیه رضایی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 339471
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339471_1780005094.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وب‌سایت وزارت خزانه‌داری آمریکا اعلام کرد تحریم‌های جدیدی مرتبط با جمهوری اسلامی اعمال شده است.
+
+این وزارتخانه اعلام کرد ۱۷ شرکت را به دلیل ارتباط با شبکه‌های وابسته به جمهوری اسلامی و شرکت «سپهر انرژی جهان‌نما پارس» که در حوزه نفت و پتروشیمی فعالیت می‌کرده، در فهرست تحریم قرار داده است. شرکت سپهر انرژی پیش‌تر نیز در لیست تحریم‌های آمریکا بوده است.
+
+همچنین هشت کشتی و نفتکش نیز در فهرست تحریم‌های جدید قرار گرفته‌اند. این کشتی‌ها با پرچم کشورهایی از جمله جزایر مارشال، پاناما، کامرون و سان‌مارینو فعالیت می‌کنند و با شرکت‌های تحریم‌شده مرتبط هستند.
+https://iranintl.com/202605287485
+</div>
+
+## IranIntlTV — post 339470
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید اعلام کرد واشینگتن و تهران بر سر یک یادداشت تفاهم ۶۰ روزه برای تمدید آتش‌بس و آغاز مذاکرات هسته‌ای به توافق اولیه رسیده‌اند، اما دونالد ترامپ هنوز آن را تایید نهایی نکرده است.
+
+همزمان، وزیر خزانه‌داری آمریکا گفت مذاکرات ادامه دارد و ترامپ بر توقف غنی‌سازی اورانیوم و جلوگیری از دستیابی ایران به سلاح هسته‌ای به‌عنوان خطوط قرمز تاکید دارد.
+
+گفت‌وگو با میعاد ملکی، رییس پیشین دفتر هدف‌گذاری تحریم‌های وزارت خزانه‌داری آمریکا
+@iranintltv
+</div>
+
+## IranIntlTV — post 339469
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339469_1780005095.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسرین ستوده، وکیل و فعال حقوق بشر، اعلام کرد پس از بازداشت توسط وزارت اطلاعات در ۱۲ فروردین، در بازداشتگاه این نهاد مورد ضرب‌وجرح قرار گرفته است. او شرایط بازداشتگاه را غیرانسانی توصیف کرده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 339468
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339468_1780005098.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید اعلام کرد واشینگتن و تهران بر سر یک یادداشت تفاهم ۶۰ روزه برای تمدید آتش‌بس و آغاز مذاکرات هسته‌ای به توافق اولیه رسیده‌اند، اما دونالد ترامپ هنوز آن را تایید نهایی نکرده است. به گفته این منابع، طرف ایرانی تاییدهای لازم را دریافت کرده و آماده امضاست؛ هرچند تاکنون واکنش رسمی از تهران منتشر نشده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 339467
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339467_1780005100.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران گزارش دادند که نیروی دریایی سپاه شامگاه پنج‌شنبه در نزدیکی تنگه هرمز به ۴ «شناور خاطی» که قصد عبور بدون هماهنگی از تنگه هرمز را داشتند، «شلیک اخطار» کرده است.
+
+همزمان، گزارش‌های منتشرشده در رسانه‌های اجتماعی از شنیده‌شدن صدای انفجار در هرمزگان و بوشهر حکایت دارد.
+https://iranintl.com/202605287972
+</div>
+
+## IranIntlTV — post 339466
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339466" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: توافق تهران و واشینگتن در انتظار امضای ترامپ
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال لحظاتی از بی‌تابی مادر جاویدنام مهرداد فلاحی را نشان می‌دهد که با قاب عکس پسرش گریه می‌کند. او شهروند ساکن گیلان و دارای دو فرزند بود که در اعتراضات انقلاب ملی در ۱۸ دی با گلوله ماموران در رشت کشته شد.
+</div>
+
+## Shin_Persian — post 6290
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6290_1780005102.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 28 May 2026 21:16:53 UTC
+
+And IRGC's Fars confirms the earlier missile launch
+
+فارسی
+
+و خبرگزاری فارس (وابسته به سپاه پاسداران) شلیک موشک در زمان زودتر را تایید می‌کند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6289
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 28 May 2026 21:14:07 UTC
+
+מי שלא מכסח את הדשא, הדשא מכסח אותו!
+
+English
+
+Whoever does not mow the lawn, the lawn mows them!
+
+فارسی
+
+هر کس که چمن را کوتاه نکند، چمن او را از پا در می‌آورد!
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6288
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 28 May 2026 20:30:14 UTC
+
+State-owned Mehr News reports that the "blast" in Jam city was due to Air Defense, engaging "hostile" UAV.
+Bushehr Province, #Iran
+
+فارسی
+
+خبرگزاری دولتی مهر گزارش می‌دهد که «انفجار» در شهر جم ناشی از عملکرد پدافند هوایی در درگیری با پهپاد «متخاصم» بوده است.
+استان بوشهر، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218931
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218931_1780005102.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کاربران ایرانی از «وقتی شما نبودید» می‌گویند؛ بازگشت قطره‌چکانی اینترنت
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218930
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218930_1780005104.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش عفو بین الملل در مورد افزایش سرکوب‌ها در ایران؛ گفت‌وگو با اسفندیار ابان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218929
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تقویت نظامی ناتو در بالتیک؛ گوتلاند در خط مقدم بازدارندگی در برابر تهدیدهای روسیه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218928
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218928_1780005105.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ویدیوی سنتکام از انجام ماموریت ناو هواپیمابر آبراهام لینکلن در حین عبور از «دریای عرب»
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218927
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش‌های رسانه‌های حکومتی در ایران از حملات موشکی جمهوری اسلامی
+
+▪️خبرگزاری فارس، وابسته به سپاه پاسداران، اواخر پنج‌شنبه ۷ خرداد از شلیک موشک از مناطق جنوبی ایران خبر داد و مدعی شد که مقصد این موشک‌ها مشخص نیست.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154974.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218926
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218926_1780005106.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شکریا برادوست در برنامه تفسیر خبر: پهپادها شمشیرهای دو لبه برای جمهوری اسلامی هستند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218925
+
+<div align="center">
+  <a href="https://t.me/farsivoa/218925" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴📢‌ نسخه صوتی اخبار ساعت ۲۰ پنجشنبه ۷ خرداد ۱۴۰۵
+
+🛜در صورتی که با مشکل اینترنت مواجه هستید میتوانید اخبار صدای آمریکا را از نسخه‌های پادکست خبری ما روزانه دنبال کنید و یا از نسخه سبک وب‌سایت ما پیگیر باشید:
+https://ir.voanews.com/lite
+
+📡بروزترین فرکانسهای ماهواره‌ای را نیز میتوانید از صفحه زیر پیگیری کنید:
+https://ir.voanews.com/satellite
+
+🔔دیگر شبکه‌های اجتماعی ما را هم دنبال کنید:
+https://linktr.ee/voafarsi
+
+
+
+به اشتراک بگذارید
+@farsivoa
+</div>
+
+## FarsiVOA — post 218924
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218924_1780005108.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مئیر جاودانفر در برنامه تفسیر خبر: در زمان جنگ فرماندهان سپاه آتش به اختیار بودند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218922
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218922_1780005109.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نرگس صبا در برنامه تفسیر خبر پیشینه تولید پهپاد در جمهوری اسلامی بررسی می‌کند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218921
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218921_1780005110.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رضا طالبی در برنامه تفسیر خبر: شکاف‌ها در جمهوری اسلامی کنترل شده است
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15210
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15210_1780005112.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: یک پهپاد متجاوز امریکایی در نزدیکی بوشهر با موفقیت رهگیری شد. همچنین فرماندار شهرستان جم در استان بوشهر گفت: اتفاقی که امشب به وقوع پیوست مربوط به انهدام یک هواگرد متخاصم بود. هم اینک شهرستان در وضعیت عادی است. 📝 Amir 📌 @persian_trend_official پرشین…
+</div>
+
+## Persian_Trend_Official — post 15209
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15209_1780005113.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: یک پهپاد متجاوز امریکایی در نزدیکی بوشهر با موفقیت رهگیری شد.
+
+همچنین فرماندار شهرستان جم در استان بوشهر گفت: اتفاقی که امشب به وقوع پیوست مربوط به انهدام یک هواگرد متخاصم بود. هم اینک شهرستان در وضعیت عادی است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15208
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/JrqroHI5pq8?feature=share
+</div>
+
+## Persian_Trend_Official — post 15207
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15207_1780005113.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157673
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157673_1780005114.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸در پی انتشار گزارش‌هایی درباره شنیدن صدای انفجار و شلیک در جنوب ایران، رسانه‌های نزدیک به سپاه پاسداران شامگاه پنجشنبه از شلیک به سمت برخی شناورها در تنگه هرمز خبر دادند.
+
+🔸خبرگزاری فارس مدعی شد که «نیروهای مسلح ایران از مناطق جنوبی کشور به سمت اهداف مشخص عملیات شلیک موشک را اجرایی کردند».
+
+🔸این خبرگزاری نزدیک به سپاه گفت که «مقصد دقیق» این موشک‌ها مشخص نیست.
+
+🔸پیش‌تر گزارش‌های منتشر شده در شبکه‌های اجتماعی از شنیده شدن صدای انفجار در برخی نقاط استان‌های بوشهر و هرمزگان حکایت داشت.
+
+🔸خبرگزاری تسنیم، دیگر رسانه نزدیک به سپاه می‌گوید منشا این صداهایی به «درگیری‌های نظامی در دریا» ارتباط دارد.
+
+🔸این خبرگزاری در ادامه به نقل از «مرکز کنترل فرماندهی پدافند هوایی ارتش» اعلام کرد که انفجارها «از سمت دریا و مربوط به تبادل آتش در اخطار به کشتی‌های متخلف در تنگه هرمز بوده است».
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20974
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20974_1780005115.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست عجیب کاخ سفید
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20973
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20973_1780005116.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران:
+
+آنها مذاکره‌کنندگان بسیار خوبی هستند آنها زیرک‌اند
+اما ما همه کارت‌ها را در دست داریم
+چون آنها را از نظر نظامی شکست داده‌ایم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20972
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باز شب شدو تو جنوب کشور جنگ شد
+
+طبق معمول هیچکدومش هم نقض آتش بس نیست
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبر‌گزاری مهر از شنیده شدن صدای انفجار در شهر جم از توابع استان بوشهر و واکنش پدافند ضد‌هوایی ایران به جنگنده‌های دشمن در آسمان بوشهر خبر داد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20970
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری ایلنا :
+
+چن تا کشتی میخواسن از تنگه هرمز عبور کنن که نیروی دریایی سپاه با شلیک پهپاد و موشک بهشون هشدار داد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282285
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282285_1780005118.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+شیخ تمیم بن حمد آل ثانی، امیر قطر، در تماسی تلفنی با دونالد ترامپ، رئیس جمهور آمریکا، در مورد تحولات منطقه‌ای گفتگو کرد.
+
+دفتر امیر قطر در گزارشی از این مکالمه تلفنی اعلام کرد که شیخ تمیم بر اهمیت اولویت دادن به راه‌حل‌های دیپلماتیک و گفت‌وگو بین همه طرف‌ها به امید جلوگیری از تنش‌ها و تشدید بیشتر در خاورمیانه تأکید کرد.
+
+در این بیانیه آمده است که ترامپ نیز به نوبه خود از نقش قطر در حمایت از تلاش‌های میانجیگری پاکستان بین واشنگتن و تهران قدردانی کرد و «از تلاش‌های قطر برای رفع اختلافات و ترویج کاهش تنش در منطقه» تمجید کرد.
+
+https://bbc.in/4vgvuEb
+📷Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 282284
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282284_1780005119.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+مدیرعامل شرکت ارتباطات زیرساخت ایران از روند افزایشی ترافیک بین‌الملل اینترنت خبر داد اما گفت که بهبود کیفیت آن چند روز زمان می برد.
+
+به گزارش ایرنا، بهزاد اکبری می‌گوید که بهبود کیفیت سرویس‌ها و بازگشت ترافیک بین‌الملل به دلیل طولانی شدن قطعی‌ اینترنت چند روز طول می‌کشد.
+
+ایرنا به نقل از کارشناسان گزارش داد که فرآیند اینترنت باید تدریجی باشد تا از از آلودگی شبکه به انواع ویروس‌ها و بدافزارها جلوگیری شود.
+
+بعد از چند ماه قطعی اینترنت در ایران در پی جنگ آمریکا و اسرائیل با ایران، دو روز پیش اینترنت در ایران به طور نسبی وصل شد و به‌صورت جزئی در حال بازگشت است.
+
+پیش از این دولت مسعود پزشکیان چند بار خواستار برقراری مجدد اینترنت شده و تاکید کرده بود که قطعی اینترنت موجب ضربه به حوزه علمی کشور و خسارات اقتصادی می‌شود و مستقیم و غیرمستقیم بر کسب و کارها تاثیر می‌گذارد.
+
+https://bbc.in/4vg4Fjo
+📷Reuters
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390432
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390432_1780005119.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی اصلی خامنه‌ای اینه 👆
+اونی که قبلن پخش شده فیک بوده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390431
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390431_1780005121.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقایی غیرتی:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت رو یه جوری ریدن توش که هیچ راهی جز خریدن استارلینک از محل درامد کشت خشخاش برامون نذاشتن.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123407
+
+<div align="center">
+  <a href="telegram/content/alonews_123407_1780005121.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بعد از سال‌ها پُرشدگی سد کرج به 70 درصد رسید!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123406
+
+<div align="center">
+  <a href="telegram/content/alonews_123406_1780005121.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست عجیب کاخ سفید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123405
+
+<div align="center">
+  <a href="telegram/content/alonews_123405_1780005121.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویری که الجزیره از شدت خسارت حملات آمریکا به تاسیسات فولاد اصفهان منتشر کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123404
+
+<div align="center">
+  <a href="telegram/content/alonews_123404_1780005124.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نورالدین الدغیر خبرنگار الجزیره در تهران:
+یادداشت تفاهم، حاصل جمعبندی مذاکرات در سطح دیپلماتیک است.
+
+
+🔴برای اجرایی شدن، نیاز به امضای مقامات عالی در تهران و واشنگتن دارد.
+
+
+🔴نیت توافق وجود دارد و انتظار می‌رود که از مرحله نیت به مرحله عمل منتقل شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123403
+
+<div align="center">
+  <a href="telegram/content/alonews_123403_1780005124.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ستاد فرماندهی مرکزی آمریکا «سنتکام» شامگاه پنج‌شنبه هفتم خرداد ویدیویی از عملیات پروازی انجام شده از عرشه ناو هواپیمابر ابراهام لینکولن[USS Abraham Lincoln (CVN 72)] در جریان حرکت آن در دریای عرب و پشتیبانی از محاصره دریایی اعمال شده بر بنادر ایران، منتشر کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123402
+
+<div align="center">
+  <a href="telegram/content/alonews_123402_1780005125.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان:
+به جلیلی گفتم توام بیا یه گوشه کارو بگیر کمک کن کشورو درست کنیم. گفت نه من فقط پیشنهاد میدم. گفتم پیشنهاد به چه دردم میخوره اخه. عمل میخوام. نخواستیم اصلا.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123401
+
+<div align="center">
+  <a href="telegram/content/alonews_123401_1780005125.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سوخت رسان KC3 بریتانیا برفراز عراق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀مصرف بالا؟ حجم‌خوری زیاد؟ اینو ببین 👇 💎 همراه با ساب یعنی مصرف بهینه‌تر و تجربه بهتر ⚡️ 🚀 سرعت عالی پایدار برای استفاده روزانه و بلند مدت😍😍 @NetAazaadBot @NetAazaadBot 😍آف فقط برای امشب😍 ❌ گیگی 50T ❌ ✅ فقط گیگی 25T ✅ @NetAazaadBot @NetAazaadBot 🔥 یه…
+</div>
+
+## alonews — post 123399
+
+<div align="center">
+  <img src="telegram/content/alonews_123399_1780005125.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀مصرف بالا؟ حجم‌خوری زیاد؟ اینو ببین 👇
+💎 همراه با ساب یعنی مصرف بهینه‌تر و تجربه بهتر
+⚡️
+🚀 سرعت عالی پایدار برای استفاده روزانه و بلند مدت😍😍
+
+@NetAazaadBot
+@NetAazaadBot
+
+😍آف فقط برای امشب😍
+❌ گیگی 50T ❌
+✅ فقط گیگی 25T ✅
+
+@NetAazaadBot
+@NetAazaadBot
+🔥 یه بار امتحان کن، خودت تفاوتشو حس می‌کنی✅
+</div>
+
+## alonews — post 123396
+
+<div align="center">
+  <a href="telegram/content/alonews_123396_1780005126.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یواش یواش برخی از اکانتهای امنیتی حذف جانشین سردار تنگسیری را دارن تایید میکنند در حمله دیشب آمریکا به بندرعباس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123395
+
+<div align="center">
+  <a href="telegram/content/alonews_123395_1780005126.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈90 روز از ترور علی خامنه‌ای رهبر پیشین جمهوری اسلامی گذشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123394
+
+<div align="center">
+  <a href="telegram/content/alonews_123394_1780005126.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لحظه حمله به شرکت آسا پنجره کاشان، تصاویر از دوربین‌های مداربسته گرفته شده است
+
+
+🔴در حمله دوم که با شدت بیشتری انجام گرفت هیچ تصاویری موجود نیست.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123390
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این وسط «صابر ابر» برند خودش رو با شعار زیست پنهان راه اندازی کرده.
+
+[@AloTweet]
+</div>
+
+## alonews — post 123389
+
+<div align="center">
+  <a href="telegram/content/alonews_123389_1780005129.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مهر: نیروهای مسلح ایران در نزدیکی تنگه هرمز به چهار شناور خاطی شلیک اخطار انجام دادند، این شناورها قصد عبور بدون هماهنگی از تنگه هرمز را داشتند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123388
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️این روزها بعضی از سلبریتی‌ها، چه از روی فشار نهادهای امنیتی و چه از روی منفعت‌طلبی و ترس، شروع کرده‌اند به تخریب انقلاب شیر و خورشید. 
+🔴بعضی‌ها هم تازه رنگ عوض کرده‌اند و می‌خواهند با حاشیه‌سازی، مسیر اصلی را کمرنگ کنند. 
+🔴بهترین پاسخ، درگیر شدن با حاشیه‌هایشان…
+</div>
+
+## alonews — post 123387
+
+<div align="center">
+  <a href="telegram/content/alonews_123387_1780005129.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ درباره ایران: آنها مذاکره‌کنندگان بسیار خوبی هستند — آنها زیرک‌اند — اما ما همه کارت‌ها را در دست داریم، چون آنها را از نظر نظامی شکست داده‌ایم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123386
+
+<div align="center">
+  <a href="telegram/content/alonews_123386_1780005132.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون حملات سنگین هوایی اسرائیل به غزه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 23:14
 ---
 
@@ -4877,8 +6203,6 @@ Investment Pulse Capital
 <div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
 👑
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
