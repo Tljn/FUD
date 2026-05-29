@@ -7,6 +7,720 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 08:32
+---
+
+## VahidOOnLine — post 242697
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242697_1780030920.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم در گزارشی نوشت موساد در سال‌های اخیر شاخه‌ای محرمانه برای نزدیک‌تر کردن سقوط جمهوری اسلامی ایجاد کرده است. به گفته منابع آگاه، رییس موساد متقاعد شده است که اگر ترامپ با تهران توافق نکند و محاصره دریایی را ادامه دهد، جمهوری اسلامی تا پایان سال ۲۰۲۶ سقوط می‌کند.
+به نوشته اسرائیل هیوم، ماموریت ابتدایی این شاخه که در سال ۲۰۲۱ و پس از آغاز ریاست داوید بارنیا بر موساد ایجاد شد، عملیات‌ هدفمند برای کنار زدن مقام‌های ارشد جمهوری اسلامی بود، اما به‌تدریج به بخشی از راهبرد گسترده‌تر موساد برای «تغییر رژیم» تبدیل شد.
+رییس پیشین این شاخه به اسرائیل هیوم گفت موساد در گذشته بیشتر از طریق ترور افراد را حذف می‌کرد، اما اکنون افشای اطلاعات شرم‌آور یا آسیب‌زننده درباره مقام‌ها می‌تواند آن‌ها را از حلقه قدرت خارج کند؛ روشی که به گفته او «ارزان‌تر و ساده‌تر از عملیات ترور» است.
+به نوشته اسرائیل هیوم، مقام‌های موساد معتقدند عملیات‌های اخیر علیه ایران فقط یک مرحله در مسیر سقوط جمهوری اسلامی بوده است. رئیس پیشین شاخه نفوذ گفت این واحد اکنون با شدت بیشتری فعالیت می‌کند و هدف آن «سریع‌تر کردن ساعت شنی پایان حکومت است».
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242696
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242696_1780030921.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان اسرائیل گزارش داد تلاش‌های عمان و ایران برای ایجاد سازوکار مشترک مدیریت و دریافت عوارض در تنگه هرمز، باعث خشم آمریکا و کشورهای خلیج فارس شده است.
+یک دیپلمات از یکی از کشورهای میانجی به کان گفت: «ما تلاش کردیم وضعیت تنگه را به حالت پیشین بازگردانیم.» بر اساس توافق در حال شکل‌گیری، قرار است تنگه هرمز بدون محدودیت باز شود.
+اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، «لفاظی‌های تهدیدآمیز» مقام‌های آمریکا علیه عمان را در واکنش به گزارش‌ها درباره احتمال مشارکت این کشور در کنترل تنگه هرمز محکوم کرد و آن را «مغایر با اصول بنیادین منشور ملل متحد و حقوق بین‌الملل» دانست.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242695
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ویدیوی منتشرشده، لحظه انفجار موشک غول‌پیکر «نیو گلن» (New Glenn) متعلق به شرکت فضایی بلواوریجین، تحت مالکیت جف بیزوس، را روی سکوی پرتاب شماره ۳۶ در پایگاه فضایی کیپ کاناورال فلوریدا نشان می‌دهد.
+این حادثه زمانی رخ داد که تیم فنی در حال آماده‌سازی و انجام آزمایش آتش ایستا (Static Fire) پیش از ماموریت بعدی این موشک، موسوم به NG-4، بود. تصاویر منتشرشده لحظه تبدیل شدن این موشک پیشرفته به یک گلوله بزرگ آتش را نشان می‌دهد.
+موشک نیو گلن یکی از مهم‌ترین پروژه‌های بلواوریجین برای رقابت در بازار پرتاب‌های سنگین فضایی به شمار می‌رود و این انفجار می‌تواند باعث شکست و تاخیر قابل توجه در برنامه‌های فضایی این شرکت شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️حساب کاربری وزارت جنگ آمریکا در اکس با انتشار ویدیویی اعلام کرد پیت هگست، وزیر جنگ آمریکا، به همراه ملوانان و تفنگداران دریایی این کشور در ناو باکسر در یک برنامه ورزش صبحگاهی شرکت کرده است.
+در این ویدیو، هگست در کنار نیروهای حاضر در ناو آبی‌خاکی باکسر در تمرین‌های بدنی صبحگاهی شرکت می‌کند.
+وزیر جنگ آمریکا پس از پایان این تمرینات خطاب به نیروهای حاضر در ناو گفت: «شما هر روز روی این کشتی و سکوهای عملیاتی خود تمرین می‌کنید تا در بالاترین سطح آمادگی قرار داشته باشید و اگر روزی فراخوانده شدید، آماده باشید.»
+هگست با اشاره به اظهارات دونالد ترامپ در نشست کابینه افزود: «ایران یا می‌تواند از راه درست و از طریق توافق پای میز مذاکره پیش برود، یا با شما روبه‌رو شود.» او سپس با اشاره به نیروهای حاضر در ناو گفت: «آن فرد من نیستم؛ شما هستید.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242693
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242693_1780030922.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه آیریش میرر گزارش داد جسد معصومه سهرابی، زن ایرانی ۳۱ ساله و مادر دو فرزند، بیرون از هتلی در شهرستان گالوی ایرلند، که به‌عنوان اقامتگاه اضطراری استفاده می‌شد، پیدا شده است.
+به نوشته آیریش میرر، این زن با جراحات شدید در ناحیه گردن پیدا شد و پلیس ایرلند قرار است تحقیقات قتل را آغاز کند. او روز چهارشنبه مفقود اعلام شده بود و دوستانش در مرکز آی‌پاس او را با نام «آتیجا» می‌شناختند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242692
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش خبرگزاری رویترز، تصاویری از استادیوم «کالینته» در شهر مرزی تیخوانای مکزیک منتشر شده است؛ همان مکانی که قرار است به عنوان کمپ تمرینی و محل استقرار تیم ملی فوتبال ایران در طول رقابت‌های جام جهانی ۲۰۲۶ مورد استفاده قرار گیرد.
+این تصمیم پس از آن اتخاذ شد که دولت ایالات متحده از میزبانی و اقامت طولانی‌مدت کاروان جمهوری اسلامی در خاک خود خودداری کرد. بر اساس توافق فیفا و دولت مکزیک، ملی‌پوشان جمهوری اسلامی ایران در طول مسابقات در شهر تیخوانا مستقر خواهند بود و تنها در روزهای برگزاری سه بازی خود در مرحله گروهی، به خاک آمریکا (شهرهای لس‌آنجلس و سیاتل) سفر خواهند کرد. در حال حاضر نیروهای گارد ملی مکزیک برای تامین امنیت کاروان ایران، در اطراف و بخش‌های مختلف این استادیوم مستقر شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242691
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242691_1780030923.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارتخانه‌های خارجه فلسطین و عراق حملات موشکی و پهپادی منتسب به جمهوری اسلامی علیه کویت را محکوم کردند. وزارت‌ خارجه فلسطین این حملات را «شنیع» خواند و همبستگی کامل خود را با کویت اعلام کرد. وزارت خارجه عراق هرگونه تهدید علیه امنیت را مردود دانست.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242690
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242690_1780030924.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدرضا جمشیدی، دبیرکل کانون بانک‌ها و موسسات اعتباری خصوصی، درباره کمبود نقدینگی و اسکناس در برخی دستگاه‌های خودپرداز گفت: یکی از علل اصلی کمبود اسکناس و حتی سکه در مقطع اخیر، به اختلالات و تأخیر‌های به وجود آمده در برقراری ارتباط بانکی دستگاه‌های الکترونیکی بازمی‌گردد. حکومت ایران اینترنت را ۸۸ روز قطع کرد که پیامدهای شدیدی برای بخش‌های مختلف اقتصاد به همراه داشت. جمشیدی همچنین به افزایش تلاش مردم برای ذخیره کردن پول نقد اشاره کرد. تلاشی که به دلیل عدم اطمینان مردم به حاکمیت است. جمشیدی با اشاره به چالش‌های چاپ اسکناس تصریح کرد: چاپ اسکناس برای دولت هزینه سنگینی دارد؛ به‌طوری که هزینه چاپ برخی اسکناس‌های کوچک تقریبا با ارزش خود آن اسکناس برابری می‌کند. به همین دلیل بانک مرکزی بیشتر بر چاپ و توزیع اسکناس‌های درشت تمرکز کرده و این عامل هم به کمبود اسکناس در عابربانک‌ها دامن زده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242689
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شهروندان و گردشگران در نیویورک، پنجشنبه ۷ خرداد، برای تماشای پدیده «منهتن‌هنج» گرد هم آمدند؛ پدیده‌ای که در آن خورشید هنگام غروب یا طلوع، به شکلی تقریبا کامل با شبکه خیابان‌های منهتن هم‌راستا می‌شود و میان آسمان‌خراش‌های شهر دیده می‌شود.
+این پدیده زمانی رخ می‌دهد که زاویه خورشید با خیابان‌های شرقی-غربی منهتن هماهنگ می‌شود و منظره‌ای ایجاد می‌کند که خورشید درست در امتداد خیابان‌ها و میان ساختمان‌های بلند دیده می‌شود. این رویداد معمولا دو بار در سال و در روزهایی نزدیک به میانه فاصله میان انقلاب تابستانی و انقلاب زمستانی رخ می‌دهد.
+اصطلاح «منهتن‌هنج» را نیل دگراس تایسون، اخترشناس آمریکایی، با الهام از یادمان باستانی استون‌هنج ابداع کرد؛ زیرا این هم‌راستایی خورشید با خیابان‌های شهر، برای بسیاری یادآور هم‌راستایی‌های نجومی سازه‌های باستانی است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242688
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242688_1780030924.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای سردبیری وال‌استریت‌ژورنال در مطلبی نوشت مذاکره‌کنندگان آمریکایی بیش از هر زمان دیگری مطمئن هستند که به توافق اولیه با جمهوری اسلامی نزدیک شده‌اند؛ توافقی که مزیت اصلی آن، وعده بازگشایی تنگه هرمز است.
+این مطلب ساختار دومرحله‌ای توافق را بزرگ‌ترین خطر آن دانست و نوشت بدون محاصره آمریکا در جریان مذاکرات هسته‌ای، گرفتن امتیاز از ایران دشوارتر می‌شود؛ زیرا تهران ممکن است مهلت ۶۰ روزه ترامپ را مانند مذاکرات اوباما کش بدهد.
+وال‌استریت‌ژورنال نوشت پایان محاصره‌های متقابل می‌تواند به اقتصاد جهانی و به‌ویژه اقتصاد ایران کمک کند، اما «پیروزی» محسوب نمی‌شود. به نوشته این روزنامه، توافق خوب باید همه اورانیوم غنی‌شده، سایت‌های زیرزمینی، بازرسی‌های سخت‌گیرانه و ممنوعیت غنی‌سازی را در بر بگیرد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242687
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242687_1780030926.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مارک لوین، مجری و تحلیلگر نزدیک به ترامپ در واکنش به گزارش‌ها درباره توافق آمریکا با حکومت ایران در پیامی در اکس نوشت:
+ بار دیگر، مخاطبان رادیویی من به‌وضوح اعلام کرده‌اند که می‌خواهند رژیم ایران نابود شود و هیچ توافقی در کار نباشد. من درک می‌کنم که این یک نظرسنجی علمی نیست، اما مخاطبان من به‌شدت محافظه‌کار و حامی ترامپ هستند. و گاهی ما اجازه می‌دهیم نظرات آنلاین، که می‌تواند از هر جا و از هر کسی باشد، بر دیدگاه ما تاثیر بگذارد. و این مخاطبان در مورد رژیم ایران و پیامدهای شکست نخوردن آن بسیار آگاه هستند پیامدهای سیاسی، نظامی و پیامدهای آینده
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342391
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342391_1780030926.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A Blue Origin rocket exploded during a "hotfire test" at Cape Canaveral Space Force Station on Thursday night.
+
+Everyone has been accounted for and is safe, Jeff Bezos, the company's founder, said.
+
+NASA Administrator Jared Isaacman said he was aware of the incident, which he called an "anomaly," and the agency would provide information on any impacts to Artemis or Moon Base programs.
+
+"Spaceflight is unforgiving, and developing new heavy-lift launch capability is extraordinarily difficult. We will work with our partners to support a thorough investigation of this anomaly, assess near-term mission impacts, and get back to launching rockets," he said.
+</div>
+
+## FoxNewsTwitter — post 342390
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342390_1780030929.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Spencer Pratt says he's the "look around" candidate: "Look around and see with your own eyes what I'm saying."
+
+"And that's why I'm going to win." |@Gutfeldfox
+</div>
+
+## FoxNewsTwitter — post 342389
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342389_1780030932.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I hate these people."
+
+Los Angeles mayoral candidate Spencer Pratt didn't hold back on @gutfeldfox as he says he keeps being asked which politicians he looks up to.
+
+"These people let my house and my mom's house burn down," Pratt said before blasting Mayor Bass.
+
+"She's actually a terrible liar, she's just incredible at how much she does it."
+</div>
+
+## FoxNewsTwitter — post 342388
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342388_1780030934.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I don't want anybody to endorse me except for the moms and the animal lovers in LA — that's my entire vote."
+
+LA mayoral candidate Spencer Pratt tells @Gutfeldfox that he's not interested in getting endorsements from Hollywood celebrities.
+</div>
+
+## FoxNewsTwitter — post 342387
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342387_1780030936.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I don't want anybody to endorse me except for the moms and the animal lovers in LA — that's my entire vote."
+
+LA mayoral candidate Spencer Pratt tells @Gutfeldfox that he's not interested in getting endorsements from Hollywood celebrities.
+</div>
+
+## FoxNewsTwitter — post 342386
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342386_1780030938.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+.@greggutfeld: "Is there anybody who was devastated by the fires still voting for Karen Bass?"
+
+@spencerpratt: "There's definitely lunatics. Their houses didn't burn down, but they could have been saved by the US Forest Service."
+
+"But these people have convinced themselves the Palisades burned down because of climate change....it wasn't that Mayor Bass was drinking in Ghana and defunded the firefighters." | @gutfeldfox
+</div>
+
+## FoxNewsTwitter — post 342385
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342385_1780030942.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"The people I'm surging with are the people having to step over the naked drug addicts and step into human poop to get their $20 matcha."
+
+Spencer Pratt slams the idea that he's only popular on the internet as he joins @Gutfeldfox days before the Los Angeles mayoral primary.
+</div>
+
+## FoxNewsTwitter — post 342384
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342384_1780030944.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A dog in trouble was rescued from a pond at a Colorado golf course after becoming trapped with no way out.
+
+Westminster Animal Management responded to the scene after the dog, Luna, was spotted stuck in the pond.
+
+The officer carefully pulled the dog to safety before Luna was evaluated and reunited with her family.
+</div>
+
+## FoxNewsTwitter — post 342383
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342383_1780030947.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: Dallas officials confirm three people — including two women and one child — were killed after a massive explosion and fire tore through an apartment building in the city’s Oak Cliff neighborhood.
+
+Dallas Fire-Rescue says three additional victims were transported to hospitals, including one person in critical but stable condition.
+
+The incident was initially reported as a gas leak before escalating into a five-alarm fire.
+</div>
+
+## FoxNewsTwitter — post 342382
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342382_1780030949.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Billy Bush on Spencer Pratt's chances in the LA Mayoral election: "He knows how to communicate and she [Karen Bass] has no idea what to do about him." https://twitter.com/JesseBWatters/status/2060162354386477426#m
+</div>
+
+## FoxNewsTwitter — post 342381
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342381_1780030952.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Fighter jets launch from the deck of the USS Abraham Lincoln as the aircraft carrier conducts flight operations in the Arabian Sea.
+</div>
+
+## FoxNewsTwitter — post 342380
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342380_1780030955.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+KELLYANNE CONWAY: "I hold Jill Biden most responsible and here's why: She let her ego and her thirst for power and fame to overtake the love and protection of her husband." https://twitter.com/IngrahamAngle/status/2060148754733240589#m
+</div>
+
+## FoxNewsTwitter — post 342376
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+New York City Mayor Zohran Mamdani will not attend the city’s annual Israel Day Parade on Sunday — breaking with a tradition every NYC mayor has upheld since 1964.
+
+The decision comes as Mamdani has continued appearing at major cultural and religious events across the city, including the Saint Patrick’s Day Parade, Lunar New Year celebrations, Eid prayers in Brooklyn, and the Sikh Day Parade in Manhattan.
+
+His absence from this year’s Israel Day Parade is already drawing criticism as antisemitism reaches record levels in New York and anti-Israel demonstrations continue outside synagogues and Jewish institutions across the city.
+</div>
+
+## IranIntlTV — post 339507
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339507_1780030959.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای جمعه ۸ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339506
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339506_1780030961.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم در گزارشی نوشت موساد در سال‌های اخیر شاخه‌ای محرمانه برای نزدیک‌تر کردن سقوط جمهوری اسلامی ایجاد کرده است. به گفته منابع آگاه، رییس موساد متقاعد شده است که اگر ترامپ با تهران توافق نکند و محاصره دریایی را ادامه دهد، جمهوری اسلامی تا پایان سال ۲۰۲۶ سقوط می‌کند.
+به نوشته اسرائیل هیوم، ماموریت ابتدایی این شاخه که در سال ۲۰۲۱ و پس از آغاز ریاست داوید بارنیا بر موساد ایجاد شد، عملیات‌ هدفمند برای کنار زدن مقام‌های ارشد جمهوری اسلامی بود، اما به‌تدریج به بخشی از راهبرد گسترده‌تر موساد برای «تغییر رژیم» تبدیل شد.
+رییس پیشین این شاخه به اسرائیل هیوم گفت موساد در گذشته بیشتر از طریق ترور افراد را حذف می‌کرد، اما اکنون افشای اطلاعات شرم‌آور یا آسیب‌زننده درباره مقام‌ها می‌تواند آن‌ها را از حلقه قدرت خارج کند؛ روشی که به گفته او «ارزان‌تر و ساده‌تر از عملیات ترور» است.
+به نوشته اسرائیل هیوم، مقام‌های موساد معتقدند عملیات‌های اخیر علیه ایران فقط یک مرحله در مسیر سقوط جمهوری اسلامی بوده است. رئیس پیشین شاخه نفوذ گفت این واحد اکنون با شدت بیشتری فعالیت می‌کند و هدف آن «سریع‌تر کردن ساعت شنی پایان حکومت است».
+</div>
+
+## IranIntlTV — post 339505
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339505_1780030961.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان اسرائیل گزارش داد تلاش‌های عمان و ایران برای ایجاد سازوکار مشترک مدیریت و دریافت عوارض در تنگه هرمز، باعث خشم آمریکا و کشورهای خلیج فارس شده است.
+یک دیپلمات از یکی از کشورهای میانجی به کان گفت: «ما تلاش کردیم وضعیت تنگه را به حالت پیشین بازگردانیم.» بر اساس توافق در حال شکل‌گیری، قرار است تنگه هرمز بدون محدودیت باز شود.
+اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، «لفاظی‌های تهدیدآمیز» مقام‌های آمریکا علیه عمان را در واکنش به گزارش‌ها درباره احتمال مشارکت این کشور در کنترل تنگه هرمز محکوم کرد و آن را «مغایر با اصول بنیادین منشور ملل متحد و حقوق بین‌الملل» دانست.
+
+https://iranintl.com/202605296999
+</div>
+
+## IranIntlTV — post 339504
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339504_1780030962.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه آیریش میرر گزارش داد جسد معصومه سهرابی، زن ایرانی ۳۱ ساله و مادر دو فرزند، بیرون از هتلی در شهرستان گالوی ایرلند، که به‌عنوان اقامتگاه اضطراری استفاده می‌شد، پیدا شده است.
+به نوشته آیریش میرر، این زن با جراحات شدید در ناحیه گردن پیدا شد و پلیس ایرلند قرار است تحقیقات قتل را آغاز کند. او روز چهارشنبه مفقود اعلام شده بود و دوستانش در مرکز آی‌پاس او را با نام «آتیجا» می‌شناختند.
+
+https://iranintl.com/202605292740
+</div>
+
+## IranIntlTV — post 339503
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339503_1780030963.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارتخانه‌های خارجه فلسطین و عراق حملات موشکی و پهپادی منتسب به جمهوری اسلامی علیه کویت را محکوم کردند. وزارت‌ خارجه فلسطین این حملات را «شنیع» خواند و همبستگی کامل خود را با کویت اعلام کرد. وزارت خارجه عراق هرگونه تهدید علیه امنیت را مردود دانست.
+https://iranintl.com/202605296071
+</div>
+
+## IranIntlTV — post 339502
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339502_1780030964.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای سردبیری وال‌استریت‌ژورنال در مطلبی نوشت مذاکره‌کنندگان آمریکایی بیش از هر زمان دیگری مطمئن هستند که به توافق اولیه با جمهوری اسلامی نزدیک شده‌اند؛ توافقی که مزیت اصلی آن، وعده بازگشایی تنگه هرمز است.
+این مطلب ساختار دومرحله‌ای توافق را بزرگ‌ترین خطر آن دانست و نوشت بدون محاصره آمریکا در جریان مذاکرات هسته‌ای، گرفتن امتیاز از ایران دشوارتر می‌شود؛ زیرا تهران ممکن است مهلت ۶۰ روزه ترامپ را مانند مذاکرات اوباما کش بدهد.
+وال‌استریت‌ژورنال نوشت پایان محاصره‌های متقابل می‌تواند به اقتصاد جهانی و به‌ویژه اقتصاد ایران کمک کند، اما «پیروزی» محسوب نمی‌شود. به نوشته این روزنامه، توافق خوب باید همه اورانیوم غنی‌شده، سایت‌های زیرزمینی، بازرسی‌های سخت‌گیرانه و ممنوعیت غنی‌سازی را در بر بگیرد.
+
+https://iranintl.com/202605298220
+</div>
+
+## FarsiVOA — post 218951
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218951_1780030965.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دفاع رومانی، عضو ناتو، گزارش داد که پس از برخورد یک پهپاد روسی به یک ساختمان آپارتمانی، ۲ نفر زخمی شدند.
+
+وزارت دفاع رومانی روز جمعه اعلام کرد: «در طول شب ۲۸ تا ۲۹ مه، فدراسیون روسیه حملات پهپادی به اهداف غیرنظامی و زیرساختی در اوکراین، در نزدیکی مرز رودخانه‌ای با رومانی، را از سر گرفت.»
+
+این وزارتخانه افزود: «یکی از این پهپادها وارد حریم هوایی رومانی شد، توسط رادار تا بخش جنوبی شهر گالاتی ردیابی شد و بر روی سقف یک ساختمان آپارتمانی سقوط کرد که برخورد آن باعث آتش‌سوزی شد».
+
+اداره خدمات اضطراری رومانی نیز اعلام کرد که دو نفر زخمی شده‌اند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned an audio file
+</div>
+
+## FarsiVOA — post 218949
+
+<div align="center">
+  <a href="https://t.me/farsivoa/218949" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴📢‌ نسخه صوتی اخبار ساعت ۲۰ پنجشنبه ۷ خرداد ۱۴۰۵
+
+🛜در صورتی که با مشکل اینترنت مواجه هستید میتوانید اخبار صدای آمریکا را از نسخه‌های پادکست خبری ما روزانه دنبال کنید و یا از نسخه سبک وب‌سایت ما پیگیر باشید:
+https://ir.voanews.com/lite
+
+📡بروزترین فرکانسهای ماهواره‌ای را نیز میتوانید از صفحه زیر پیگیری کنید:
+https://ir.voanews.com/satellite
+
+🔔دیگر شبکه‌های اجتماعی ما را هم دنبال کنید:
+https://linktr.ee/voafarsi
+
+
+
+به اشتراک بگذارید
+@farsivoa
+</div>
+
+## FarsiVOA — post 218948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جی‌دی ونس: مذاکرات با رژیم ایران پیشرفت داشته است اما معلوم نیست دونالد ترامپ تفاهم‌نامه را امضا می‌کند یا خیر
+
+▪️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، پنج‌شنبه شب گفت که ایالات متحده و جمهوری اسلامی در مذاکراتشان بر سر یک «یادداشت تفاهم» که آتش‌بس میان دو کشور را ۶۰ روز تمدید می‌کند و تنگه هرمز را باز می‌کند «پیشرفت زیادی» داشته‌اند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8155212.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزارت امور خارجه آمریکا با اعلام تحریم‌های تازه گفت «شریان‌های مالی سپاه پاسداران» را هدف قرار می‌دهیم
+
+▪️وزارت امور خارجه آمریکا روز پنج‌شنبه ۷ خرداد اعلام کرد که ایالات متحده در حال انجام «اقدامات هماهنگ» برای قطع دسترسی جمهوری اسلامی به درآمدهایی است که از آن برای «تجاوز منطقه‌ای و تروریسم جهانی» استفاده می‌کند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8155211.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218946
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218946_1780030966.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ستاد فرماندهی مرکزی آمریکا، سنتکام ادعای تلویزیون حکومتی ایران را که نیروهای جمهوری اسلامی یک هواپیمای آمریکایی را در نزدیکی بوشهر سرنگون کرده‌اند نادرست خواند و افزود هیچ هواپیمای آمریکایی سرنگون نشده است.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125258
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 "توافق آمریکا و ایران بدون همراهی اسرائیل پایدار نخواهد بود"
+ 
+🔻 گزارشی از مراد رحمتی
+
+در اخرین لحظات تهیه این گزارش، خبرگزاری رویترز به نقل از چهار منبع آگاه گزارش داد که آمریکا و ایران بر سر پیش‌نویس یادداشت تفاهمی برای تمدید آتش‌بس ۶۰ روزه به توافق رسیده‌اند، اما دونالد ترامپ هنوز آن را تائید نکرده است.
+ 
+در این میان اختلافات آمریکا و اسرائیل بر سر موضوعاتی چون برنامه موشکی ایران و نیروهای نیابتی همچنان پابرجاست.
+ 
+هم‌زمان، دولت ترامپ تلاش کرده بود که توافق احتمالی با ایران را به گسترش "پیمان ابراهیم" و عادی‌سازی روابط کشورهای عربی با اسرائیل گره بزند.
+ 
+از سوی دیگر، برخی گزارش‌های منتشرشده حاکی از آن است که واشنگتن تمایلی به ورود به یک جنگ منطقه‌ای گسترده بخاطر "اقدامات یک‌جانبه اسرائیل" ندارد.
+ 
+در داخل ایران نیز جریان‌های مخالف توافق، از هم‌اکنون علیه هرگونه مصالحه با آمریکا وارد میدان شده‌اند و تلاش دارند فضای داخلی را علیه تیم مذاکره‌کننده تحریک کنند.
+ 
+اکنون پرسش اصلی این است که آیا این تنش‌های نظامی بخشی از فشارهای سیاسی و امنیتی پیش از توافق است، یا منطقه در آستانه مرحله‌ای تازه و خطرناک‌تر قرار دارد؟
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15214
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15214_1780030967.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇷🇴
+🇷🇺
+🚩حمله پهپادی روسیه به ناتو:
+
+در رومانی پهپاد گران به یک ساختمان بلند اصابت کرد یک پهپاد مستقیماً به آپارتمانی در شهر گالاتس پرواز کرد یک آتش سوزی بزرگ بود بر اثر این انفجار دو نفر مجروح شدند.
+
+
+🥷Phantom
+
+
+🛰@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157675
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157675_1780030968.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وزارت خزانه‌داری آمریکا اعلام کرد دور تازه‌ای از تحریم‌ها را علیه افراد، شرکت‌ها و کشتی‌های مرتبط با جمهوری اسلامی اعمال کرده است.
+
+🔸براساس این بیانیه ۱۷ شرکت در کشورهای مختلف از جمله امارات متحده عربی، قطر، هند، سنگاپور،‌ هنگ کنگ و جزایر مارشال به دلیل همکاری با شبکه‌های مرتبط با جمهوری اسلامی و شرکت «سپهر انرژی جهان نمای پارس» تحریم شده‌اند.
+
+🔸وزارت خزانه‌داری آمریکا همچنین هشت نفتکش و کشتی حمل و نقل با پرچم کشورهای مختلف را به فهرست تحریم‌ها اضافه و اعلام کرد که این اقدامات در راستای سیاست فشار حداکثری و مقابله با شبکه‌های دور زدن تحریم‌ها انجام شده است.
+
+🔸در میان افراد تحریم شده نیز نام یک تبعه هند دیده می شود که به گفته آمریکا در شبکه تجارت نفت و پتروشیمی جمهوری اسلامی نقش داشته است.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157674
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157674" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرها با رادیوفردا، هشتم خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 282306
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282306_1780030970.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دولت دونالد ترامپ، رئیس جمهور ایالات متحده، در حال آماده شدن برای چاپ یک اسکناس ۲۵۰ دلاری جدید است که در صورت اجازه قانون‌گذاران، می‌تواند تصویر او را رویش داشته باشد.
+
+قانون فدرال، چاپ پول ایالات متحده با تصویر یک فرد زنده را ممنوع می‌کند، اما متحدان ترامپ در کنگره قانونی را ارائه کرده‌اند که در این مورد استثنا قائل می‌شود.
+
+سخنگوی وزارت خزانه‌داری آمریکا به بی‌بی‌سی گفت که این نهاد در پاسخ به این قانون «در حال برنامه‌ریزی و بررسی‌های لازم» است.
+
+قانون‌گذاران حامی این طرح گفتند که مبلغ این اسکناس نمادی از ۲۵۰مین سالگرد تأسیس این کشور در سال جاری خواهد بود. در صورت تصویب، این آخرین نمونه از سوی ترامپ و متحدانش برای قرار دادن چهره، نام و تصویر او بر روی نهادها و نمادهای ملی خواهد بود.
+
+طرح‌های هنری اسکناس ۲۵۰ دلاری به طور عمومی منتشر نشده‌اند، اما طرح‌های آن توسط اداره حکاکی و چاپ آمریکا که یک سازمان زیرمجموعه خزانه‌داری این کشور است که پول ایالات متحده را توسعه و تولید می‌کند، درخواست شده است.
+
+📷Kent Nishimura / AFP via Getty Images
+@BBCPersian
+</div>
+
+## BBCPersian — post 282300
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر امور خارجه آمریکا، سفر چهار روزه خود به هند را در حالی به پایان رساند که این سفر همچنان در شبکه‌های اجتماعی موضوع بحث و گفت‌وگوست.
+
+او از ۲۳ تا ۲۶ مه به هند سفر کرده بود و در جریان این سفر، علاوه بر دیدار با دیپلمات‌های ارشد هند، از چندین مکان مشهور گردشگری نیز بازدید کرد که تاج‌محل یکی از آن‌ها بود.
+
+بحث‌ها در شبکه‌های اجتماعی زمانی آغاز شد که مارکو روبیو و همسرش مقابل تاج‌محل در شهر آگرا عکس گرفتند.
+
+نخستین واکنش طنزآمیز به این موضوع از سوی مقام‌های ایرانی مطرح شد و پس از آن، این ماجرا بیش از پیش مورد توجه قرار گرفت.
+
+https://bbc.in/3S8XWcA
+📸GettyImages/Reuters/ AFP via Getty Images/ Hulton Archive/Getty Images
+@BBCPersian
+</div>
+
+## BBCPersian — post 282299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 بیانیه اساتید دانشگاه و کنشگران سیاسی و مدنی درباره آزادی میرحسین موسوی و زهرا رهنورد
+
+بیش از ۲۰ نفر از اساتید دانشگاه و کنشگران سیاسی و مدنی ایران خواستار آزادی میرحسین موسوی، زهرا رهنورد و تمامی زندانیان سیاسی و مدنی شده‌اند.
+
+در بیانیه این گروه که روز پنجشنبه منتشر شد آمده است: «گزارش‌های موثقی وجود دارند که محل اقامت آقای میر‌حسین موسوی و خانم زهرا رهنورد در جریان جنگ اخیر و حمله به پاستور به شدت آسیب دیده و آنان پس از این حادثه، به مکانی نامعلوم منتقل شده‌اند؛ موضوعی که پس از پانزده سال حصر خانگی، نگرانی‌های جدی و گسترده‌ای را برانگیخته است.»
+
+در این بیانیه با اشاره سن و نیاز به مراقبت و دسترسی به سیستم خدمات درمانی برای آقای موسوی و خانم رهنورد، امضاکنندگان خواستار پایان حصر این چهره مخالف حکومت شدند.
+
+در پایان این بیانیه آمده است: «ما از جامعه جهانی، نهادهای حقوق بشری و تمامی وجدان‌های بیدار می‌خواهیم که با حساسیت و مسئولیت‌پذیری، وضعیت زندانیان سیاسی و مدنی در ایران، به ویژه آقای موسوی و خانم رهنورد را پیگیری کرده و بر لزوم حفظ کرامت انسانی، امنیت و حقوق بنیادین آنان و بیش از همه آزادی بی قید و شرط آنان تأکید کنند.»
+
+سعید پیوندی، نیره توحیدی، شهلا حائری، مهرداد خوانساری، منصوره شجاعی، فاطمه شمس، رضا علیجانی، مهرانگیز کار و چندین نفر از دیگر فعالان سیاسی و مدنی ایران این بیانیه را امضا کرده‌اند.
+
+میرحسین موسوی همراه با همسرش، زهرا رهنورد، از بهمن ۱۳۸۹ پس از اعتراضات به نتیجه انتخابات ریاست جمهوری ۱۳۸۸، که به جنبش سبز موسوم شد، تاکنون در حبس خانگی هستند.
+
+https://bbc.in/4wV3GGX
+@BBCPersian
+</div>
+
+## BBCPersian — post 282298
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 یک مقام سابق سیا با شمش‌های طلا به ارزش ۴۰ میلیون دلار بازداشت شد
+
+به گزارش رسانه‌های آمریکا،‌ يک مقام پيشين سازمان اطلاعات مرکزی آمريکا (سيا) هفته گذشته بازداشت شد و به هنگام بازرسی از خانه او ۴۰ میلیون دلار شمش طلا ضبط شد. دستگیری او پس از آن روی داد که ماموران اف‌بی‌آی در جريان تحقيق درباره اينکه آيا او درباره سوابق تحصيلی و نظامی خود دروغ گفته است يا نه، این شمش‌های طلا را پیدا کردند.
+
+بر اساس اسناد دادگاه و به گفته منابع آگاه، ديويد راش در حال حاضر در بازداشت به سر می‌برد.
+
+شبکه سی‌بی‌اس نوشته ديويد راش به سرقت اموال عمومی متهم شده است.
+
+در شکايتی کيفری که به شکل غيرمعمولی تنظيم شده، اف‌بی‌آی آقای راش را متهم کرده است که شمش‌های طلا را به طور غیرقانونی تصاحب کرده، «حقوقی متقلبانه و بيش از ميزان واقعی دريافت کرده»، «به صورت متقلبانه از مرخصی نظامی بهره‌مند شده» و مجموعه‌ای از اظهارات نادرست درباره سوابق خود مطرح کرده است.
+
+بر اساس متن شکايت، دیوید راش بين نوامبر ۲۰۲۵ تا مارس سال جاری چندين درخواست به دولت ارائه کرده تا مقادير زيادی ارز خارجی و ده‌ها ميليون دلار شمش طلا برای هزينه‌های مرتبط با کار دريافت کند.
+
+با اين حال، در اين شکايت به طور دقيق مشخص نشده که چه اقدام يا اقداماتی مبنای طرح اين اتهامات بوده است.
+
+https://bbc.in/4uDaur8
+@BBCPersian
+</div>
+
+## BBCPersian — post 282291
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+آتش‌بسی که «به تار مویی بند است»، روند دیپلماتیکی که «در حال پیشرفت» توصیف می‌شود، رئیس‌جمهوری که می‌گوید «هنوز راضی نیست» و انفجارهایی که همچنان در اطراف خلیج فارس شنیده می‌شوند.
+
+در چنین شرایطی، ارزیابی وضعیت کنونی روابط آمریکا و ایران دشوار شده است. آیا دو کشور به صلح نزدیک شده‌اند یا دوباره در آستانه بازگشت به جنگ قرار دارند؟
+
+آتش‌بسی که از هشتم آوریل برقرار شده، در روزهای گذشته تحت فشار جدی قرار گرفت. با وجود تنش‌های اخیر، دوره آتش‌بس اکنون بسیار طولانی‌تر از دوره درگیری‌های مستقیم پیش از آن دوام آورده است.
+
+https://bbc.in/4fMNh11
+📷 GettyImages/Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 282290
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282290_1780030971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+فرماندهی مرکزی ارتش آمریکا - سنتکام - در واکنش به خبر «رهگیری و هدف قرار گرفتن یک هواگرد متخاصم» که رسانه‌ها و مقام‌های ایرانی از جمله فرماندار شهر جم در نزدیکی بوشهر، اعلام کرده بودند با صدور پست کوتاهی در حساب شبکه ایکس نوشت: «ادعای طرح شده در تلویزیون ایران مبنی بر هدف قرار گرفتن یک فروند هواگرد ارتش آمریکا، صحت ندارد. تمام هواگرد و هواپیماهای ما سالم‌اند.»
+
+ساعتی پیش فرماندار شهر جم در نزدیکی بوشهر به تلویزیون ایران گفت آنچه در آسمان این منطقه روی داده «هدف قرار گرفتن یک هواگرد متخاصم» بوده اما هیچ تلفات و خساراتی نداشته و «اوضاع آرام است».
+
+در همین حال، خبرگزاری تسنیم، نزدیک به سپاه پاسداران، پنجشنبه شب با اشاره به شنیدن صدای انفجار در نزدیکی سواحل تنگه هرمز نوشت: «براساس گزارش پدافند ارتش، منشأ انفجارها از سمت دریا و مربوط به تبادل آتش در اخطار به کشتی‌های متخلف در تنگه هرمز بوده است.»
+
+https://bbc.in/4wXIKiv
+📷Samuel Boivin/NurPhoto via Getty Images
+@BBCPersian
+</div>
+
+## BBCPersian — post 282289
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282289_1780030971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی دی ونس، معاون رئيس جمهوری آمريکا، گفت ايالات متحده و ايران همچنان بايد چند موضوع اختلافی را حل و فصل کنند تا توافقی درباره جنگ حاصل شود.
+
+ونس در پاسخ به پرسش بی بی سی درباره اينکه آيا دونالد ترامپ، رئيس جمهوری آمريکا، به امضای توافق نزديک شده است يا نه، گفت هنوز برای اظهار نظر درباره اينکه «چه زمانی يا اصلا آيا» دو طرف به توافق نهايی خواهند رسيد، زود است.
+
+گفته می شود اين توافق شامل تمديد ۶۰ روزه آتش بس و آغاز مذاکرات درباره آينده برنامه هسته ای ايران خواهد بود.
+
+پيشتر در روز پنجشنبه، مقام های آمريکايی به بی بی سی گفته بودند دو کشور بر سر چارچوب يک توافق به تفاهم رسيده اند، اما اين توافق هنوز نياز به تاييد دونالد ترامپ و رهبران ايران دارد.
+
+با اين حال، خبرگزاری نيمه رسمی تسنيم گزارش داد که توافق هنوز نهايی يا تاييد نشده است.
+
+ونس شامگاه پنجشنبه گفت مذاکره کنندگان دو طرف «درباره چند مورد مربوط به متن توافق در حال رفت و برگشت هستند» که از جمله آنها «موضوع غنی سازی» است.
+
+او به خبرنگاران گفت: «هنوز به نتيجه نهايی نرسيده ايم، اما بسيار نزديک هستيم و به کار روی آن ادامه خواهيم داد.»
+
+📷Reuters
+@BBCPersian
+</div>
+
+## alonews — post 123415
+
+<div align="center">
+  <a href="telegram/content/alonews_123415_1780030972.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: واشنگتن در مذاکرات با ایران «پیشرفت زیادی» داشته و معتقد است تهران «دست‌کم تا این لحظه، با حسن نیت در حال مذاکره است.»
+
+
+🔴ونس گفت: «ایرانی‌ها خواهان توافق هستند.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123414
+
+<div align="center">
+  <a href="telegram/content/alonews_123414_1780030972.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی ونس، معاون اول ترامپ :
+- آمریکا الان تو موقعیتیه که بتونه برنامه هسته‌ای ایران رو متوقف کنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 03:59
 ---
 
