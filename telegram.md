@@ -7,6 +7,506 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 01:49
+---
+
+## VahidOOnLine — post 242962
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، جشن قهرمانی پاریس سن ژرمن پس از پیروزی در دیدار نهایی لیگ قهرمانان اروپا، شنبه شب به درگیری، آتش‌سوزی و تنش در خیابان‌های پاریس کشیده شد.
+بر اساس این گزارش، پلیس فرانسه پس از آنکه در برخی مناطق مرکزی پاریس هدف شلیک مواد آتش‌زا قرار گرفت، برای متفرق کردن گروهی از هواداران از گاز اشک‌آور استفاده کرد.
+پاریس سن ژرمن زیر نظر لوئیس انریکه موفق شد در یک مسابقه نهایی نفس‌گیر در بوداپست، تیم آرسنال را در ضربات پنالتی با نتیجه ۴ بر ۳ شکست دهد و عنوان قهرمانی خود را حفظ کند. این پیروزی پس از تساوی ۱-۱ در وقت‌های اضافه رقم خورد تا نماینده فرانسه جایگاه خود را به عنوان قدرت برتر فوتبال اروپا تثبیت کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242961
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242961_1780179589.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز شنبه، با انتشار پیامی در شبکه اجتماعی «تروث سوشال»، به دیدار اخیر براندون جانسون، شهردار شیکاگو با رهبر کاتولیک‌های جهان در واتیکان واکنش نشان داد. ترامپ با به اشتراک گذاشتن تصاویر این دیدار، نوشت: «یک نفر باید به پاپ توضیح دهد که شهردار شیکاگو فردی بی‌فایده است و اینکه ایران نمی‌تواند سلاح هسته‌ای داشته باشد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242960
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242960_1780179589.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش فارس، خبرگزاری وابسته به سپاه، اسماعیل بقایی، سخنگوی وزارت خارجه روز شنبه با محمد اکرمی‌نیا، سخنگوی ارتش جمهوری اسلامی دیدار و گفتگو کرد. براساس این گزارش، بقایی در این دیدار گفت: «قدرت و اقتدار نیروهای مسلح پشتوانه محکم وزارت خارجه در صیانت از منافع ایران در عرصه دیپلماسی است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242959
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دولت گرجستان در تفلیس، در‌های یک انبار شراب مخفی متعلق به ژوزف استالین، رهبر پیشین اتحاد جماهیر شوروی را گشود. این انبار تاریک و تار عنکبوت‌گرفته، خانه گنجینه‌ای بی‌نظیر شامل ۴۰ هزار بطری شراب کمیاب است.
+
+در این مجموعه تاریخی، نایاب‌ترین شراب‌های فرانسوی متعلق به تزارهای روسیه، الکساندر سوم و نیکولای دوم، به چشم می‌خورد. این بطری‌های امپراتوری پس از انقلاب ۱۹۱۷ توسط شوروی توقیف شدند و استالین، که خود از علاقه‌مندان سرسخت شراب بود، نگهبانی از آن‌ها را بر عهده گرفت و به مرور، شراب‌های گرجستانی محبوبش را به آن افزود.
+
+پیر لورتون، مدیر دو عمارت مطرح شراب‌سازی در بوردو، با «پانتیون (معبد) شراب» خواندن این مکان، بر ضرورت بررسی تک‌تک بطری‌ها به دلیل فرسودگی احتمالی چوب‌پنبه‌ها تاکید کرد. ویکتور چن، یکی از مجموعه‌دارهایی که اجازه ورود به این فضا را یافته، این تجربه را به «کشف غارهای باستانی توسط ایندیانا جونز» تشبیه کرد.
+
+دولت گرجستان قصد دارد این مجموعه ارزشمند را به حراج بگذارد و درآمد حاصل از آن را برای تاسیس یک مدرسه در کلاس جهانی جهت آموزش ساخت شراب اختصاص دهد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242958
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242958_1780179590.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با بازنشر تصاویر دیدار شهردار دموکرات شیکاگو با پاپ، در تروث‌سوشال نوشت: «باید کسی به پاپ توضیح دهد که شهردار شیکاگو بی‌فایده است و ایران نمی‌تواند سلاح هسته‌ای داشته باشد.» ترامپ اخیرا درباره مواضع مختلف پاپ از جمله مخالفت او با جنگ ایران، انتقادهای زیادی را مطرح کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242957
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242957_1780179590.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرچم ملی اسپانیا روز شنبه نهم خرداد، در جریان رژه نظامی «روز نیروهای مسلح» در شهر ویگو، هنگام برافراشته شدن از میله جدا شد و سقوط کرد. این اتفاق در حضور پادشاه فیلیپه ششم رخ داد که منجر به واکنش او در چهره‌اش شد. نیروهای نظامی بلافاصله پرچم را جمع‌آوری کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242956
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242956_1780179592.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس گلرو، عضو کمیسیون امنیت ملی مجلس، شنبه‌شب در جمع حامیان حکومت در گرمسار گفت: «آمریکایی‌ها در ابتدای مذاکرات دو خواسته اصلی داشتند. نخست توقف کامل غنی‌سازی و دوم تحویل اورانیوم غنی‌شده ایران به یک کشور ثالث که محمدباقر قالیباف با صراحت اعلام کرد جمهوری اسلامی ایران اساسا اجازه ورود به چنین مذاکراتی را نداده است و طرف آمریکایی باید ابتدا دارایی‌های بلوکه‌شده ایران را آزاد کند». او گفت: «سوال اصلی این است که آیا می‌توان به آمریکا اعتماد کرد، پاسخ روشن است؛ خیر. آیا می‌توان با آمریکا به تفاهم پایدار رسید، پاسخ خیر است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12968
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar JangHub
+</div>
+
+## mwarmonitor — post 9924
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9924_1780179592.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️نمای نزدیک‌تری از بخش دم هواپیمای سوخت‌رسان KC-135 با شماره 63-8028 متعلق به نیروی هوایی ایالات متحده که هنگام حضور روی زمین در عربستان سعودی بر اثر ترکش‌های پهپاد/موشک بالستیک ایرانی دچار آسیب شده ولی کماکان در حال خدمت است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 91919
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در اودسا:
+اکنون که اینترنت تا حدی دوباره وصل شده است، شما مستقیماً از مردم ایران خواهید شنید و واکنش آن‌ها به مداخله‌ای که رخ داده است را خواهید دید.
+
+مردم ایران جشن می‌گرفتند از اینکه نیروهای دفاعی اسرائیل و تا حدی نیروی هوایی آمریکا در ضربه زدن به زیرساخت‌های رژیم مداخله کردند. مردم خیابان‌هایی در ایران را به نام رئیس‌جمهور ترامپ نامگذاری کرده‌اند.
+
+این ملتی است که این موضوع را از دیدگاه مداخله‌ای کاملاً انسانی برای محافظت از جان‌های بیشتر می‌بیند. برای ما، این یک مداخله آزادی‌بخش بود.
+
+مردم ایران از آنچه فکر می‌کنید باهوش‌ترند و تفاوت بین زمانی که کشور مورد حمله قرار می‌گیرد و زمانی که رژیم هدف قرار می‌گیرد را به خوبی تشخیص می‌دهند
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91918
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاهزاده رضا پهلوی در اودسا:
+اسرائیل می‌داند تا زمانی که این رژیم سر کار است، تهدیدی وجودی برای آن محسوب می‌شود. امروز، کشورهای منطقه می‌بینند که این رژیم در حمله به آن‌ها تردید نکرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91917
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاهزاده رضا پهلوی در اودسا:
+40هزار ایرانی برای تنگه هرمز یا توافق هسته‌ای جان نداده‌اند.
+
+ما باید به خفه کردن رژیم ادامه دهیم تا بتوانیم منابع مالی، تأمین و پرداخت مزدوران آن را قطع کنیم. زیرا ممکن است فروپاشی اقتصادی رژیم نیز منجر به پایان آن شود، نه فقط فشار نظامی خارجی.
+
+اما بهترین راه برای جلوگیری از حضور نیروهای خارجی در میدان، کمک به مردم ایران برای ایفای این نقش است، به شرطی که حمایت اضافی لازم را به آنها بدهید
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339797
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339797_1780179593.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «شاهزاده رضا پهلوی مهم‌ترین چهره‌ اپوزیسیون است که به طور گسترده و مکرر در سطح بین‌المللی صدای مردم ایران را به گوش دنیا می‌رساند و درباره واقعیت‌های داخل ایران سخن می‌گوید. این اقدام تلاشی موثر در جهت همراه کردن جهان با خواست ملت ایران برای تغییر رژیم است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339795
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻با اعلام محمدرضا کشوری‌فرد، دبیر سازمان لیگ فوتبال ایران لیگ برتر بیست و پنجم ناتمام ماند. او به سایت فدراسیون فوتبال گفت: «با توجه به وضعیت کشور در دوران جنگ و کمک به روند آماده‌سازی تیم ملی برای جام جهانی، امکان برگزاری ادامه رقابت‌های بیست و پنجمین دوره لیگ برتر وجود نداشت.»
+
+🔹با توجه به این اظهارات لیگ برتر در فصل ۱۴۰۴-۱۴۰۵ بدون شناخت قهرمان و تیم‌های سقوط کرده، نیمه‌تمام باقی می‌ماند.
+
+🔹پیش‌تر فدراسیون فوتبال گفته بود پس از جام جهانی، ۸ هفته باقی‌مانده لیگ را برگزار می‌کند تا تکلیف قهرمان و تیم‌های سقوط کرده این فصل مشخص شود.
+
+🔹از سوی دیگر، پیش‌تر این از فدراسیون فوتبال شنیده شده بود که با توجه به نیمه‌کاره ماندن لیگ، در این فصل هیچ تیمی سقوط نمی‌کند، اما دو تیم از لیگ یک به لیگ برتر فصل آینده اضافه می‌شوند و لیگ ۱۸ تیمی برگزار خواهد شد.
+
+🔹جزییات بیشتر را در سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 339794
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339794_1780179595.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با بازنشر تصاویر دیدار شهردار دموکرات شیکاگو با پاپ، در تروث‌سوشال نوشت: «باید کسی به پاپ توضیح دهد که شهردار شیکاگو بی‌فایده است و ایران نمی‌تواند سلاح هسته‌ای داشته باشد.» ترامپ اخیرا درباره مواضع مختلف پاپ از جمله مخالفت او با جنگ ایران، انتقادهای زیادی را مطرح کرده است.
+https://iranintl.com/202605306421
+</div>
+
+## IranIntlTV — post 339793
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339793_1780179595.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرچم ملی اسپانیا روز شنبه نهم خرداد، در جریان رژه نظامی «روز نیروهای مسلح» در شهر ویگو، هنگام برافراشته شدن از میله جدا شد و سقوط کرد. این اتفاق در حضور پادشاه فیلیپه ششم رخ داد که منجر به واکنش او در چهره‌اش شد. نیروهای نظامی بلافاصله پرچم را جمع‌آوری کردند.
+</div>
+
+## IranIntlTV — post 339792
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339792_1780179596.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «ترامپ قرار بود جمعه درباره توافق با جمهوری اسلامی تصمیم بگیرد اما این تصمیم به تاخیر افتاده و معلوم نیست در نهایت او با جمهوری اسلامی تفاهم کند برای مذاکرات بیشتر یا نه. به نظر می‌رسد ترامپ درباره قضاوت افکار عمومی نسبت به این تفاهم مردد است.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 219126
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219126_1780179598.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مصاحبه دونالد ترامپ، رئیس جمهوری آمریکا با لارا ترامپ، مجری تلویزیونی و عروس آقای ترامپ، شنبه‌شب ساعت ۹ به‌وقت واشنگتن از شبکه خبری فاکس‌نیوز پخش می‌شود. رئیس‌جمهوری آمریکا بخشی از این مصاحبه‌ را در حساب کاربری تروت‌سوشال خود منتشر کرد.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21094
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21094_1780179598.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو فرانسه مردم کسخل شدن و بعد از قهرمانی پاری‌سن‌ ژرمن تو چمپیونزلیگ، هوادارای این تیم از فرصت سو استفاده کردن و ریختن تو خیابونای پاریس و با آتیش زدن ماشین‌ها، اتوبوس‌ها، وسایل عمومی و... دست به تجمع اعتراضی زدن و با نیروهای پلیس درگیر شدن.
+
+چندین نفر هم دستگیر شدن تا الان
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282452
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282452_1780179600.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وحید شریعت، رئیس انجمن روانپزشکی ایران: داروهای روانپزشکی، از افسردگی تا دوقطبی و اسکیزوفرنی، با کمبود مواجه شده‌اند.
+
+آقای شریعت ابراز نگرانی کرد که کمبودهای این لیست در ماه‌های آینده، «بزرگتر شود و داروهای فعلی هم قابل تامین نباشند.»
+
+به گزارش رسانه‌های ایران، رئیس انجمن روانپزشکی افزود: «سرچشمه بحران روانی امروز یک چیز واحد نیست، بلکه تصمیمات کلان حاکمیت و نوع نگاه به مسائل است که روی همه چیز سایه انداخته و رسانه‌ها باید با دیدن واقع‌گرایانه یعنی نه بدبینانه کاذب و نه خوشبینانه کاذب به اصلاح شرایط کمک کنند.»
+
+ایران می‌گوید که تحریم‌ها و حملات آمریکا و اسرائیل به مراکز تولید دارو از جمله دلایل کمبود داروهاست.
+
+پیشتر گزارش کردیم که اکبر عبداللهی، مدیرکل دارو و مواد تحت کنترل سازمان غذا و داروی ایران گفته است که از یک ماه دیگر پزشکان هنگام تجویز دارو به فهرستی از داروهای کمیاب، دسترسی خواهند داشت.
+
+به گفته این مقام ارشد دولت، در این فهرست «میزان کمبود دارویی و اطلاعات آماری مربوط به میزان تجویز و بار مالی داروهای تجویزی» را شامل می‌شود.
+
+📸GettyImages
+https://trib.al/E2vfVHf
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390609
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390609_1780179600.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵 رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش…
+</div>
+
+## Dirty_Kids — post 390608
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390608_1780179601.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A9
+
+🌟اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین
+👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 390607
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390607_1780179601.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390606
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390606_1780179601.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوتا دختر خیلی شیک و تمیز از یه بوتیک تو نازی‌آباد یه لباس می‌دزدن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390605
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390605_1780179602.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک ویدیو که هر بار دیدنش، چیزی از روح آدم را کم می‌کند…
+۱۹ دی، شاهین‌شهر اصفهان
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390604
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390604_1780179603.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من هرشب:
+
+هندزفری 🔞
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میدونستید آقا سیدمجتبی تنها گونه جانوری هست که بجای حمله به قاتل پدر و همسر و بچه‌ش، تمام سعیشو میکنه باهاش توافق کنه؟
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390602
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390602_1780179605.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توی سریال "بدنام" دختره به پسره میگه ساز دهنیت باحاله؟ اونم میگه آره، دختره هم میگه پس بریم تو اتاق صدای ساز دهنیمون همسایه‌ها رو بی‌خواب نکنه😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390601
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390601_1780179606.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏کانفیگی که برام فرستادی دیگه کار نمی‌کنه، یکی دیگه می‌فرستی؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390600
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390600_1780179606.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا حضرت اقا جواب نمیدن؟ خدای نکرده اتفاق بدی براشون افتاده؟؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390599
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390599_1780179606.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشیا میخوان انتقام آمریکا رو از مردم بگیرن!
+
+توییت زده: مردم جرعت دارن بیان خیابون، یه جوری قتل عام میکنیم که مراد ویسی تا چند سال طول بکشه اسم همه جاوید نام هارو بخونه!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123842
+
+<div align="center">
+  <img src="telegram/content/alonews_123842_1780179606.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥 همراه با ساب + حجم مصرفی، فقط 9T! 🚀
+
+❌ آفر فقط تا پایان امشب ❌
+
+🔥 اگه دنبال یه VPN پایدار و بدون دردسر می‌گردی، این پلن مخصوص خودته!
+
+@Netaazaadbot
+@NetAazaadBot
+✅ همراه با ساب + حجم مصرفی
+✅ 15 سرور اختصاصی پرسرعت
+✅ اتصال پایدار و بدون قطعی
+✅ سرعت بالا حتی در ساعات شلوغ
+
+@Netaazaadbot
+@NetAazaadBot
+💎 کیفیتی که بعد از استفاده متوجه تفاوتش میشی!
+
+📩 برای خرید و دریافت سرویس استارت رو بزن✅
+</div>
+
+## alonews — post 123841
+
+<div align="center">
+  <a href="telegram/content/alonews_123841_1780179606.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون حملات اسرائیل به جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123837
+
+<div align="center">
+  <a href="telegram/content/alonews_123837_1780179606.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ بازهم رگباری پست گذاشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123836
+
+<div align="center">
+  <a href="telegram/content/alonews_123836_1780179607.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تبلیغ چادر پلنگی در ایتا و روبیکا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123835
+
+<div align="center">
+  <a href="telegram/content/alonews_123835_1780179608.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تابش فرابنفش
+
+
+🔴این هفته شاخص فرابنفش بالا است، تا جای ممکن در ساعات میانی روز(ساعات۹-۱۵، با توجه به داده‌ها) کمتر در برابر تابش مستقیم خورشید قرار بگیرید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123834
+
+<div align="center">
+  <a href="telegram/content/alonews_123834_1780179608.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب الله: یه تانک اسرائیلی رو زدیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 00:49
 ---
 
