@@ -7,6 +7,588 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 02:21
+---
+
+## VahidOOnLine — post 243122
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243122_1780267866.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش آذربایجان آنلاین، در پی بارش‌های مناسب ماه‌های اخیر، سطح آب تالاب «قوری‌گول» به وضعیت مطلوب رسیده و شرایط زیستگاهی این منطقه نسبت به سال‌های گذشته بهبود چشمگیری یافته است. بر اساس این گزارش، توسعه نیزارها و افزایش امنیت این زیستگاه طبیعی در آذربایجان شرقی، موجب احیای تدریجی تالاب و بازگشت گونه‌های ارزشمند، کمیاب و مهاجر شده است. رویدادی امیدوارکننده که تاثیر مستقیم و مثبت بارندگی‌ها را بر زیست‌بوم منطقه نشان می‌دهد. در همین راستا، حضور پرندگان شاخصی مانند فلامینگو و اردک سرسفید که از مهم‌ترین نشانه‌های سلامت زیست‌بوم تالاب‌ها به شمار می‌روند، در قوری‌گول ثبت شده است. همچنین در ماه‌های اخیر پرندگان دیگری نظیر آنقوت، چنگر، چوب‌پا و درنا نیز در این پهنه آبی مشاهده شده‌اند که تاییدی بر افزایش تنوع زیستی و بهبود شرایط طبیعی منطقه است. تالاب قوری‌گول از مهم‌ترین زیستگاه‌های پرندگان مهاجر در شمال‌غرب ایران محسوب می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243121
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243121_1780267867.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فارس، خبرگزاری وابسته به سپاه، یکشنبه‌شب، ۱۰ خردادماه، از شنیده‌شدن صدای انفجار در محله باغ ابریشم کرمانشاه خبر داد. سازمان آتش نشانی کرمانشاه اعلام کرد: «وقوع یک حادثه ناشی از انفجار گاز در محله باغ ابریشم باعث ایجاد آتش‌سوزی در یک واحد مسکونی و سرایت آن به ساختمان‌ مجاور شد که ۲ مجروح برجا گذاشت». فارس همزمان از «نشت و انفجار شدید گاز» در یک مجتمع ۴۰ واحدی واقع در فاز یک اندیشه تهران خبر داده بود که دست‌کم ۴ نفر در آن مجروح شدند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243120
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243120_1780267868.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش «امتداد»، مسعود پیاهو، عکاسی که تصویر نشستن یک معترض مقابل نیروهای سرکوب جمهوری اسلامی را در دی‌ماه ۱۴۰۴ ثبت کرده بود، به «همکاری با اسرائیل» متهم و به «۱۰ سال حبس» محکوم شد؛ حکمی که در شعبه ۹ دیوان تایید شده و به اجرای احکام رفته است. براساس اعلام حسن آقاخانی، وکیل مسعود پیاهو، او این فیلم کوتاه را به صورت ناخودآگاه ضبط کرده و بدون قصد انتشار، صرفا برای تعداد محدودی از دوستانش در روایتگر خصوصی اینستاگرام منتشر کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243119
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243119_1780267869.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزیر دادگستری لبنان روز یکشنبه، ۱۰ خردادماه، در گفتگوی اختصاصی با «العربیه» با انتقاد شدید از عملکرد نظامی حزب‌الله اعلام کرد: «حزب‌الله لبنان را به جنگ‌هایی می‌کشاند که خود انتخاب نکرده است و با شلیک ۶ موشک، جنگ همه‌جانبه را به کشور بازگرداند. اکنون زمان آن فرا رسیده است که این گروه به ماجراجویی‌های خود پایان دهد و از گزینه دولت حمایت کند. چرا که سلاح حزب‌الله به بهانه‌ای برای تهاجم به لبنان تبدیل شده است.» او با تاکید بر ضرورت خلع سلاح این گروه افزود: «حزب‌الله باید سلاح خود را به دولت تحویل دهد و این به معنای تسلیم شدن نیست. اگر حزب‌الله سلاحش را تحویل دهد، دولت در مذاکرات قوی‌تر خواهد بود، در حالی که در وضعیت فعلی، این گروه توانایی دولت برای مذاکره از موضع قدرت را مختل کرده است. حزب‌الله پیش از این نیز لبنانی‌ها را در سوریه قربانی کرد و نبردها را صرفا در راستای منافع خود پیش می‌برد. در حال حاضر دیپلماسی مناسب‌ترین راه است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243118
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مهدی تاج، رئیس فدراسیون فوتبال ایران، روز یکشنبه در پاسخ به نگرانی‌ها درباره صدور ویزای بازیکنان تیم ملی فوتبال برای سفر به آمریکا گفت: «میزبان ما فیفا است و فیفا در واقع مسئول برگزاری مسابقات و از نظر ما مسئول دادن ویزا است، نه دولت آمریکا. چرا که وقتی کشوری می‌خواهد میزبانی را عهده‌دار شود، متعهد به انجام یک‌سری کارها می‌شود که یکی از آن‌ها صادر کردن ویزا است و باید این حداقل‌های قانونی را رعایت و مراعات کنند. من خودم امیدوارم با توجه به مسئولیتی که فیفا پذیرفته و صحبت‌های رخ‌به‌رخی که ما از نزدیک با مسئولین فیفا داشته‌ایم، این کار اتفاق بیفتد و مشکلی در این زمینه وجود نداشته باشد.»
+همزمان، عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، در گفتگو با خبرگزاری صداوسیما با اشاره به آخرین وضعیت صدور ویزا برای اعضای تیم ملی فوتبال ایران گفت: «دیروز [شنبه] دوستان ما در ترکیه با سفارت مکزیک تماس‌های نزدیکی داشتند. سفارت مکزیک در آنکارا از انگشت‌نگاری [اعضای تیم ملی] صرف‌نظر کرده و بنابر هماهنگی قرار شد به گونه‌ای جلو برود که همه ویزاها صادر بشود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243117
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243117_1780267870.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️«مرکز مشترک اطلاعات دریایی» (JMIC) در جدیدترین گزارش ارزیابی امنیتی خود، سطح تهدیدات برای امنیت کشتیرانی تجاری در منطقه دریایی خاورمیانه به‌ویژه تنگه هرمز را «بحرانی» اعلام کرد. بر اساس این گزارش، حجم تردد کشتی‌های تجاری در تنگه هرمز در بازه زمانی ۱۱ اسفند تا ۱۰ خرداد به شدت کاهش یافته و شناورها ناچار به تغییر مسیر به سمت آب‌های ساحلی عمان شده‌اند. این نهاد بین‌المللی همچنین با اشاره به صدور هشدار ناوریا ۹ (NAVAREA IX) درباره رویت یک مین شناور در این آب‌راه حیاتی، نسبت به تداوم خطر مین‌گذاری در مسیرهای تردد و اختلالات شدید و مداوم در سیستم‌های موقعیت‌یاب جهانی (GNSS) هشدار داد طبق آمارهای ارائه‌شده، میانگین تردد روزانه کشتی‌ها در تنگه هرمز به تنها ۳ تا ۴ ترانزیت در روز سقوط کرده است؛ با این حال، گزارش تصریح می‌کند که جریان ترافیک دریایی در خلیج عدن و دریای سرخ جنوبی کماکان پایدار است و در ۷۲ ساعت گذشته هیچ حمله تاییدشده‌ای علیه کشتی‌های تجاری در این مناطق ثبت نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13108
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها از حمله پهپادی ایران به گروه های مخالف ایرانی-کرد در نزدیکی اربیل، شمال عراق!
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342465
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342465_1780267870.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Our community will resist again."
+
+Los Angeles Mayor Karen Bass warned that she and her city's residents are ready to oppose federal immigration enforcement if the Trump administration attempts widespread operations during the World Cup.
+
+Bass, who is facing a challenge in the mayoral election from Spencer Pratt, pledged her support for Los Angeles residents regardless of who they are or why they're in the city.
+
+Last year, ICE raids in Los Angeles sparked riots across the city.
+</div>
+
+## FoxNewsTwitter — post 342461
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+New York City's annual Israel Day parade went on without its mayor.
+
+Zohran Mamdani skipped the event due to his stance toward Israel, breaking a decades-long tradition of New York City mayors attending the celebration.
+
+As thousands packed Fifth Avenue waving Israeli flags, Gov. Kathy Hochul, Sen. Chuck Schumer, Attorney General Letitia James, and New York Republican gubernatorial candidate Bruce Blakeman all took part.
+
+Mamdani's absence quickly became a political flashpoint, with critics accusing Mamdani of turning his back on New York's Jewish community amid record levels of antisemitism.
+</div>
+
+## pm_afshaa — post 91976
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91976_1780267872.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز:
+رئیس‌جمهور ایران، درخواست استعفا داده و دلیلش رو این عنوان کرده که عملاً اختیار و نفوذ کافی در ساختار حاکمیت نداره؛ اون به دفتر رهبری اعلام کرده که خودش و دولتش از تصمیم‌گیری‌های مهم کنار گذاشته شدن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91975
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91975_1780267873.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قائم‌مقام، معاون راهبردی پزشکیان:
+بیش از 56 درصد مردم حداقل یک بار در تجمعات شبانه شرکت کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5194
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5194_1780267874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝
+⭕️ براساس اطلاعات دریافتی در جنگ ۴۰ روزه، بخشی از حملات موشکی و پهپادی به اسرائیل، اقلیم کردستان عراق و اردن توسط گروه ۸۴۰ موشکی نیروی زمینی ارتش انجام شد. ستاد فرماندهی این گروه در کاشان مستقر است.
+این در حالیست که دونالد ترامپ به «فاکس نیوز» گفت،«شاید شنیدن این موضوع برای خیلی‌ها تعجب‌آور باشد، اما اینکه در جنگ‌ها همه چیز را نابود کنی، اشتباه است، چرا که بعد کشوری داری که تا ۴۰ سال هم قادر به بازسازی خود نخواهد بود.»
+او با اشاره به جنگ عراق، آن را نمونه‌ای از رویکرد اشتباه آمریکا در درگیری‌های گذشته دانست و گفت: «به عراق نگاه کنید؛ ما خیلی بد عمل کردیم، آن کار یک اشتباه بزرگ بود.»
+ترامپ همچنین عنوان کرد آمریکا ارتش ایران را «تا حدی به حال خود گذاشته»، چون به گفته او این ارتش «تا اندازه‌ای میانه‌رو» است و واشنگتن نمی‌خواسته همه ساختار نظامی کشور را نابود کند.
+
+#جنگ۴۰روزه
+@DEJradio
+</div>
+
+## DEJradio — post 5193
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️🕘 خبر ۲۱
+یکشنبه ۱۰ خرداد ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## DEJradio — post 5192
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5192_1780267875.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ یک منبع مطلع به دژ می‌گوید اینترنت در ایران با اصرار دولت مسعود پزشکیان مجدد وصل شد، اما بعضی افراد صاحب نفوذ در دستگاه‌های امنیتی برای قطع مجدد آن فشار می‌آورند.
+این افراد به واسطه چند عضو شورای‌عالی فضای مجازی از ستاد «ساماندهی اینترنت» وابسته به دولت شکایت کردند.
+همچنین چند نماینده مجلس شورای اسلامی با پشتیبانی نهادهای امنیتی به دنبال مسدودسازی مجدد اینترنت هستند. آنها گفته‌اند «ستاد ویژه فضای مجازی حق تصمیم برای اینترنت ندارد.»
+در ایران با آغاز جنگ اینترنت قطع شد و بیش از سه ماه تمام کشور به جز سیم‌کارت سفیدها به آن دسترسی نداشتند.
+برخی اما می‌گویند محال است، بدون نظر نهادهای امنیتی بالادستی اینترنت وصل شده باشد. به اعتقاد آنها دولت تصمیم‌گیر نیست و صرفاً یک بازی درون حکومتی است که برای دولت پزشکیان نزد افکار عمومی با وصل شدن اینترنت اعتبارسازی شود.
+مخالفان باز شدن اینترنت می‌گویند، "احتمال آسیب به دستگاه امنیتی و احتمال نفوذ خارجی در عرصه حکمرانی لز طریق اینترنت بسیار زیاد است."
+
+#اینترنت
+@DEJradio
+</div>
+
+## IranIntlTV — post 339950
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339950_1780267876.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن هاشمی رفسنجانی، عضو حزب کارگزاران سازندگی، با لحنی توهین‌آمیز، دونالد ترامپ را «گاو خشمگین» نامید و گفت باید راهی پیدا کرد که او صدمه بیشتری به ایران نزند. او افزود اگر توافق‌نامه‌ای به نفع جمهوری اسلامی نباشد، بعدا ما هم آن را پاره می‌کنیم و خواستار مذاکرات تازه‌ای می‌شویم.
+@iranintltv
+</div>
+
+## IranIntlTV — post 339949
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339949" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: استعفای پزشکیان؛ شکاف در راس نظام
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339948
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339948_1780267878.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «تجربه صربستان و برکناری و مرگ میلوسویچ پس از جنگ کوزوو، نشان داد که شکست‌های نظامی می‌توانند پایه‌های حکومت‌های دیکتاتوری را متزلزل و اختلافات داخلی آنها را تشدید کنند. وضعیت کنونی جمهوری اسلامی نیز نتیجه فعال شدن بحران‌های مختلف پس از جنگ‌ها و تشدید شکاف‌های درونی در راس نظام را نشان می‌دهد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339947
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339947_1780267881.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پنج ماه پس از کشته‌شدن ده‌ها هزار نفر در جریان انقلاب ملی در دی‌ماه، شماری از ایرانیان در لس‌آنجلس گردهم آمدند تا یاد جان‌باختگان را گرامی بدارند.
+
+شرکت‌کنندگان همچنین بر جایگاه پرچم شیر و خورشید به‌عنوان نمادی از همبستگی و اتحاد میان ایرانیان تاکید کردند.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال و گفت‌وگو با راحله امیری، از آسیب‌دیدگان چشمی جنبش «زن، زندگی، آزادی» و یکی دیگر از شرکت‌کنندگان
+@iranintltv
+</div>
+
+## IranIntlTV — post 339946
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339946_1780267884.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش اختصاصی ایران‌اینترنشنال به نقل از یک منبع آگاه نشان می‌دهد مسعود پزشکیان با ارسال نامه‌ای رسمی به دفتر مجتبی خامنه‌ای خواستار کناره‌گیری فوری از سمت خود شده است.
+
+او در این نامه تاکید کرده دولت و شخص رییس‌جمهور در عمل از روند تصمیم‌گیری‌های کلان کشور کنار گذاشته شده‌اند و ادامه مسئولیت در این شرایط ممکن نیست.
+
+گفت‌وگو با کامیار بهرنگ، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339945
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339945_1780267887.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «اختلاف میان پزشکیان و فرماندهان سپاه بر سر دو موضوع اصلی است؛ نحوه اداره داخلی کشور و چگونگی مواجهه با آمریکا و اسرائیل. در حالی که برخی چهره‌ها مانند قالیباف به رویکرد توافق و حفظ نظام نزدیک‌تر توصیف می‌شوند، بخشی از فرماندهان سپاه بر ادامه مسیر تقابل و جنگ تاکید دارند، فارغ از پیامدهای آن.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339944
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339944_1780267889.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «پزشکیان از ناتوانی در اداره کشور به دلیل دخالت‌های سپاه گلایه کرده، اما فرماندهان سپاه که بر بخش‌های اصلی قدرت مسلط شده‌اند حاضر به پذیرش این انتقادها نیستند. برای مردمی که جمهوری اسلامی را نمی‌خواهند، تشدید اختلافات در راس حکومت نشانه‌ای از تضعیف بیشتر نظام و درگیری میان دو جناحی تلقی می‌شود که هر دو متهم به ظلم علیه مردم هستند.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 219216
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219216_1780267890.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رسانه‌های جمهوری اسلامی وقوع دو انفجار را که تقریبا هم‌زمان در تهران و کرمانشاه و در ساعات پایانی یکشنبه گزارش شد به نشت گاز نسبت دادند. سایت تسنیم، نزدیک به سپاه پاسداران اعلام کرد که در ساعات پایانی روز یکشنبه، «انفجار گاز» در محله باغ ابریشم کرمانشاه باعث مصدومیت ۲ نفر شد. این سایت‌ همچنین مدعی شد که انفجار در یک واحد مسکونی در «فاز یک اندیشه» در استان تهران ناشی از «نشت گاز» بوده است. خبرگزاری ایسنا به نقل از سخنگوی اورژانس استان تهران می‌گوید این انفجار تاکنون ۶ مصدوم بر جای گذاشته است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219214
+
+<div align="center">
+  <a href="https://t.me/farsivoa/219214" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴📢‌ پادکست خبری یکشنبه ۱۰ خرداد ۱۴۰۵
+
+🛜در صورتی که با مشکل اینترنت مواجه هستید میتوانید اخبار صدای آمریکا را از نسخه‌های پادکست خبری ما روزانه دنبال کنید و یا اخبار را از نسخه سبک وب‌سایت ما پیگیر باشید:
+https://ir.voanews.com/lite
+
+📡بروزترین فرکانسهای ماهواره‌ای را نیز میتوانید از صفحه زیر پیگیری کنید:
+https://ir.voanews.com/satellite
+
+🔔دیگر شبکه‌های اجتماعی ما هم دنبال کنید:
+https://linktr.ee/voafarsi
+
+
+
+ما را به اشتراک بگذارید
+@farsivoa
+</div>
+
+## FarsiVOA — post 219213
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ادامه راکت‌پرانی‌های حزب‌الله به شمال اسرائيل هم‌زمان با تلاش‌های دولت لبنان برای ادامه مذاکرات صلح
+
+▪️رسانه‌های اسرائیلی از ادامه حملات راکتی گروه تروریستی حزب‌الله به شمال اسرائيل خبر می‌دهند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8155833.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21162
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21162_1780267891.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین طاهری، مداح:
+
+اگر مذاکره می‌کنید، اگر توافق می‌کنید، اگر جنگ هست ، به ما نتیجشو بگید که ما حداقل تکلیف خودمونو توی خیابونا بدونیم.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282517
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282517_1780267894.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+امانوئل مکرون، رئیس‌جمهور فرانسه، روز یکشنبه گفت که «هیچ چیز تشدید عمده تنش در جنوب لبنان را توجیه نمی‌کند».
+
+این اظهارات آقای مکرون بعد از آن بیان شد که نیروهای اسرائیلی حمله جدیدی را به جنوب لبنان آغاز کردند.
+
+پس از تصرف قلعه تاریخی شقیف (بوفور)، توسط نیروهای اسرائیلی شورای امنیت سازمان ملل متحد روز دوشنبه به درخواست فرانسه جلسه اضطراری برگزار خواهد کرد.
+
+آقای مکرون همچنین پس از صحبت با رهبران منطقه‌ای در پیامی در شبکه اجتماعی ایکس گفت که دستیابی سریع به توافق بین ایالات متحده و ایران «ضروری» است.
+
+رئیس جمهور فرانسه با محمد بن سلمان، ولیعهد عربستان سعودی، هیثم بن طارق، سلطان عمان، محمد بن زاید، رئیس امارات متحده عربی و عبدالفتاح سیسی، همتای مصری خود گفتگو کرد.
+
+📷Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 282516
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282516_1780267895.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+در ماه‌های اخیر گزارش‌های متعددی از کمبود دارو در ایران منتشر شده است. به گفته وحید شریعت، رئیس انجمن روانپزشکی ایران، داروهای حیاتی روانپزشکی از جمله داروهای مرتبط با افسردگی، دوقطبی و اسکیزوفرنی با کمبود مواجه شده‌اند و در صورت ادامه روند فعلی، این وضعیت می‌تواند در ماه‌های آینده تشدید شود.
+
+دکتر کیانا کثیری در برنامه رادیویی جام جهان‌نمای بی‌بی‌سی فارسی درباره پیامدهای خطرناک کمبود داروهای روانپزشکی گفت.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390705
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390705_1780267898.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵 رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش…
+</div>
+
+## Dirty_Kids — post 390704
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390704_1780267899.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A10
+
+🌟اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین
+👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 390703
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390703_1780267899.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اون مار از منی که تو ایران با وجود جمهوری‌اسلامی زندگی میکنم خوشبخت‌تره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390700
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390700_1780267900.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ویدیو برای شروع جام‌جهانی خیلی وایرال شده که میپرسه کدوم تیم قهرمان جام‌جهانی میشه؟ 🏆
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390699
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390699_1780267902.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهروز رهبری‌فر در این ویدیو می‌گه «چون علی خامنه‌ای کشته شده و من خودمو فرزند او می‌دونم پس من الان فرزند شهیدم!‌»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390698
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390698_1780267905.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏+ مسعود لج نکن بیا بریم کار داریم
+- من سوار هلیکوپتر نمیشم
++ هلیکوپتر کدومه دکتر؟!
+- من استخر هم نمیام
++ لابد تو‌ حموم واجبی هم نمیزنی؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390697
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390697_1780267905.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس هم تاید کرد پزشکیان استعفا داده
+نمیدونم چرا این خبر ذره‌ای بکیرم نیست
+چون ما میدونستیم رییس جمهور در جمهوری اسلامی دلقکی بیش نیست
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390691
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏ملت ورداشتن عکسای این چادری کافه‌ایارو بی‌حجاب کردن دارن پخش میکنن 😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390690
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم استعفای پزشکیان رو تکذیب کرد
+تسنیم خبر مرگ لاریجانی رو هم تکذیب کرد
+تسنیم خبر مرگ تنگسیری رو هم تکذیب کرد
+تو فقط تکذیب کن:)))
+
+
+تو جمهوری‌اسلامی رسمه که هر وقت میخوان یک خبر یا اتفاقی رو آروم آروم به مردم بگن، اول میدن به تسنیم تکذیبش کنه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390688
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استفاده خوب و درست از هوش مصنوعی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390687
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390687_1780267906.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حسین طاهری، مداح :
+اگه دارین مذاکره می‌کنید به ماهم بگین که حداقل تکلیف خودمونو تو این دورهم جمع شدنایِ شبانه بدونیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124067
+
+<div align="center">
+  <a href="telegram/content/alonews_124067_1780267908.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری ‌CNN اعلام کرد که ایران اکنون 50 ورودی از 69 ورودی تونلی را که توسط ایالات متحده آمریکا و اسرائیل در 18 تأسیسات موشکی زیرزمینی مورد اصابت قرار گرفته بود، باز کرده است
+
+
+🔴تصویر متعلق به یک پایگاه موشکی در دزفول است که چهار ورودی از پنج ورودی آن باز شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124065
+
+<div align="center">
+  <a href="telegram/content/alonews_124065_1780267909.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رژه روز اسرائیل در نیویورک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124064
+
+<div align="center">
+  <a href="telegram/content/alonews_124064_1780267909.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این 2 دقیقه رو حتما یه جا سیو کنین و یا بفرستین پیوی رفیقتون که گمش نکنین! هر بار این کلیپ رو باز کنین مو به تنتون سیخ میشه که طی این چند سال چه اتفاقی افتاده!
+
+[@AloTweet]
+</div>
+
+## alonews — post 124063
+
+<div align="center">
+  <a href="telegram/content/alonews_124063_1780267910.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مسعود پیاهو، کسی که ویدیوی مرد نشسته مقابل موتوسواران یگان‌ویژه در خیابان جمهوری تهران را منتشر کرد، به ۱۰ سال زندان محکوم شد.
+
+
+🔴ویدیوی این مرد که در دومین روز اعتراضات دی‌ماه ۱۴۰۴ منتشر شد، به سرعت وایرال و به یکی از نمادهای اعتراضات تبدیل شد.
+
+
+🤔دم از عدل علی میزنن ولی به معاویه گفتن زکی
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 00:26
 ---
 
