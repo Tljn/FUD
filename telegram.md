@@ -7,6 +7,1331 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 00:57
+---
+
+## VahidOOnLine — post 243722
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243722_1780608474.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ،رئیس‌جمهوری آمریکا، روز پنجشنبه ۱۴ خرداد در گفتگو با خبرنگاران در کاخ سفید، درباره احتمال دیدار با مجتبی خامنه‌ای گفت تمایلی به چنین دیداری ندارد.
+ترامپ گفت: «اگر ملاقات کنیم، با احترام برخورد می‌کنم»، اما تاکید کرد شخصا به دنبال چنین دیداری نیست.
+رئیس‌جمهوری آمریکا همچنین در پاسخ به سوالی درباره اینکه آیا به دلیل کشته شدن اعضای خانواده مجتبی خامنه‌ای، احتمال دارد او تمایلی به دیدار نداشته باشد، گفت: «من شخص مورد علاقه او نیستم.»
+ترامپ افزود در صورت شکل‌گیری توافق، احتمال انجام چنین دیداری وجود دارد، اما تاکید کرد در حال حاضر به دنبال آن نیست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243721
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243721_1780608475.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، پنجشنبه ۱۴ خرداد در اظهاراتی درباره جمهوری اسلامی تاکید کرد که ایالات متحده «به هر حال» پیروز خواهد شد؛ چه از طریق توافق و چه از راه نظامی.
+
+ترامپ گفت: «فکر می‌کنم اوضاع برای ما خیلی خوب پیش می‌رود، اما خواهیم دید که به چه شکلی پیروز می‌شویم. به هر حال ما پیروز خواهیم شد؛ یا روی کاغذ و از طریق توافق، یا از راه نظامی.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243720
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243720_1780608476.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ، رئیس‌جمهوری آمریکا، پنجشنبه ۱۴ خرداد در کاخ سفید در پاسخ به سوالی درباره گزارش‌هایی مبنی بر اینکه کشته شدن نیروهای آمریکایی خط قرمز او برای پایان آتش‌بس با ایران است، گفت این موضوع «دلیل خوبی» برای از سرگیری درگیری خواهد بود.
+
+ترامپ افزود: «راستش را بخواهید، اگر نیروهای آمریکایی را بکشند، فکر می‌کنم خیلی سریع این کار را انجام بدهم.»
+
+این اظهارات در پاسخ به سوال خبرنگاری مطرح شد که پرسید آیا کشته شدن نیروهای آمریکایی، خط قرمز دولت او برای پایان دادن به آتش‌بس و از سرگیری جنگ با ایران است.
+
+پیش‌تر وال‌استریت ژورنال به نقل از مقام‌های آمریکایی گزارش داد دونالد ترامپ به‌طور خصوصی به دستیارانش گفته است در صورتی که جمهوری اسلامی نیروهای آمریکایی را بکشد، ازسرگیری جنگ و پایان دادن به آتش‌بس را بررسی خواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243719
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243719_1780608478.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ درباره احتمال دیدار با رهبر جمهوری اسلامی گفت تمایلی به این دیدار ندارد، اما اگر هدف دستیابی به توافق باشد، چنین دیداری می‌تواند انجام شود.
+
+او افزود: «من این پیشنهاد را مطرح نکرده‌ام و چیز زیادی هم درباره آن نشنیده‌ام، اما برخی آن را پیشنهاد کرده‌اند. اگر قرار باشد اتفاق بیفتد، رخ خواهد داد و من با احترام برخورد می‌کنم.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243718
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243718_1780608478.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنجشنبه ۱۴ خرداد در گفتگو با خبرنگاران در کاخ سفید، در پاسخ به پرسشی درباره لزوم کمک متحدان اروپایی برای بازگشایی تنگه هرمز و تامین امنیت انرژی گفت: «ما به کمک آن‌ها نیازی نداریم؛ ما قدرتمندترین ارتش جهان را در اختیار داریم.»
+ترامپ با انتقاد از رویکرد اعضای ناتو افزود: «ما به کشورهای عضو ناتو و دیگران فرصت دادیم که در این زمینه کمک کنند، اما آن‌ها خودشان خواستند که این کار را نکنند. من فشار زیادی به آن‌ها وارد نکردم، فقط گفتم اگر تمایل به کمک دارید، بسیار عالی خواهد بود، اما همه آن‌ها درخواست ما را رد کردند.» ترامپ در ادامه گفت: «این تصمیم برای آن‌ها بسیار پرهزینه خواهد بود، چون نباید این کار را می‌کردند. باید کمک می‌کردند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243717
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243717_1780608479.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در کاخ سفید در پاسخ به این که اگر حکومت ایران نیروهای آمریکایی را بکشد، آیا جنگ با جمهوری اسلامی را از سر خواهد گرفت، گفت: «این دلیل خوبی برای چنین کاری خواهد بود. اگر آن‌ها نیروهای آمریکایی را بکشند، فکر می‌کنم خیلی سریع دست به این کار بزنم.»
+
+ترامپ درباره جمهوری اسلامی تاکید کرد: «آن‌ها نمی‌توانند سلاح هسته‌ای داشته باشند.»
+
+رییس‌جمهوری آمریکا گفت: «ما برای به‌دست آوردن اورانیوم غنی‌شده آن‌ها به توافقی با ایران نیاز نداریم.»
+
+او درباره کمک ناتو به بازگشایی تنگه هرمز نیز گفت: «ما به آن‌ها فرصت دادیم که کمک کنند، اما نخواستند کمک کنند. این موضوع برای آن‌ها بسیار پرهزینه خواهد شد، چون نباید چنین کاری می‌کردند. باید کمک می‌کردند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243716
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243716_1780608480.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️العربیه پنجشنبه شب ۱۴ خردادماه، به نقل از منابع اختصاصی گزارش داد محسن نقوی، وزیر کشور پاکستان، برای پیشبرد مذاکرات میان جمهوری اسلامی ایران و آمریکا به تهران سفر می‌کند.
+
+به گفته این منابع، سفر نقوی در چارچوب تلاش‌های میانجی‌گرانه اسلام‌آباد میان تهران و واشنگتن انجام می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243715
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243715_1780608480.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه العربیه شامگاه پنج‌شنبه به نقل از منابع خود گزارش داد وزیر کشور پاکستان در حال بازگشت به تهران است تا روند مذاکرات را پیگیری کرده و تلاش‌ها برای ادامه گفت‌وگوها میان آمریکا و جمهوری اسلامی را تقویت کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243714
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243714_1780608481.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی، مشاور رهبر جمهوری اسلامی، پنج‌شنبه در مصاحبه‌ای با صداوسیمای جمهوری اسلامی اعلام کرد که پیش‌نویس فعلی تفاهم‌نامه در حال مذاکره برای پایان دادن به جنگ میان ایران و ایالات متحده دارای ابهاماتی است که باید روشن شوند.
+
+رضایی افزود که ترامپ تلاش می‌کند حکومت ایران را تحت فشار قرار دهد تا شرایط او را بپذیرد و شرایط تهران را در وضعیتی مبهم نگه دارد.
+
+مشاور مجتبی خامنه‌ای همچنین پیشتر به صداوسیما گفت که آمریکا منتظر «چراغ سبز» جمهوری اسلامی است و تهران تا به «همه حقوق‌» خود دسترسی پیدا نکند، این چراغ سبز را به هیچ کسی نشان نخواهد داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243713
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رسانه‌های داخلی ایران پنجشنبه‌شب ۱۴ مردادماه تصاویری از اجرای زنده قیصر، خواننده ساکن لس‌آنجس در میدان انقلاب تهران را منتشر کردند.
+
+قیصر در این مراسم که به‌مناسبت عید غدیر و با حضور جمعی از حامیان حکومت برگزار شد، قطعه «تهران» را اجرا کرد.
+حاضران، همزمان با این اجرا پرچم‌های جمهوری اسلامی و حزب‌الله را تکان می‌دادند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243712
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از زندگی در دوران پس از انقلاب ملی و جنگ - پنجشنبه ۱۴ خرداد ۱۴۰۵
+
+🔹همزمان که دارن یه تعدادی رو اعدام می‌کنن، خیلی‌های دیگه رو حکم‌های سنگین دادن. زیر ۱۸ سال‌ها رو فرستادن کانون اصلاح و تربیت. بالای ۱۸ سال رو یا حکم تعزیری دادن یا تبعید کردن به شهرهای دیگه. خیلی وضعیت بدیه.
+🔹صدای رشید مظاهری، بازیکن سابق تیم تاج باشید. او قبل از خنثی شدن دیکتاتور با شجاعت و شرافتمندانه اعتراض کرد و استوری گذاشت، اما جمهوری اسلامی از وضعیتش هیچ خبری نداد.
+🔹من در خیاطی کار می‌کنم و حقوق ۲۲ میلیون دریافت می‌کنم. جدیداً صاحبکارها یاد گرفتن که برن سمت مناطق دورافتاده کارگاه بزنن و حقوق کم به کارگر بدن، با ماهی ۱۲ میلیون تومان. توی این وضعیت ۲۲ میلیون کمه، چه برسه به ۱۲ میلیون.
+🔹الموت قزوین: من یه دهه هفتادی هستم که برنجکارم. برنجی که پر از زحمت تو گرمای خردادماه می‌کاریم، از ما مفت می‌خرن، در صورتی که قیمت همه‌چیز چند برابر شده.
+🔹سه ماه از سال گذشته، هنوز برای اضافه شدن حقوق بازنشسته‌ها هیچ کاری انجام ندادن. حق بازنشسته‌ها رو شب‌ها تو موکب‌هاشون خرج خودشون می‌کنن.
+🔹امروز (۱۶ خرداد) کلی از دانشجویان علوم پزشکی بجنورد به‌خاطر غذای فاسد دیشب مسموم و راهی بیمارستان شدن. مسئولان دانشگاه سعی در پنهان‌کاری و دست‌کاری آمار دارن و معترضان رو تهدید کردن.
+🔹شیراز: دوره طلایی سن هر انسانی ۲۰ تا ۳۰ ساله. ما دهه هشتادیا بهترین دوره سنیمون رو ازمون گرفتن، آزادی‌مون رو گرفتن. به امید روزی که انتقام خون تک‌تک جاویدنام‌های راه آزادی رو بگیریم.
+🔹کرج: ۱۸ دی همسرم جاویدنام شد. از اون شب دیگه من و دخترم زندگی نمی‌کنیم، مثل مرده متحرکی شدیم که فقط زنده‌ایم.
+🔹من راننده کامیون هستم. خرج نسبت به دخل چند برابر شده. اگه این روند پیش بره کمتر از سه ماه دیگه مجبوریم کامیون‌ها رو خاموش کنیم. یعنی اگه هم بخوایم کار کنیم، نمی‌تونیم.
+🔹در حالی که اینترنت در ایران قطعه و گاهی نصفه وصل میشه، ژاپن رکورد سرعت اینترنت رو در جهان شکست. سرعت اینترنت در ژاپن به ۱.۰۲ پتابایت در ثانیه رسیده، یعنی کل دیتای نت‌فلیکس در کسری از ثانیه دانلود میشه.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13532
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ ۲۵ بهمن ۱۴۰۴: میخوام با آیت الله علی خامنه ای دیدار کنم.
+۹ اسفند بخارش‌ کرد.
+
+ترامپ ۱۴ خرداد ۱۴۰۵: میخوام با آیت الله مجتبی خامنه ای دیدار کنم.
+
+چه تاریخی بخار میشه؟!
+@withyashar
+</div>
+
+## WithYashar — post 13531
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ما به ایران رسیدگی خواهیم کرد، و به‌محض اینکه کارمان با آن تمام شد، در مسیر بازگشت، برای مدت کوتاهی توقف می‌کنیم و به کوبا رسیدگی خواهیم کرد… باید از شر این نظام خلاص شویم
+@withyashar
+</div>
+
+## WithYashar — post 13530
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: برنده این جنگ ما هستیم حالا چه روی کاغذ چه با قدرت نظامی
+@withyashar
+</div>
+
+## WithYashar — post 13529
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: جابجایی مواد هسته‌ای ایران مستلزم حضور یک یا دو هفته‌ای در منطقه درگیری بود، بنابراین ما این کار را انجام ندادیم
+@withyashar
+</div>
+
+## WithYashar — post 13528
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : من دنبال عملیات مخفی برای گرفتن اورانیوم ایران نیستم اون اورانیوم عملاً دفن شده و از بین رفته
+اعزام نیروهای نظامی برای تصاحب ذخایر اورانیوم ایران؟ نه من نمی‌خوام جیمی کارتر باشم
+@withyashar
+</div>
+
+## WithYashar — post 13527
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+
+راستش نمی‌خوام با آیت‌الله دیدار کنم، ولی اگه ببینمش، برام افتخاره. با احترام هم باهاش رفتار می‌کنم.
+@withyashar
+</div>
+
+## WithYashar — post 13526
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمو یاشار اتاق جنگ نمیری امشب؟
+</div>
+
+## WithYashar — post 13525
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+من در امور امنیت ملی خیلی تجربه زیادی نداشتم، اما فکر می‌کنم واقعاً کار خیلی خوبی در این زمینه انجام داده‌ام.
+@withyashar
+</div>
+
+## WithYashar — post 13524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع عربی:ظاهرا چراغ سبز برای بمباران حومه شهر بیروت گرفته شده است
+@withyashar
+</div>
+
+## WithYashar — post 13523
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من از ۶ سال پیش استوری کردم، به دوستای نزدیک و بچه‌های پیجم گفتم! از اتاق جنگم ۴-۵ بار گفتم، بازم میگم ما تا آخر ۲۰۲۸ تو جنگیم و درگیریم! حالا بقیشو من روحیه میدم تا بکشین تا تهش 🙌🏾 پس دیگه تکرار نمی‌کنم، هر کاری می‌کنید توشه راه رو داشته باشید. حتی فردا صبح هم اینا برن، طول می‌کشه. این زندگی واقعی هست و رؤیا و خیال‌بافی و وعده‌وعید نیست! حتی مانوک هم گفت بعد از مذاکرات تازه بازی شروع میشه، پس ما اولش هم نیستیم.
+
+ولی با من این مسیر رو راحت‌تر از تمام حالات طی می‌کنید ❤️‍🩹🙌🏾 ما بقی بازی سیاست و خبرگزاری‌ها و مارکت هست که ما هم به ناچار توشیم و انتشار می‌دیم! ولی این اخبار به هیچ وجه نه حرفه منه، نه کلاً تأیید می‌کنم؛ چاره‌ای هم نیست، این مسیر باید طی بشه!
+
+از توجه شما به این مطلب ممنونم.
+دوستدار شما یاشار
+</div>
+
+## mwarmonitor — post 10159
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجتبی خامنه‌ای (إِنَّا لِلَّٰهِ وَإِنَّا إِلَيْهِ رَاجِعُونَ) @mwarmonitor
+</div>
+
+## mwarmonitor — post 10158
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹خبرنگار: آیا با آیت‌الله جدید، رهبر معظم جدید دیدار خواهید کرد؟
+🔸دونالد ترامپ: من لزوماً به‌دنبال دیدار نیستم، اما اگر دیداری اتفاق بیفتد، مایه افتخار من خواهد بود که با او ملاقات کنم. مایلم ببینم آیا می‌توانیم به یک توافق برسیم یا خیر. اما اگر به توافقی برسیم، این احتمال وجود دارد که با او دیدار کنم. من مشکلی با این موضوع ندارم.
+🔹خبرنگار: آیا این دیدار ممکن است اینجا در ایالات متحده، در کاخ سفید انجام شود؟
+🔸دونالد ترامپ: اوه، واقعاً نمی‌دانم. هنوز چیز زیادی در این باره نشنیده‌ام. من خودم این را پیشنهاد ندادم، اما برخی دیگر پیشنهادش کرده‌اند. اگر چنین اتفاقی بیفتد، رخ خواهد داد و من با احترام برخورد خواهم کرد.
+🔹خبرنگار: آیا فکر می‌کنید به این دلیل که «خشم حماسی »پدر، همسر و فرزند او را کشته، او ممکن است احساسات جریحه‌داری داشته باشد و تمایلی به ملاقات با شما نداشته باشد؟
+🔸دونالد ترامپ: خب، من می‌توانم بگویم که فرد محبوب او نیستم. اما با وجود تمام این حرف‌ها، او احتمالاً یک فرد حرفه‌ای است—البته من شناخت دقیقی ندارم—اما او احتمالاً حرفه‌ای است. در برخی محافل، او در واقع وجهه و شهرت بسیار خوبی دارد؛ می‌دانید، گاهی اوقات مردم حرف‌های بدی می‌زنند، اما خیلی‌ها درباره من هم حرف‌های بدی می‌زنند که البته همگی کاملاً دروغ هستند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10157
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10157_1780608481.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## mwarmonitor — post 10156
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10156_1780608484.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹خبرنگار:
+«و حالا که صحبت از ارتش ما و ایران شد، می‌خواستم درباره این گزارش ازتون بپرسم که شما تنها در صورتی درگیری با ایران رو دوباره شروع می‌کنید که اون‌ها نیروهای آمریکایی رو بکشن؟ آیا این خط قرمز شما برای پایان دادن به آتش‌بسه؟»
+🔸دونالد ترامپ:
+«اگه اون‌ها بکشن؟»
+🔹خبرنگار:
+«نیروهای آمریکایی رو.»
+🔸دونالد ترامپ:
+«این یعنی چی؟»
+🔹خبرنگار:
+«یعنی اینکه اگه اون‌ها نیروهای آمریکایی رو بکشن، شما جنگ با ایران رو دوباره شروع می‌کنید.»
+🔸دونالد ترامپ:
+«خب، این می‌تونه دلیل خوبی باشه! باهاتون صادق باشم، آره، اگه اون‌ها نیروهای آمریکایی رو بکشن، فکر کنم من این کار رو خیلی سریع انجام بدم. آره، این سوال خیلی جالب شد!»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10155
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹خبرنگار: شما به رای‌گیریِ دیروز مجلس نمایندگان درباره «قطعنامه اختیارات جنگی» پاسخ دادید؛ همچنین دیده‌ایم که حزب‌الله، صلح با میانجی‌گریِ آمریکا در لبنان را رد کرده است. شما گفتید که مذاکرات در مراحل پایانی است، اما ایران می‌گوید که این مذاکرات متوقف شده است. موضع شما...؟
+🔸دونالد ترامپ (بین حرف خبرنگار می‌آید):
+خب، اونا می‌خوان ردش کنند؛ در واقع اونا ردش نکردند. اونا دارند بررسی‌اش می‌کنند. من فکر می‌کنم حزب‌الله... بهتون بگم، اونا با ما تماس گرفتند.
+🔸دونالد ترامپ:
+اونا با ما تماس گرفتند و گفتند: «نظرتون درباره متوقف کردنش چیه؟» و من فکر می‌کنم شما قرار هست شاهد اتفاقاتی در اونجا باشید. این موضوع تا حدودی مثل یک دنیای متفاوت بوده، اما با ایران در ارتباطه.
+و واقعاً خوب می‌شه اگه لبنان بتونه به کمی صلح برسه. لبنان سال‌های زیادی هست که تحت حملات بوده و همیشه مثل یک گروه ضعیف و بی‌دفاع (Underdog) عمل کرده. واقعاً خوب می‌شه اگه این وضعیت تموم بشه. من با بی‌بی نتانیاهو (بنیامین نتانیاهو) در این مورد صحبت کردم، با خودشون هم در این باره صحبت کردم و در واقع با حزب‌الله هم در این مورد صحبت کردم.
+و فکر می‌کنم پیشرفت‌هایی حاصل شده. این موضوع برای مدت طولانی جریان داشته؛ می‌دونید وقتی به این قضیه نگاه می‌کنید، برای سال‌ها و سال‌ها... ۴۸ سال. من می‌گم: «خب، بیاید این رو حل‌وفصل کنیم. چقدره که این ماجرا ادامه داره؟» ۴۸ سال. گفتم: «این زمان خیلی طولانی‌ایه.» (با خنده) به این سادگی‌ها نیست، اما بفرمایید [سوال بعدی].
+🔹خبرنگار: آقای رئیس‌جمهور، هرچه به انتخابات میان‌دوره‌ای نزدیک‌تر می‌شیم، آیا واکنش‌های داخلی به این موضوع و نحوه مدیریت خودتون رو در تصمیم‌گیری‌ها لحاظ می‌کنید؟ یا اینکه همچنان کار خودتون رو...؟
+🔸دونالد ترامپ: نه، من فقط کاری رو انجام می‌دم که درسته. گوش کنید، این قضیه مثل ونزوئلا بود؛ اولش خیلی نامحبوب بود، بعد ما پیروز شدیم و آمار [محبوبیت] من به شدت بالا رفت. من آمار نظرسنجی بسیار بالایی دارم، آمار من سقف رو شکافت و بالا رفت.
+وقتی من به سراغ مسئله ونزوئلا رفتم، کار خیلی نامحبوبی بود؛ اونا می‌گفتند: «اوه، ما این رو نمی‌خوایم.» خب اول از همه، اونجا نسبتاً به ما نزدیکه، یه جورایی نیمچه همسایه ما محسوب می‌شه، مگه نه؟ و رابطه ما با ونزوئلا فوق‌العاده است. ما میلیون‌ها و میلیون‌ها بشکه نفت از ونزوئلا خارج کردیم. اونجا فرآورده‌های نفتی زیادی داره؛ فکر کنم کریس، یکی از نفت‌خیزترین‌هاست، درسته؟
+کریس وزیر انرژی:
+بله.
+🔸دونالد ترامپ:
+و ما نفت خارج کردیم. شما یه جورایی دارید این کار رو رهبری می‌کنید؛ اما کریس، می‌خوای خیلی سریع درباره رابطه‌ای که با ونزوئلا داریم بهشون توضیح بدی؟
+
+📝صحبت کریس نداشتم
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10154
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10154_1780608486.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## mwarmonitor — post 10153
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10153_1780608488.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 خوش آمدید به بزرگترین، مضحک‌ترین و البته سقوط‌کرده‌ترین «سیرک شبانه جمهوری اسلامی»، جایی که مرزهای وقاحت و سورئالیسم هر شب فرسنگ‌ها جابه‌جا می‌شود! در این کارناوالِ چندش‌آور، دیگر هیچ‌چیز مایه شگفت‌زدگی نیست؛ حتی اگر فردا شب در همین استیج‌هایِ به اصطلاح مذهبی، یک سکانس خاک‌بر‌سریِ تمام‌عیار با حضور بانو «میا خلیفه» به عنوان نماد صبر و استقامت اجرا شود و مداحان برایش سینه بزنند، تعجبی ندارد! کمدیِ ماجرا اینجاست که برای پر کردن این خیمه‌شب‌بازی‌ها، دلقکی به نام «قیصر» را روی صحنه می‌آورند تا ترانه کوچه-بازاری بخواند؛ پیرمرد خرفت و بخت‌برگشته‌ای که از شدت آلزایمر حتی خانواده خودش هم او را نمی‌شناسند، اما حالا شده ستاره پاپِ این جشن‌های حکومتی! خلاصه که با این افتضاحات پیاپی و ابتذالِ عریانی که راه انداخته‌اند، روح خمینی در آن گورِ مرمرین روی ویبره رفته و با خودش می‌گوید: «این بود آرمان‌های امام؟ حداقل اول اون خامنه‌ای چال می‌کردید، بعد این سیستم را به قهقرا می‌بردید!» این است عاقبت نظامی که با ادعای معنویت آمد و حالا برای بقای خود، به حقیرانه‌ترین دلقک‌بازی‌های تاریخ تن داده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10152
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10152_1780608490.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️• یک فروند هواپیمای ترابری سنگین C-5M Super Galaxy نیروی هوایی آمریکا اکنون از پایگاه هوایی الظفره در ابوظبی در حال پرواز است.
+
+✈️• دو فروند هواپیمای ترابری راهبردی C-17 Globemaster III نیروی هوایی آمریکا از پایگاه هوایی العدید در قطر و پایگاه هوایی شیخ عیسی در بحرین در حال پرواز هستند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10151
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10151_1780608491.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️گزارش‌ها حاکی است که تعداد زیادی از هواپیماهای ترابری راهبردی C-17 Globemaster III نیروی هوایی ایالات متحده اکنون از خاورمیانه به سمت اروپا در حال پرواز هستند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342621
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342621_1780608491.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump declines to reveal specific details of his own proposed compromises to end the Russia-Ukraine war:
+
+"I'd rather not say."
+
+"I'm very responsible when that happens. It's going to happen. They're going to both make compromises — I suggested those compromises."
+
+"They're two very incredible countries, beautiful countries."
+
+"They've got to stop. Last month, they had 25,000 people killed. Soldiers, mostly soldiers, some people, but mostly soldiers."
+</div>
+
+## FoxNewsTwitter — post 342620
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342620_1780608493.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+PETER DOOCY: "There's been a lot of talk lately about the Treasury putting your face on a $250 bill... Would you ever be able to tip anyone anything but that?"
+
+TRUMP: "Well, I think I'll probably leave it for everybody."
+"I have actually seen something just about two days ago. I know it's been pushed by a lot of our supporters."
+
+"I'm honored that they're doing it, but we'll see how that all works out."
+
+"They really like the job we're doing, you know? So that's a great honor."
+
+@pdoocy
+</div>
+
+## FoxNewsTwitter — post 342619
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342619_1780608495.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+PETER DOOCY: "There's been a lot of talk lately about the Treasury putting your face on a $250 bill... Would you ever be able to tip anyone anything but that?"
+
+TRUMP: "Well, I think I'll probably leave it for everybody."
+"I have actually seen something just about two days ago. I know it's been pushed by a lot of our supporters."
+
+"I'm honored that they're doing it, but we'll see how that all works out."
+
+"They really like the job we're doing, you know? So that's a great honor."
+</div>
+
+## FoxNewsTwitter — post 342618
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342618_1780608497.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"It means Italian people love Trump."
+
+President Trump praises the stunning restoration of the Christopher Columbus statue at Union Station, highlighting the massive beautification effort that saved the historic monument from being torn down.
+
+After decades of being covered in graffiti and grime, the monument's original marble was fully restored.
+</div>
+
+## FoxNewsTwitter — post 342617
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342617_1780608500.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump announces a major shift in energy funding, revealing plans to completely dismantle a massive Green New Deal initiative in favor of revitalizing America's coal industry:
+
+"Finally, we're taking nearly $200 million — it was set aside for the 'Green New Scam.'"
+
+"The 'Green New Scam' is history and repurposing that money so that we restart a coal plant in Maryland and help build two brand-new coal plants in Alaska and West Virginia."
+</div>
+
+## FoxNewsTwitter — post 342616
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342616_1780608501.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump uses New York Giants quarterback Jaxson Dart to make a point about biological men competing in female athletics, recounting a humorous exchange:
+
+"He's a big, strong guy, and I said, 'how do you think you'd do it in women's sports?'"
+
+"And he said, pretty good, sir. He didn't know I was joking. He was not worried."
+
+"He would have been the greatest athlete in the history of women's sports."
+</div>
+
+## VahidOnline — post 75943
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75943_1780608503.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ترامپ: ایران نباید سلاح اتمی داشته باشد
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، در کاخ سفید در پاسخ به این که اگر حکومت ایران نیروهای آمریکایی را بکشد، آیا جنگ با جمهوری اسلامی را از سر خواهد گرفت، گفت: «این دلیل خوبی برای چنین کاری خواهد بود. اگر آن‌ها نیروهای آمریکایی را بکشند، فکر می‌کنم خیلی سریع دست به این کار بزنم.»
+
+ترامپ درباره جمهوری اسلامی تاکید کرد: «آن‌ها نمی‌توانند سلاح هسته‌ای داشته باشند.»
+
+رییس‌جمهوری آمریکا گفت: «ما برای به‌دست آوردن اورانیوم غنی‌شده آن‌ها به توافقی با ایران نیاز نداریم.»
+
+او درباره کمک ناتو به بازگشایی تنگه هرمز نیز گفت: «ما به آن‌ها فرصت دادیم که کمک کنند، اما نخواستند کمک کنند. این موضوع برای آن‌ها بسیار پرهزینه خواهد شد، چون نباید چنین کاری می‌کردند. باید کمک می‌کردند.»
+
+
+🔻ترامپ درباره جنگ: چه از نظر نظامی و چه روی کاغذ، ما پیروز خواهیم شد
+
+دونالد ترامپ، رییس‌جمهوری آمریکا درباره جنگ ایران گفت: «چه از نظر نظامی و چه روی کاغذ، ما پیروز خواهیم شد. بخش اصلی این است که تنگه فورا باز خواهد شد.»
+ترامپ افزود: «آن‌ها (جمهوری اسلامی) هیچ نیروی دریایی ندارند، هیچ نیروی هوایی ندارند. ما آن‌ها را نابود کرده‌ایم.»
+او ادامه داد: «رهبری‌شان را از بین برده‌ایم و تقریبا همه آن‌ها را نابود کرده‌ایم. بعد در رسانه‌های جعلی می‌خوانید که آن‌ها در جنگ خیلی خوب عمل می‌کنند. واقعا باورنکردنی است. ما هر چیزی را که می‌شد نابود کرد، از بین بردیم.»
+
+
+🔻ترامپ: حکومت ایران درباره توان و اراده آمریکا دچار اشتباه محاسباتی شده است
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در نشست کابینه در کاخ سفید با اشاره به مذاکرات جاری و وضعیت تنگه هرمز گفت یکی از محورهای اصلی توافق، بازگشایی فوری تنگه هرمز برای عبور و مرور کشتی‌ها است و تأکید کرد آمریکا «هم در میدان نبرد و هم در عرصه دیپلماسی» پیروز خواهد شد.
+
+رئیس‌جمهوری آمریکا مدعی شد توان نظامی جمهوری اسلامی به‌شدت تضعیف شده و گفت: «آن‌ها دیگر نیروی دریایی و نیروی هوایی مؤثری ندارند. ما تقریباً همه توان نظامی و ساختار رهبری آن‌ها را نابود کرده‌ایم.»
+
+او در پاسخ به پرسشی درباره احتمال ازسرگیری جنگ در صورت کشته شدن نیروهای آمریکایی توسط حکومت ایران گفت چنین اقدامی می‌تواند دلیل کافی برای اقدام نظامی جدید باشد و در آن صورت آمریکا «بسیار سریع» واکنش نشان خواهد داد.
+
+ترامپ همچنین درباره ذخایر اورانیوم غنی‌شده ایران گفت آمریکا در مقطعی گزینه خارج کردن این مواد را بررسی کرده بود، اما به دلیل نیاز به حضور طولانی‌تر نیروهای آمریکایی از این طرح صرف‌نظر شد. به گفته او، واشینگتن همچنان توانایی دسترسی به این مواد را دارد.
+
+وی افزود آمریکا با استفاده از سامانه‌های پیشرفته نظارتی و امکانات فضایی، تمامی مناطق مورد نظر را به‌طور کامل زیر نظر دارد و هرگونه تحرک را رصد می‌کند.
+
+ترامپ درباره احتمال دیدار با مجتبی خامنه‌ای نیز گفت شخصاً تمایلی ندارد و چنین پیشنهادی را هم مطرح نکرده است، اما اگر چنین دیداری انجام شود، با احترام برخورد خواهد کرد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75942
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75942_1780608503.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه پنجشنبه شب ۱۴ خردادماه، به نقل از منابع اختصاصی گزارش داد محسن نقوی، وزیر کشور پاکستان، برای پیشبرد مذاکرات میان جمهوری اسلامی ایران و آمریکا به تهران سفر می‌کند.
+
+به گفته این منابع، سفر نقوی در چارچوب تلاش‌های میانجی‌گرانه اسلام‌آباد میان تهران و واشنگتن انجام می‌شود.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75941
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75941_1780608504.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنج‌شنبه گفت ایالات متحده بر جمهوری اسلامی غلبه می‌کند، یا با توافق یا با عملیات نظامی.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340573
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340573_1780608504.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرجان ساتراپی، نویسنده، تصویرگر و فیلم‌ساز ایرانی-فرانسوی، در ۵۶ سالگی در پاریس درگذشت. به گفته خانواده‌اش، او پس از درگذشت همسرش در سال گذشته، بر اثر اندوه از دست دادن او جان باخت. ساتراپی با رمان مصور «پرسپولیس» و اقتباس سینمایی آن به شهرت جهانی رسید. او کارگردان پنج فیلم بلند دیگر هم بود و نخستین زنی شد که نامزد جایزه اسکار بهترین فیلم انیمیشن شد. کتاب مصور «زن، زندگی، آزادی» از آخرین آثار او با همکاری عباس میلانی بود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 340572
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340572_1780608506.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ درباره احتمال دیدار با رهبر جمهوری اسلامی گفت تمایلی به این دیدار ندارد، اما اگر هدف دستیابی به توافق باشد، چنین دیداری می‌تواند انجام شود.
+
+او افزود: «من این پیشنهاد را مطرح نکرده‌ام و چیز زیادی هم درباره آن نشنیده‌ام، اما برخی آن را پیشنهاد کرده‌اند. اگر قرار باشد اتفاق بیفتد، رخ خواهد داد و من با احترام برخورد می‌کنم.»
+https://iranintl.com/202606047542
+</div>
+
+## IranIntlTV — post 340571
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340571_1780608506.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در کاخ سفید در پاسخ به این که اگر حکومت ایران نیروهای آمریکایی را بکشد، آیا جنگ با جمهوری اسلامی را از سر خواهد گرفت، گفت: «این دلیل خوبی برای چنین کاری خواهد بود. اگر آن‌ها نیروهای آمریکایی را بکشند، فکر می‌کنم خیلی سریع دست به این کار بزنم.»
+
+ترامپ درباره جمهوری اسلامی تاکید کرد: «آن‌ها نمی‌توانند سلاح هسته‌ای داشته باشند.»
+
+رییس‌جمهوری آمریکا گفت: «ما برای به‌دست آوردن اورانیوم غنی‌شده آن‌ها به توافقی با ایران نیاز نداریم.»
+
+او درباره کمک ناتو به بازگشایی تنگه هرمز نیز گفت: «ما به آن‌ها فرصت دادیم که کمک کنند، اما نخواستند کمک کنند. این موضوع برای آن‌ها بسیار پرهزینه خواهد شد، چون نباید چنین کاری می‌کردند. باید کمک می‌کردند.»
+https://iranintl.com/202606048815
+</div>
+
+## IranIntlTV — post 340570
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340570" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: نگرانی دوباره جامعه جهانی از اهداف هسته‌ای ایران
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340569
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340569_1780608507.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعاتی پس از توافق سه‌جانبه آمریکا، لبنان و اسرائیل، حزب‌الله اعلام کرد طرح آتش‌بس را بدون خروج کامل اسرائیل از خاک لبنان نمی‌پذیرد. دبیرکل حزب‌الله مذاکرات مستقیم بیروت با اسرائیل را «نمایشی مضحک» خواند. در مقابل، وزیر دفاع اسرائیل گفت توافق شامل خلع سلاح حزب‌الله و محکومیت رسمی دخالت‌های جمهوری اسلامی در لبنان است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 340568
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340568_1780608509.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه العربیه شامگاه پنج‌شنبه به نقل از منابع خود گزارش داد وزیر کشور پاکستان در حال بازگشت به تهران است تا روند مذاکرات را پیگیری کرده و تلاش‌ها برای ادامه گفت‌وگوها میان آمریکا و جمهوری اسلامی را تقویت کند.
+https://iranintl.com/202606048643
+</div>
+
+## IranIntlTV — post 340567
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340567_1780608510.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا هلالی، مداح حکومتی در تجمع خیابانی حامیان جمهوری اسلامی به زبان چینی مداحی کرد. این ویدیو با واکنش‌های گسترده کاربران شبکه‌های اجتماعی مواجه شده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 340566
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340566_1780608511.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی، مشاور رهبر جمهوری اسلامی، پنج‌شنبه در مصاحبه‌ای با صداوسیمای جمهوری اسلامی اعلام کرد که پیش‌نویس فعلی تفاهم‌نامه در حال مذاکره برای پایان دادن به جنگ میان ایران و ایالات متحده دارای ابهاماتی است که باید روشن شوند.
+
+رضایی افزود که ترامپ تلاش می‌کند حکومت ایران را تحت فشار قرار دهد تا شرایط او را بپذیرد و شرایط تهران را در وضعیتی مبهم نگه دارد.
+
+مشاور مجتبی خامنه‌ای همچنین پیشتر به صداوسیما گفت که آمریکا منتظر «چراغ سبز» جمهوری اسلامی است و تهران تا به «همه حقوق‌» خود دسترسی پیدا نکند، این چراغ سبز را به هیچ کسی نشان نخواهد داد.
+https://iranintl.com/202606047780
+</div>
+
+## FarsiVOA — post 219619
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ: اگر نیروهای آمریکایی در حملات جمهوری اسلامی کشته شوند عملیات نظامی علیه آن از سر گرفته می‌شود
+
+▪️دونالد ترامپ، رئیس جمهوری آمریکا روز پنجشنبه ۱۴ خرداد در مراسم سرمایه‌گذاری در حوزه انرژی و زغال‌سنگ در کاخ سفید در هشداری به جمهوری اسلامی گفت اگر نیروهای آمریکایی در حملات جمهوری اسلامی کشته شوند، عملیات نظامی علیه رژیم از سر گرفته خواهد شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157398.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219618
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219618_1780608512.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شاهین‌ نژاد: جمهوری اسلامی روی طناب راه می‌رود
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219617
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219617_1780608513.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنج‌شنبه گفت ایالات متحده بر جمهوری اسلامی غلبه می‌کند، یا با توافق یا با عملیات نظامی.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219615
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219615_1780608513.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس‌جمهوری آمریکا پنج‌شنبه عصر گفت هواپیماهای بی‌۲ آمریکایی در حمله هوایی سال گذشته، مراکز تولید و غنی‌سازی در ایران را نابود و اورانیوم‌های غنی‌شده را زیر خاک مدفون کرده‌اند و دسترسی به آن‌ها فقط از عهده ما و «احتمالا» چین بر می‌آید.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219614
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از مقایسه ایران بین ۱۴ خرداد سال قبل و امروز
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219613
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219613_1780608513.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رئیس جمهوری آمریکا روز پنجشنبه ۱۴ خرداد در مراسم سرمایه‌گذاری در حوزه انرژی و زغال‌سنگ در کاخ سفید بار دیگر تاکید کرد که جمهوری اسلامی هرگز نمی‌تواند به سلاح هسته‌ای دست پیدا کند و «همه نیز با این موضوع موافق هستند.» او گفت جمهوری اسلامی هرگز سلاح هسته‌ای نخواهد داشت.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219612
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219612_1780608513.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خصوصیات اخلاقی مرجان ساتراپ و نگاه او به مرگ در گفت‌وگو با لونا شاد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219611
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219611_1780608514.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئيس‌جمهوری آمریکا روز پنج‌شنبه هشدار داد که اگر نیروهای آمریکایی در حملات جمهوری اسلامی کشته شوند، جنگ با رژیم ایران از سر گرفته خواهد شد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219610
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219610_1780608515.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رئیس جمهوری آمریکا، دونالد ترامپ روز پنجشنبه ۱۴ خرداد در مراسم سرمایه‌گذاری در حوزه انرژی و زغال‌سنگ در کاخ سفید گفت: آمریکا می‌خواهد با سرمایه‌گذاری در حوزه انرژی و زغال‌سنگ، اقتصادش را تقویت کند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219609
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219609_1780608515.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نازیلا گلستان در برنامه تفسیر خبر: «ولایت فقیه» امروز حتی صدا هم ندارد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219608
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219608_1780608516.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شکریا برادوست: سالگرد مرگ خمینی در حالی که جنازه خامنەای بر دست جمهوری اسلامی مانده، برگزار می‌شود
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219607
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هشدار تازه آژانس در مورد برنامه هسته‌ای جمهوری اسلامی
+
+▪️نهاد ناظر هسته‌ای سازمان ملل متحد روز پنجشنبه ۱۴ خرداد، گزارشی را برای کشورهای عضو ارسال کرد که در آن هیچ تغییر عمده‌ای در نگرانی‌های این نهاد از برنامه هسته‌ای جمهوری اسلامی نسبت به دوران پیش از جنگ اخیر دیده نمی‌شود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/first-iaea-report-irans-nuclear-programme-since-february-shows-little-change/8157353.html
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125511
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125511_1780608517.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶"موساد و سیا قصد داشتند نیروهای کرد را علیه جمهوری اسلامی مسلح کنند"
+
+بر اساس اعلام شرکت ردیابی دریایی  کپلر، چهار نفتکش با پرچم جمهوری اسلامی، روز دوشنبه اول ژوئن از تنگه هرمز عبور کردند.
+
+بر اساس گزارش‌های منتشر شده در رسانه‌های اسرائیلی، سازمان اطلاعات خارجی اسرائیل (موساد)، با همکاری سازمان امنیت آمریکا، سیا، در چارچوب تلاشی برای سرنگونی حکومت ایران، طرحی را برای مسلح کردن نیروهای شبه‌نظامی کرد با سلاح‌هایی که در درگیری‌ها با حماس و حزب‌الله ضبط شده بودند، اجرا کرده بود.
+
+این گزارش‌ها که از سوی شبکه ۱۲ اسرائیل و وای‌نت منتشر شده‌ و منبع مشخصی را ذکر نکرده‌اند، چند روز پس از کناره‌گیری دیوید بارنیا از ریاست موساد پس از پنج سال خدمت در این سمت منتشر شدند.
+
+بر اساس این طرح، نیروهای کُرد، کمک مالی و خودرو دریافت کردند و به سلاح‌های سبک، پرتابگرهای ضدتانک، نارنجک و خمپاره مجهز شدند. این گزارش‌ها می‌گویند مسئولیت انتقال سلاح‌ها و مهمات به نیروهای کُرد بر عهده موساد بوده است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15718
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/lfZfeBuNAT4?feature=share»
+</div>
+
+## Persian_Trend_Official — post 15717
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+23:30 دقیقه لایو آغاز میشه
+</div>
+
+## RadioFarda — post 157906
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157906" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرهای نیمه‌شب با رادیوفردا، ۱۵خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21398
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: «من نمی‌خواهم با آیت‌الله ملاقات کنم، اما اگر با او ملاقات می‌کردم، برایم افتخار بود که با او دیدار کنم. با احترام رفتار می‌کردم.» @IranianMinds
+</div>
+
+## IranianMinds — post 21397
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21397_1780608518.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+«من نمی‌خواهم با آیت‌الله ملاقات کنم، اما اگر با او ملاقات می‌کردم، برایم افتخار بود که با او دیدار کنم.
+با احترام رفتار می‌کردم.»
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21396
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+چند موشک در ایران باقی مانده است، اما بسیار کم.
+
+مذاکرات با ایران خوب پیش می‌رود.
+
+مسئله لبنان تا حدودی متفاوت است، اما به ایران مرتبط است.
+
+آمریکا می‌تواند اورانیوم غنی‌شده ایران را با یا بدون توافق مصادره کند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21395
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران:
+
+تمام ۱۵۹ کشتی آن‌ها در کف اقیانوس قرار دارند. ما در واقع از آن‌ها در آنجا عکس گرفتیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21394
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21394_1780608520.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تحرکات سنگین سوخت رسان های آمریکایی در منطقه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21393
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید:
+
+هر کسی که معتقد است دولت ایران دست بالا را دارد، اشتباه می‌کند یا سخنگوی سپاه پاسداران است
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 دبیر کل سازمان ملل کشته شدن یک نیروی حافظ صلح در جنوب لبنان را محکوم کرد
+
+سخنگوی دبیرکل سازمان ملل متحد، گفته است که آنتونیو گوترش کشته شدن یک نیروی حافظ صلح را در جنوب لبنان محکوم کرده و خواستار شناسایی و مجازات عاملان این حمله شده است.
+
+این صلحبان صرب سازمان ملل روز چهارشنبه بر اثر جراحات ناشی از اصابت خمپاره به پایگاه محل استقرارش جان باخت. با مرگ این صلح‌بان، شمار نیروهای یونیفیل که از زمان کشیده شدن لبنان به جنگ در اوایل ماه مارس کشته شده‌اند، به هفت نفر رسید.
+
+استفان دوجاریک، سخنگوی آقای گوترش گفت که او بار دیگر از همه طرف‌ها خواسته است تا به آتش‌بس اعلام‌شده در ۱۶ آوریل (۲۷ فروردین) پایبند باشند.
+
+آقای دوجاریک همچنین تأکید کرد که همه حملات علیه نیروهای حافظ صلح باید به‌سرعت مورد تحقیق قرار گیرد و عاملان آن تحت پیگرد قانونی قرار گرفته و پاسخگو باشند.
+
+او افزود یونیفیل نیز تحقیقات مستقلی را درباره این حادثه آغاز کرده است.
+
+«بر اساس ارزیابی‌های اولیه، موضع نیروهای حافظ صلح از طریق آتش غیرمستقیم شلیک‌شده از شمال رود لیتانی هدف قرار گرفته است.»
+
+ارتش اسرائیل حزب‌الله را مسئول این حمله دانسته؛ حمله‌ای که علاوه بر کشته شدن یک صلح‌بان، دو نفر دیگر را نیز زخمی کرد.
+
+https://bbc.in/4dS78uI
+@BBCPersian
+</div>
+
+## BBCPersian — post 282881
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سنتکام: از زمان محاصره دریایی ایران ۱۲۷ کشتی تجاری مجبور شدند تغییر مسیر بدهند
+
+ستاد فرماندهی مرکزی آمريکا (سنتکام) اعلام کرد که از زمان محاصره دریایی ایران توسط آمریکا تا ۴ ژوئن (۱۴ خرداد)، ۱۲۷ کشتی تجاری مجبور به تغییر مسیر شده‌اند و شش کشتی متخلف هم توسط نیروی دریایی آمریکا از کار انداخته شده‌اند.
+
+سنتکام همچنین گفته است که به ۳۶ کشتی حامل کمک‌های بشردوستانه اجازه عبور داده‌اند.
+
+آمریکا از ۱۳ آوریل (۲۴ فروردین) و در واکنش به اقدام ایران در بستن تنگه هرمز، دست به محاصره دریایی بنادر ایران زده است و اجازه نمی‌دهد هیچ کشتی‌ای از مبدا یا به مقصد بنادر ایرانی از تنگه هرمز عبور کند.
+
+https://bbc.in/4dS78uI
+@BBCPersian
+</div>
+
+## BBCPersian — post 282880
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 حمایت مکرون از آتش‌بس میان لبنان و اسرائيل
+
+امانوئل مکرون، رئیس‌جمهور فرانسه، گفته است که از آتش‌بس میان لبنان و اسرائیل که در واشنگتن حاصل شد، حمایت می‌کند.
+
+آقای مکرون گفت که پاریس از هر «اقدامی که به برقراری صلح، مقابله با فعالیت‌های تروریستی و تقویت حاکمیت و تمامیت ارضی لبنان کمک کند، پشتیبانی می‌کند.»
+
+او در جریان سفر به مونته‌نگرو اعلام کرد: «فرانسه و ایالات متحده در قالب یک سازوکار هماهنگی مشترک برای نظارت بر اجرای آتش‌بس همکاری می‌کنند و در صورت پایبندی طرف‌ها به توافق، این سازوکار باید دوباره فعال شود.»
+
+رئیس‌جمهور فرانسه همچنین تأکید کرد که پس از برقراری آتش‌بس، باید راهکارهایی برای تقویت حاکمیت لبنان و استقرار کامل ارتش این کشور تدوین شود تا کنترل و مدیریت سلاح تنها در اختیار نهادهای رسمی دولت لبنان قرار گیرد.
+
+او افزود که این روند می‌تواند به تثبیت حاکمیت دولت لبنان بر سراسر قلمرو خود کمک کند.
+
+گروه حزب‌الله که از حمایت ایران برخوردار است، در مذاکراتی که با میانجیگری آمریکا میان لبنان و اسرائیل برگزار شد حضور نداشت و نعیم قاسم، دبیرکل این گروه، پس از اعلام توافق آن را رد کرده است.
+
+https://bbc.in/4dS78uI
+@BBCPersian
+</div>
+
+## BBCPersian — post 282879
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻موافقت اتحادیه اروپا با اختصاص بسته حمایتی به ارزش ۱۱۶ میلیون دلار به ارتش لبنان
+
+اتحادیه اروپا روز پنج‌شنبه با اختصاص یک بسته حمایتی جدید به ارزش ۱۰۰ میلیون یورو (حدود ۱۱۶ میلیون دلار) برای ارتش لبنان موافقت کرد. اقدامی که با هدف تقویت نیروهای لبنان در شرایط آتش‌بس شکننده در آن کشورصورت گرفت.
+
+کایا کالاس، مسئول سیاست خارجی اتحادیه اروپا، در پیامی اعلام کرد که آتش‌بس اخیر میان اسرائیل و لبنان فرصتی برای جلوگیری از بازگشت درگیری‌های گسترده فراهم کرده است، اما کشته شدن یک نیروی صلحبان سازمان ملل و ادامه درگیری‌های پراکنده نشان می‌دهد این توافق همچنان بسیار شکننده است.
+
+او همچنین گفت: «بهترین راه برای کاهش تهدید ناشی از حزب‌الله، تقویت دولت لبنان، توانمندسازی نهادهای آن و بازگرداندن قدرت به دولت است.»
+
+این کمک جدید چهارمین بسته حمایتی اتحادیه اروپا برای ارتش لبنان در سال‌های اخیر محسوب می‌شود و مجموع کمک‌های ارائه‌شده را به ۱۸۲ میلیون یورو می‌رساند.
+
+در همین حال، اسرائیل به‌رغم اعلام آتش‌بس روز پنج‌شنبه بار دیگر حملاتی را در لبنان انجام داد.
+
+نیروهای یونیفیل هم اعلام کردند که در پی اصابت گلوله به یکی از پایگاه‌هایشان در جنوب لبنان، یک صلح‌بان کشته و دو نفر دیگر زخمی شده‌اند.
+https://bbc.in/4dS78uI
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391012
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391012_1780608520.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: شنیدم میخوای با آیت‌الله جدید(مجتبی خامنه‌ای) ملاقات کنی. ترامپ: نه من نمیخوام باهاش ملاقات کنم، ولی باعث افتخاره که باهاش دیدار داشته باشم؛ دوست دارم ببینم میتونیم آیا باهم یه قرار داد خوبی داشته باشیم یا نه، ولی اگه باهاشون قرارداد ببندیم، ممکنه…
+</div>
+
+## Dirty_Kids — post 391011
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391011_1780608522.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: شنیدم میخوای با آیت‌الله جدید(مجتبی خامنه‌ای) ملاقات کنی.
+
+ترامپ: نه من نمیخوام باهاش ملاقات کنم، ولی باعث افتخاره که باهاش دیدار داشته باشم؛
+
+دوست دارم ببینم میتونیم آیا باهم یه قرار داد خوبی داشته باشیم یا نه، ولی اگه باهاشون قرارداد ببندیم، ممکنه همو ببینیم حتی توآمریکا.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391010
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391010_1780608524.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این که قیصره و خواننده‌ی درجه ۴ هم حساب نمی‌شد و معلوم بود سرش تو کون آخونده
+اگر میا خلیفه هم بیارید اصلا تعجب نمی‌کنیم چون هرچی کونده و جنده‌ دوزاریه طرفدار آخونداس.
+*با احترام به تن‌فروشان شریف*
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391009
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391009_1780608525.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی رفتی فروشگاه و قیمت هارو می بینی و میخوای فحش بدی، ولی یادت میاد خودت رئیس جمهوری:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391008
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391008_1780608526.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان هوش‌مصنوعی‌بازم، این زیادی گوه‌خورد یه دستی به سرو روش بکشید صواب داره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391007
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391007_1780608527.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عکس این خانومی ترند یک توییتر شده و یه ایران روش کراش زدن:
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125187
+
+<div align="center">
+  <a href="telegram/content/alonews_125187_1780608527.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ ۲۵ بهمن ۱۴۰۴:
+میخوام با آیت الله علی خامنه ای دیدار کنم.
+
+
+🔴ترامپ ۱۴ خرداد ۱۴۰۵:
+میخوام با آیت الله مجتبی خامنه ای دیدار کنم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125186
+
+<div align="center">
+  <a href="telegram/content/alonews_125186_1780608528.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلد مارشال ، محسن رضایی: اگر اسرائیل به سمت جنوب بیروت می رفت، موشک باران را شروع می کردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125185
+
+<div align="center">
+  <a href="telegram/content/alonews_125185_1780608530.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایالات متحده رئیس‌جمهور کوبا، میگل دیاز-کانل و خانواده‌اش را تحریم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125184
+
+<div align="center">
+  <a href="telegram/content/alonews_125184_1780608530.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه منتشر کرد: عکس وزیر کشور پاکستان محسن نقوی در دیدار با وزیر کشور ایران در تهران، در چارچوب تلاش‌های اسلام‌آباد برای پیشبرد مذاکرات
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125183
+
+<div align="center">
+  <a href="telegram/content/alonews_125183_1780608530.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: باعث افتخارمه با آیت الله مجتبی خامنه ای دیدار داشته باشم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125182
+
+<div align="center">
+  <a href="telegram/content/alonews_125182_1780608530.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حجم قابل توجهی از ترابری های آمریکا در حال خروج از خاورمیانه و حرکت به سمت اروپا هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125181
+
+<div align="center">
+  <a href="telegram/content/alonews_125181_1780608531.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: جابجایی مواد هسته‌ای ایران مستلزم حضور یک یا دو هفته‌ای در منطقه درگیری بود، بنابراین ما این کار را انجام ندادیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125180
+
+<div align="center">
+  <a href="telegram/content/alonews_125180_1780608531.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار: آیا تحریم‌های شما علیه کوبا با هدف تسریع فروپاشی این کشور اعمال شده‌اند؟
+
+
+🔴دونالد ترامپ: نه. ما فقط می‌خواهیم کوبا کشوری باشد که به‌خوبی اداره شود و بتواند مردمش را تأمین کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125179
+
+<div align="center">
+  <a href="telegram/content/alonews_125179_1780608533.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ درباره مجتبی خامنه‌ای: او در برخی محافل شهرت بسیار خوبی دارد.
+
+
+🔴خیلی‌هاشون درباره من بد می‌گویند. البته این کاملاً نادرست است.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125178
+
+<div align="center">
+  <a href="telegram/content/alonews_125178_1780608534.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره کوبا: ما بعد از ایران به کوبا رسیدگی خواهیم کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125177
+
+<div align="center">
+  <a href="telegram/content/alonews_125177_1780608534.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما در جنگ یا از طریق مذاکره با ایران یا از طریق دیگری پیروز خواهیم شد، اما قطعاً پیروز خواهیم شد.
+
+
+🔴 مهمترین نکته توافق این است که تنگه هرمز فوراً باز خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125176
+
+<div align="center">
+  <a href="telegram/content/alonews_125176_1780608535.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در پاسخ به سؤالی درباره اعزام نیروهای نظامی برای تصاحب ذخایر اورانیوم ایران:
+
+
+🔴«من نمی‌خواهم جیمی کارتر باشم.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125175
+
+<div align="center">
+  <a href="telegram/content/alonews_125175_1780608535.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سؤال: آیا کشته شدن نیروهای آمریکایی، خط قرمز شما برای پایان دادن به آتش‌بس است؟
+
+
+🔴ترامپ: اگر آن‌ها کسی را بکشند؟
+
+
+🔴سؤال: نیروهای آمریکایی را.
+
+
+🔴ترامپ: منظورتان چیست؟
+
+
+🔴سوال: اینکه اگر نیروهای آمریکایی را بکشند، شما جنگ با ایران را از سر خواهید گرفت؟
+
+
+🔴ترامپ: خب، این می‌تواند دلیل خوبی باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125174
+
+<div align="center">
+  <a href="telegram/content/alonews_125174_1780608535.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما سایت‌های هسته‌ای ایران را از فضا رصد می‌کنیم و هرکس به آن‌ها نزدیک شود، همانطور که باید با آنها برخورد می‌کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125173
+
+<div align="center">
+  <a href="telegram/content/alonews_125173_1780608535.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: «من نمی‌خواهم با آیت‌الله ملاقات کنم، اما اگر با او ملاقات می‌کردم، برایم افتخار بود که با او دیدار کنم.
+با احترام رفتار می‌کردم.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125172
+
+<div align="center">
+  <a href="telegram/content/alonews_125172_1780608538.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 کریس رایت، وزیر انرژی ایالات متحده:
+سیاست‌های انرژی سبز دموکراتیک، قیمت انرژی را بسیار بیشتر از درگیری در ایران افزایش داده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125171
+
+<div align="center">
+  <a href="telegram/content/alonews_125171_1780608540.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: بایدن و اوباما ایران را به داشتن سلاح هسته‌ای ترغیب کردند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125170
+
+<div align="center">
+  <a href="telegram/content/alonews_125170_1780608540.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : روابط ما با ونزوئلا فوق‌العاده‌ست. کلی نفت، میلیون‌ها بشکه نفت از ونزوئلا خارج کردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125169
+
+<div align="center">
+  <a href="telegram/content/alonews_125169_1780608541.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: چند موشک در ایران باقی مانده است، اما بسیار کم.
+
+
+🔴مذاکرات با ایران خوب پیش می‌رود.
+
+
+🔴مسئله لبنان تا حدودی متفاوت است، اما به ایران مرتبط است.
+
+
+🔴آمریکا می‌تواند اورانیوم غنی‌شده ایران را با یا بدون توافق مصادره کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125168
+
+<div align="center">
+  <a href="telegram/content/alonews_125168_1780608541.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران: تمام ۱۵۹ کشتی آن‌ها در کف اقیانوس قرار دارند. ما در واقع از آن‌ها در آنجا عکس گرفتیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 23:19
 ---
 
