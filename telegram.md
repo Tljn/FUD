@@ -7,6 +7,652 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/17 01:23
+---
+
+## VahidOOnLine — post 244007
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244007_1780782790.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری رویترز به نقل از یک منبع آگاه، روز شنبه گزارش داد، ایالات متحده در نظر دارد دارایی‌های مسدود شده ایران را در اختیار متحدان خود در حاشیه خلیج فارس قرار دهد تا از آن برای «بازسازی و جبران خسارت‌های احتمالی آینده و همچنین صدمات گذشته ناشی از اقدامات ایران» استفاده شود. در همین راستا، این منبع اعلام کرده است که اسکات بسنت، وزیر خزانه‌داری آمریکا، به تیمی ماموریت داده تا میزان خسارت‌هایی را که تاکنون از سوی ایران به متحدان منطقه‌ای واشنگتن وارد شده است، برآورد و ارزیابی کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244006
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244006_1780782791.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز شنبه به نقل از یک منبع آگاه گزارش داد که آمریکا در حال بررسی تحویل دارایی‌های بلوکه شده ایران به کشورهای خلیج فارس برای بازسازی و جبران خسارات ناشی از حمله‌های جمهوری اسلامی است.
+این منبع افزود آمریکا همچنین استفاده از این دارایی‌ها برای جبران خسارت‌های گذشته را بررسی خواهد کرد. به گفته او، اسکات بسنت، وزیر خزانه‌داری آمریکا، به تیمی دستور داده است هزینه خسارت‌هایی را که پیش‌تر از سوی جمهوری اسلامی به کشورهای خلیج فارس وارد شده، ارزیابی کند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244005
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244005_1780782792.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فارس، خبرگزاری وابسته به سپاه، شنبه‌شب، تصاویری از وزیر کشور پاکستان در بدو ورود به ایران را منتشر کرد. محسن نقوی از تحویل پیام‌های کلیدی کشورش به رهبر جمهوری اسلامی خبر داد و گفت: «من در ایران هستم تا نامه ویژه‌ای را از طرف فرمانده ارتش و نخست‌وزیر پاکستان به مجتبی خامنه‌ای تحویل دهم».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244004
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ماموستا هیوا پالانی، امام جمعه الیاسی از توابع سرپل ذهاب، در واکنشی تند به بازتاب اخبار آسیب شدید دو دختربچه سنندجی، خواستار مداخله فوری دستگاه‌های ذی‌ربط برای تعیین تکلیف حضانت این کودکان شد. او با تقبیح شدید رفتار پدر و نامادری و اشاره به جزییات هولناک آزارها نظیر شکستن فک و سوزاندن پای بچه‌ها، بر لزوم بازگرداندن فوری حضانت به مادر تاکید کرد. این روحانی با «انسان‌نما» خواندن عاملان این جنایت خانگی، تصریح کرد که نباید از خطای این پدر و نامادری گذشت و مراجع قضایی باید آن‌ها را به «اشد مجازات» محکوم کنند.
+پیش از این، مادر نارین (۱۵ ساله) و آیلین (۷ ساله)، در گفتگوی اختصاصی با «هفت صبح» پرده از ماه‌ها اسارت و شکنجه پنهان فرزندانش در سرویس بهداشتی خانه برداشت. او با رد شایعات تجاوز، تایید کرد که همسر سابقش با شلنگ و لگد فک و پوست سر دختر بزرگتر را مجروح کرده و موهای او را فروریخته است. این مادر که پیش از این دو بار درخواست بی‌نتیجه برای حضانت داده بود، ضمن تقدیر از همسایگان و اورژانس اجتماعی برای مداخله به موقع، با قاطعیت خواستار اشد مجازات، شکنجه و اعدام همسر سابق و نامادری بچه‌ها شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244003
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244003_1780782795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکان‌نیوز در گزارشی با عنوان «انفجار قیمت مواد غذایی در یک سال» نوشت: بررسی‌ها از بازه اردیبهشت ۱۴۰۴ تا اردیبهشت سال جاری نشان می‌دهد که برخی اقلام اساسی با «جهش قیمتی بی‌سابقه‌ای» مواجه شده‌اند.
+
+بر اساس این گزارش، قیمت شماری از اقلام اساسی بیش از ۳۰۰ درصد افزایش یافته است. برای مثال، قیمت روغن نباتی در این مدت ۴۳۱ درصد افزایش یافته و روغن مایع نیز رشد ۳۵۳ درصدی را ثبت کرده است.
+
+همچنین قیمت تخم‌مرغ به عنوان یکی از اصلی‌ترین منابع پروتئین خانوارهای کم‌درآمد، ۳۴۲ درصد افزایش داشته است.
+
+قیمت مرغ نیز در همین بازه زمانی رشدی ۳۴۲.۹ درصدی را تجربه کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13656
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش صدای انفجار در حوالی سیریک🚨
+@withyashar
+</div>
+
+## WithYashar — post 13655
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از روی استوری تو اینستا وارد کامنت میشی کامنت دیده میشه ولی از پیج خود شاهزاده وارد میشی دیده نمیشه تقریبا هم ۶ هزارتا لایک خورده. من فکر کنم همه به ادمین پیج باید اعتراض کنن چون من خودم زیر یک پست دیگه اعتراض کردم اونم هیدن شد الان دوباره کامنت گذاشتم که…
+</div>
+
+## WithYashar — post 13654
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از روی استوری تو اینستا وارد کامنت میشی کامنت دیده میشه ولی از پیج خود شاهزاده وارد میشی دیده نمیشه تقریبا هم ۶ هزارتا لایک خورده.
+من فکر کنم همه به ادمین پیج باید اعتراض کنن چون من خودم زیر یک پست دیگه اعتراض کردم اونم هیدن شد
+الان دوباره کامنت گذاشتم که این جور ادمین بودن خودش دیکتاتوریه
+</div>
+
+## WithYashar — post 13653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز: ایالات متحده در حال بررسی راه‌هایی است تا دارایی‌های ایرانی را در اختیار متحدان خلیج فارس قرار دهد تا به تأمین مالی بازسازی و تعمیرات ناشی از حملات ایران کمک کند
+@withyashar
+</div>
+
+## WithYashar — post 13652
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13652_1780782796.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ در تروث شبیه آخر ویدیوی هست که پست کردم شبه حمله 😃
+@withyashar
+</div>
+
+## mwarmonitor — post 10233
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایالات متحده از ابزارهایی برای در دسترس قرار دادن دارایی‌های ایران جهت استفاده متحدانش در خلیج فارس برای حمایت از بازسازی و تعمیر خسارت‌های احتمالی آینده ناشی از ایران استفاده خواهد کرد.
+
+🔸وزیر خزانه‌داری آمریکا، بسنت، به تیم خود دستور داده است تا شرایط میان متحدان خلیج فارس را بررسی کرده و هزینه خسارات واردشده از سوی ایران را ارزیابی کنند.
+
+🔹آمریکا همچنین بررسی خواهد کرد که آیا دارایی‌های ایران می‌توانند برای تأمین هزینه‌های تعمیر خسارات گذشته مورد استفاده قرار گیرند یا خیر. رویترز
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342682
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342682_1780782797.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Todd Blanche is reacting to President Trump's decision to nominate him as attorney general after serving in the role on an acting basis since April.
+
+Blanche says he's focused on the Justice Department's work as the DOJ continues to pursue a series of high-profile investigations and arrests.
+
+If confirmed by the Senate, the former Trump defense attorney would officially become the nation's top law enforcement official.
+</div>
+
+## FoxNewsTwitter — post 342681
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342681_1780782798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Todd Blanche is reacting to President Trump's decision to nominate him as attorney general after serving in the role on an acting basis since April.
+
+Blanche says he's focused on the Justice Department's work as the DOJ continues to pursue a series of high-profile investigations and arrests.
+
+If confirmed by the Senate, the former Trump defense attorney would officially become the nation's top law enforcement official.
+</div>
+
+## pm_afshaa — post 92417
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پروکسی پر سرعت مخصوص دانلود
+
+https://t.me/proxy?server=116.202.35.160&port=25565&secret=FgMBAgABAAH8AxOG4kw63Q
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92416
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92416_1780782799.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفیر ایران در مکزیک:
+تیم ملی فوتبال ایران اطلاع یافته‌ که باید در همان روز مسابقه وارد خاک آمریکا بشه و پس از پایان بازی، از خاک آمریکا خارج بشه و به مکزیک برگرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92415
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92415_1780782800.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز: آمریکا اقداماتی رو برای آزادسازی دارایی‌های ایران و انتقال آن‌ به متحدانش در خلیج فارس انجام خواهد داد تا پس از خسارات احتمالی وارد شده به ایران، این منابع صرف بازسازی و ترمیم بشن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92414
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92414_1780782801.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمدجواد لاریجانی: مردم بدونن که به هیچ وجه برنامه هسته‌ای رو رها نمی‌کنیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## iaghapour — post 2659
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2659_1780782802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ نصب خودکار داکر روی سرورهای ایران
+
+اگر روی سرورهای داخل ایران داکر نصب می‌کنید، حتماً می‌دانید که به خاطر تحریم‌ها و اختلالات شبکه، باز کردن مخازن داکر و دانلود ایمیج‌ها مکافات است. این اسکریپت متن‌باز و امن، کل فرآیند نصب داکر را خودکار کرده و در انتها به شما اجازه می‌دهد از بین ۶ میرور ایرانی (ابرآروان، داکر آی‌آر، لیارا و...) بهترین را برای رفع تحریم انتخاب کنید.
+
+
+💻 روش اجرا: کد زیر رو کپی کنید و در سرور اجرا کنید:
+
+curl -fsSL https://gist.githubusercontent.com/ShahinDadashpour/35892443c09d582e53b36d09fb5a5df6/raw/install-docker.sh | sudo bash
+
+
+🔗 لینک سورس کد در گیت‌هاب جهت بررسی
+
+
+🆔 @iAghapour
+</div>
+
+## VahidOnline — post 75976
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75976_1780782803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از منبعی آگاه گزارش داد که آمریکا در حال بررسی تحویل دارایی‌های بلوکه شده ایران به کشورهای خلیج فارس جهت بازسازی و جبران خسارات ناشی از حملات جمهوری اسلامی است
+
+رویترز خبر داد که وزیر خزانه‌داری آمریکا به تیم خود دستور داده خسارات واردشده به کشورهای خلیج‌فارس در حملات جمهوری اسلامی را بررسی کنند
+
+رویترز به نقل از یک منبع آگاه خبر داد که آمریکا دارایی‌های ایران را برای حمایت از بازسازی و جبران خسارات آینده ناشی از حملات جمهوری اسلامی را در اختیار کشورهای خلیج فارس قرار خواهد داد
+
+رویترز به نقل از این منبع نوشت که آمریکا همچنین بررسی خواهد کرد که آیا می‌توان از دارایی‌های ایران برای جبران خسارات گذشته نیز استفاده کرد یا نه
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340888
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340888_1780782803.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «زمان به نفع جمهوری اسلامی نمی‌گذرد؛ هرچه تصمیم‌گیری درباره توافق بیشتر به تعویق بیفتد، هزینه‌ها برای جمهوری اسلامی سنگین‌تر می‌شود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340887
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340887_1780782805.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز شنبه به نقل از یک منبع آگاه گزارش داد که آمریکا در حال بررسی تحویل دارایی‌های بلوکه شده ایران به کشورهای خلیج فارس برای بازسازی و جبران خسارات ناشی از حمله‌های جمهوری اسلامی است.
+این منبع افزود آمریکا همچنین استفاده از این دارایی‌ها برای جبران خسارت‌های گذشته را بررسی خواهد کرد. به گفته او، اسکات بسنت، وزیر خزانه‌داری آمریکا، به تیمی دستور داده است هزینه خسارت‌هایی را که پیش‌تر از سوی جمهوری اسلامی به کشورهای خلیج فارس وارد شده، ارزیابی کند.
+
+https://iranintl.com/202606066591
+</div>
+
+## IranIntlTV — post 340886
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340886_1780782806.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با صدور هشداری فوری از ساکنان چند شهر و روستا در جنوب لبنان خواست خانه‌های خود را ترک کنند. این ارتش اعلام کرد این اقدام در پی نقض آتش‌بس از سوی حزب‌الله و ادامه فعالیت‌های نظامی این گروه صورت گرفته است.
+
+گفت‌وگو با منشه امیر، کارشناس امور خاورمیانه
+@iranintltv
+</div>
+
+## IranIntlTV — post 340885
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340885_1780782809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکان‌نیوز در گزارشی با عنوان «انفجار قیمت مواد غذایی در یک سال» نوشت: بررسی‌ها از بازه اردیبهشت ۱۴۰۴ تا اردیبهشت سال جاری نشان می‌دهد که برخی اقلام اساسی با «جهش قیمتی بی‌سابقه‌ای» مواجه شده‌اند.
+
+بر اساس این گزارش، قیمت شماری از اقلام اساسی بیش از ۳۰۰ درصد افزایش یافته است. برای مثال، قیمت روغن نباتی در این مدت ۴۳۱ درصد افزایش یافته و روغن مایع نیز رشد ۳۵۳ درصدی را ثبت کرده است.
+
+همچنین قیمت تخم‌مرغ به عنوان یکی از اصلی‌ترین منابع پروتئین خانوارهای کم‌درآمد، ۳۴۲ درصد افزایش داشته است.
+
+قیمت مرغ نیز در همین بازه زمانی رشدی ۳۴۲.۹ درصدی را تجربه کرده است.
+https://iranintl.com/202606068705
+</div>
+
+## FarsiVOA — post 219813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺احتمال استفاده از دارایی‌های ایران برای تامین پول بازسازی خسارات حملات جمهوری اسلامی به کشورهای جنوب خلیج فارس
+
+▪️خبرگزاری رویترز به نقل از یک «منبع آگاه» گزارش داد که ایالات متحده از ابزارهایی استفاده خواهد کرد تا هزینه تعمیر و بازسازی خسارات آینده ناشی از حملات احتمالی جمهوری اسلامی به متحدان آمریکا در خلیج فارس، با دارایی‌های جمهوری اسلامی ایران تامین شود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158027.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219812
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219812_1780782810.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️یک مقام ارشد موساد که سال ۲۰۲۵ بازنشسته شد می‌گوید با اینکه نقشه اسرائيل برای سرنگونی جمهوری اسلامی پس از تصمیم ایالات متحده برای آتش‌بس تمام مراحل خود را پیگیری نکرد، همچنان جمهوری اسلامی را می‌توان سرنگون کرد.
+
+به گزارش تایمز اسرائيل، این مقام که «الف» معرفی شد، به کانال ۱۲ اسرائیل گفت طرح موساد چند مرحله‌ای است و ابراز امیدواری کرد که در مقطعی، اجازه اجرای عملیاتی مراحل بعدی آن داده شود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219811
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219811_1780782810.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرنامه امیرکبیر اعلام کرد دانشجویان و دانش‌آموختگان دانشگاه یزد ضمن اعتراض به تداوم بازداشت ایلیا بخشایی، آزادی فوری او را خواستار شدند. ایلیا بخشایی، دانشجوی رشته علوم ورزشی و ورودی سال ۱۴۰۱ دانشگاه یزد، در جریان اعتراضات سراسری ۱۴۰۴ در تهران بازداشت شد و هم اکنون نیز در بازداشت به سر می‌برد.
+دانشجویان و دانش‌آموختگان دانشگاه یزد همچنین حکومت جمهوری اسلامی را مسئول «مستقیم و آگاهانه» کشتار مردم و دانشجویان و «قاتل همکلاسی‌های خود» دانستند و تاکید کردند «حکومتی که به دانشجویان شلیک می‌کند، فاقد هرگونه مشروعیت برای ادامه حکمرانی» است.
+
+این دانشجویان گفتند که «داغدار و اندوه دیده» از کشته شدن دانشجویان معترض هستند و یاد جان‌باختگان اعتراضات دی‌ماه ۱۴۰۴، مصطفی سرافراز، متین رنجکش، گلناز شریفی و رضا ریزوندی را گرامی می‌دارند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned an audio file
+</div>
+
+## FarsiVOA — post 219809
+
+<div align="center">
+  <a href="https://t.me/farsivoa/219809" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴📢‌ پادکست خبری شنبه ۱۷خرداد ۱۴۰۵
+
+🛜در صورتی که با مشکل اینترنت مواجه هستید میتوانید اخبار صدای آمریکا را از نسخه‌های پادکست خبری ما روزانه دنبال کنید و یا اخبار را از نسخه سبک وب‌سایت ما پیگیر باشید:
+https://ir.voanews.com/lite
+
+📡بروزترین فرکانسهای ماهواره‌ای را نیز میتوانید از صفحه زیر پیگیری کنید:
+https://ir.voanews.com/satellite
+
+🔔دیگر شبکه‌های اجتماعی ما را هم دنبال کنید:
+https://linktr.ee/voafarsi
+
+
+
+ما را به اشتراک بگذارید
+@farsivoa
+</div>
+
+## FarsiVOA — post 219808
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مراسم هشتادودومین سالگرد عملیات نورماندی
+@FarsiVOA
+</div>
+
+## RadioFarda — post 157985
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157985" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرهای نیمه‌شب با رادیوفردا، ۱۷ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21527
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفیر جمهوری اسلامی در مکزیک اعلام کرد:
+
+تیم فوتبال جمهوری اسلامی ایران اطلاع یافته که باید در همان روز مسابقه وارد خاک آمریکا بشود و پس از پایان بازی، از خاک آمریکا خارج و به مکزیک برگردد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21526
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21526_1780782812.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بس کن مردک
+
+چرا زنش نمیزنه تو سرش بگه اینکارارو نکن؟
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283004
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283004_1780782813.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک عضو هیئت رئیسه مجلس ایران گفته است که «قانونگذاری» درباره تنگه هرمز در «صلاحیت مجلس» است.
+
+علیرضا سلیمی گفت که «تنگه هرمز بخشی از قلمرو حاکمیتی ایران» محسوب می‌شود و در زمره «آب‌های آزاد قرار ندارد»؛ بنابراین وضع هرگونه قانون و مقررات در این محدوده، تنها در «صلاحیت مجلس» است.
+
+او در واکنش به برخی انتقادها درباره صلاحیت مجلس برای قانون‌گذاری درباره تنگه هرمز گفت: «ای کاش برخی به جای تخریب و توهین، با مطالعه سخن گویند تا دچار چنین اشتباهاتی نشوند.»
+
+این عضو هیأت رئیسه مجلس افزود هدف مجلس این است که «چارچوب اعمال حاکمیت ایران بر این آبراه راهبردی را در قالب قانون مشخص و مدون کند.»
+
+آقای سلیمی همچنین با اشاره به این که نحوه بررسی این طرح در مجلس، اعم از عادی یا فوری بودن آن، موضوعی جداگانه است، گفت اما «زیر سؤال بردن اصل حق قانون‌گذاری مجلس درباره تنگه هرمز، رویکردی منصفانه نیست.»
+
+ایران از زمان شروع جنگ در ۲۸ فوریه (نهم اسفند ۱۴۰۴) تنگه هرمز را به روی عبور و مرور کشتی ها بسته است.
+📸GettyImages
+https://bbc.in/4fqL9vW
+@BBCPersian
+</div>
+
+## BBCPersian — post 283003
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283003_1780782813.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رئیس مرکز امور بین‌الملل وزارت نیرو از آمادگی روسیه برای همکاری در بازسازی زیرساخت‌های آسیب‌دیده ایران در جنگ خبر داد.
+
+محمدولی علاءالدینی گفت: «به دنبال وارد آمدن خسارت به زیرساخت‌های حیاتی کشور در جریان این جنگ، مارشاوین، معاون وزیر انرژی روسیه، آمادگی کشورش را برای مشارکت در بازسازی این زیرساخت‌ها اعلام کرده است.»
+
+او گفت که با توجه به توان فنی و ظرفیت بالای شرکت‌های روسیه در حوزه انرژی و برق، اعلام آمادگی مسکو برای مشارکت در بازسازی و نوسازی زیرساخت‌های آسیب‌دیده و تأمین تجهیزات مورد نیاز حائز اهمیت است.
+
+آقای علاءالدینی ابراز امیدواری کرد که این همکاری‌ها بتواند زمینه‌ساز تقویت و گسترش همکاری‌های فنی و اجرایی دو کشور در حوزه‌های آب و برق شود.
+
+📸Anadolu via Getty Images
+https://bbc.in/4fvggqm
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عکسای امروز آنا د آرمس مخصوص فوت فتیشا
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391173
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391173_1780782814.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمویم قیصر!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391172
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391172_1780782815.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 محسن عراقی، خواننده حکومتی، خطاب به جمهوری اسلامی:
+
+تو رستم تهمتنی چرا دیگه نمیزنی؟
+تو شیر پیل افکنی چرا دیگه نمیزنی؟
+برنده‌ی صد درصدی، چرا دیگه نمیزنی؟
+خدایی تویی که انقدره خوب میزدی، چرا دیگه نمیزنی؟
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توو پاکستان اعتراضات شده و دولتِ پاکستان اینترنت رو تقریباً کامل قطع کرده.
+بعد این برای ما فاز شخصیت و حقوق بشر گرفته بود از طرفین می‌خواست خویشتن‌داری کنن.
+برو خدا روزیتو جای دیگه بده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391170
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391170_1780782818.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپهر خلسه ؛ من رپر حکومتی نیستم من عاشق شاهزاده ام
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391168
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخبه … 😂😂😂😂😂😂😂 صدف طاهریان 😂😂😂😂😂😂😂
+
+عکس هم تزئینیه. اصلا هم ما نفهمیدیم داره چه اتفاقی میوفته.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391167
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391167_1780782818.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توی فروشگاه اسنپ دارن شورت پروتز جلو زنونه میفروشن تا ناحیه تناسلی خانما برجسته تر به نظر بیاد!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391166
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391166_1780782819.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرکوتاه بود و دردناک:
+
+طبق کشف جدید دانشمندا، پرنده‌ها هم جق میزنن!
+
+
+@Dirty_Kids 👻
+euronews persian
+</div>
+
+## Dirty_Kids — post 391165
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/391165" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📎 Document
+</div>
+
+## Dirty_Kids — post 391163
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391163_1780782820.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایرانیِ بی‌درد، اگه نمی‌دونی بدون؛ اون چالش مزخرف روسیِ کون نشون دادن دیگه تموم شده؛
+
+الان این ریمیکس آهنگ ترکی (Ta Ki Seni Görene Kadar) مثل خوره افتاده به جون فضای مجازی، مخصوصاً اینستاگرام، ملت هم با این آهنگ از خودشون، بدنشون، ماشینشون و هر چیز دیگه‌ای فیلم می‌گیرن و پست می‌کنن :
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125662
+
+<div align="center">
+  <a href="telegram/content/alonews_125662_1780782822.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کنعانی: حاضریم تو زمین بمیریم اما پرچم جمهوری اسلامی بالا باشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125661
+
+<div align="center">
+  <a href="telegram/content/alonews_125661_1780782822.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آخوند، اسماعیل رمضانی : بالاخره یه جایی باید مشخص بشه تا کِی می‌خوایم مذاکره کنیم
+و باید چه اتفاقی بیفتهِ که بعد بگیم دیگه مذاکره فایده‌ای نداره و ادامه نمی‌دیم؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125660
+
+<div align="center">
+  <a href="telegram/content/alonews_125660_1780782825.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈درپی درگیری میان پنج دوست صمیمی در ورامین بخاطر یک دختر، چهار نفر از آنها به قتل رسیدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125659
+
+<div align="center">
+  <a href="telegram/content/alonews_125659_1780782825.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به انتشار پست های عجیب با هوش مصنوعی ادامه میدهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125658
+
+<div align="center">
+  <a href="telegram/content/alonews_125658_1780782826.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ثبت ۵۰۰ مورد ابتلا به ابولا در آفریقا!
+
+
+🔴سازمان بهداشت جهانی در بحبوحه نگرانی‌های فزاینده در مورد گسترش بیماری همه‌گیر گزارش داد که تاکنون نزدیک به ۵۰۰ مورد ابتلا به ابولا در منطقه مرکزی آفریقا تأیید شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/17 00:08
 ---
 
