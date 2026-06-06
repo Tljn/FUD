@@ -7,6 +7,1003 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 15:48
+---
+
+## VahidOOnLine — post 243947
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243947_1780748293.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان استان فارس همزمان با سایر استان‌ها مقابل اداره‌کل آموزش و پرورش در شیراز تجمع کرده و خواستار لغو امتحانات حضوری و تاثیر معدل پایه یازدهم در کنکور شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ موزه نور و روشنایی یزد؛
+جایی که نور، تاریخ و هنر در قلب کویر به هم می‌رسند
+
+♦️موزه نور و روشنایی یزد، یکی از متفاوت‌ترین موزه‌های تخصصی ایران، با نگاهی فراتر از نمایش ابزارهای روشنایی، روایتگر جایگاه نور در فرهنگ، هنر و تمدن ایرانی است.
+در بخش‌های مختلف این موزه، بیش از ۲۵۰ اثر تاریخی شامل چراغ‌های سنتی، ابزارهای روشنایی، آینه‌های تاریخی، اشیای مرتبط با انعکاس نور و آثار هنری از دوره‌های مختلف تاریخی به نمایش درآمده است. بازدیدکنندگان در کنار آشنایی با سیر تحول شیوه‌های روشنایی، با مفاهیم فرهنگی و هنری مرتبط با نور در معماری، آیین‌ها و زندگی ایرانیان نیز آشنا می‌شوند.
+طراحی داخلی موزه نیز بر پایه بازی نور، آینه و جلوه‌های بصری شکل گرفته و فضایی تعاملی ایجاد کرده است که تجربه بازدید را از یک موزه تاریخی فراتر می‌برد و آن را به سفری حسی و هنری تبدیل می‌کند. بسیاری از آثار و فضاهای موزه با الهام از نقش نور در معماری ایرانی و هنر آینه‌کاری طراحی شده‌اند و بازتابی از پیوند دیرینه نور با فرهنگ این سرزمین هستند.
+این تصاویر را مجید دهقانی‌زاده ثبت کرده و در خبرگزاری مهر منتشر شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243945
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243945_1780748296.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان در استان لرستان روز شنبه همزمان با سایر استان‌ها مقابل اداره‌کل آموزش و پرورش استان تجمع کرده و به شیوه برگزاری امتحانات و تاثیر معدل در کنکور اعتراض کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243944
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243944_1780748299.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با گسترش سراسری اعتراضات دانش‌آموزی، محصلان استان خراسان رضوی روز شنبه ۱۶ خرداد در مشهد با تجمع مقابل اداره‌کل آموزش و پرورش علیه تاثیر معدل پایه یازدهم در کنکور و شیوه برگزار کلاس‌ها و امتحانات اعتراض کردند. آن‌ها خواستار استعفای دبیر شورای عالی انقلاب فرهنگی شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243943
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243943_1780748301.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️انتقادهای تند ژوزف عون، رئیس‌جمهوری لبنان از تهران و حزب‌الله، در روز شنبه ۱۶ خرداد ماه با واکنش مقام‌های وزارت امورخارجه جمهوری اسلامی در شبکه‌های اجتماعی مواجه شده است.
+عباس عراقچی، وزیر امور خارجه ایران، پیش‌تر در واکنش به اظهارات عون در شبکه اجتماعی ایکس نوشته بود: «اگر لبنان ابزار معامله ایران بود، مدت‌ها پیش به توافق رسیده بودیم» و از رئیس‌جمهوری لبنان خواسته بود «لبنان را از دشمن واقعی‌اش نجات دهد».
+ساعاتی بعد نیز اسماعیل بقایی، سخنگوی وزارت امور خارجه ایران، در پیامی به لهجه لبنانی نوشت: «بیبیع اللی واقف حدّو، وبیشتری اللی واقف ضدّو»؛ عبارتی که به معنای «کسی که کنار او ایستاده را می‌فروشد و کسی که مقابل او ایستاده را می‌خرد» است.
+عون در گفتگویی با شبکه سی‌ان‌ان، ایران را متهم کرده بود که از لبنان به عنوان «برگ چانه‌زنی» در مذاکرات و منازعات خود با آمریکا و اسرائیل استفاده می‌کند و گفته بود مردم لبنان بهای این سیاست‌ها را می‌پردازند.
+رئیس‌جمهوری لبنان همچنین خطاب به ایران و سپاه پاسداران گفته بود: «این کشور، کشور ماست نه کشور شما» و تاکید کرده بود که لبنانی‌ها از جنگ خسته شده‌اند و خواهان زندگی در صلح و ثبات هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243942
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243942_1780748302.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان شیروان در استان خراسان شمالی همزمان با سایر استان‌ها به اعتراضات سراسری دانش‌آموزی علیه سیاست‌های کنکوری و آموزشی حکومت در زمینه تاثیر معدل و شیوه برگزاری امتحانات پیوستند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13624
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزرای کشور کشورهای عضو شورای همکاری خلیج فارس (GCC) جلسه اضطراری تشکیل می‌دهند.
+@withyashar
+</div>
+
+## WithYashar — post 13623
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیرعامل آسیاتک: اینترنت دیتاسنترها همچنان قطع است
+
+مدیرعامل شرکت آسیاتک، با اشاره به تداوم مشکلات دسترسی به شبکه در بخش‌های تخصصی، اعلام کرد که برخلاف برخی اظهارنظرها مبنی بر بازگشت وضعیت اینترنت بین‌الملل به شرایط پیش از دی‌ماه سال گذشته، دسترسی مشتریان مراکز داده (دیتاسنترها) همچنان برقرار نشده و کسب‌وکارهای اینترنتی کماکان با چالش مواجه‌اند.
+@withyashar
+</div>
+
+## mwarmonitor — post 10214
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10214_1780748305.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ناو USS Boxer (LHD-4) و یگان واحد اعزامی تفنگداران دریایی (11th MEU) عملیات‌های معمول خود را در دریای چین جنوبی انجام می‌دهند.
+
+🔹آمادگی بی‌رقیب در ناوگان هفتم نیروی دریایی آمریکا موجب بازدارندگی از تجاوز و حفظ ثبات حیاتی منطقه‌ای می‌شود. فرماندهی ناوگان هفتم نیروی دریایی ایالات متحده
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10213
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨منابع العربیه می‌گویند گفت‌وگوها درباره پرونده هسته‌ای وارد مرحله‌ای پیشرفته شده و ایران خواستار سه ماه مذاکره درباره جزئیات این پرونده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10212
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایالات متحده با فروش ۱.۵ میلیارد دلاری پنج فروند بالگرد دریایی سی‌هاوک (Seahawk) به نیوزیلند موافقت کرد. نیوزیلند که متعهد شده است هزینه‌های نظامی خود را تقریباً دو برابر کند، این اقدام را در راستای تقویت توانمندی‌های دفاعی خود انجام می‌دهد. — به نقل از رویترز
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342672
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342672_1780748306.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+HONORING OUR HEROES: Today marks the 82nd anniversary of the D-Day landings — a pivotal moment in World War II, when tens of thousands of Allied soldiers stormed the French coastline to liberate an imprisoned Europe.
+
+“Thousands of brave Americans advanced into chaos to save civilization,” said U.S. Ambassador to NATO Matthew Whitaker in a message honoring those brave Americans. “We stand forever grateful for these heroes.”
+</div>
+
+## pm_afshaa — post 92381
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92381_1780748306.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴العربیه: گفت‌وگوها درباره پرونده هسته‌ای وارد مرحله‌ای پیشرفته شده و ایران خواستار سه ماه مذاکره درباره جزئیات این پرونده‌ست.
+
+الحدث: جمهوری اسلامی خواستار مذاکرات سه‌ماهه درباره جزئیات پرونده هسته‌ایه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92380
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92380_1780748307.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الحدث به نقل از منابع ارشد پاکستانی:
+وزیر کشور پاکستان پس از دیدار با نخست‌وزیر شهباز شریف و مقامات ارشد، امروز عازم تهران خواهد شد
+
+نخست‌وزیر پاکستان دستورات ویژه‌ای به وزیر کشور خود درباره مذاکرات بین ایران و آمریکا داده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92379
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الجزیره: وزیر کشور پاکستان در سفر به ایران حامل پیامی برای رهبر ایران خواهد بود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5388
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5388_1780748308.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎤 بن‌بست در مذاکرات اتمی؛
+
+گفت‌وگو با منشه امیر، تحللیگر سیاسی
+
+#چالش #مذاکرات
+@DEJradio
+</div>
+
+## IranIntlTV — post 340807
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340807_1780748311.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان استان فارس همزمان با سایر استان‌ها مقابل اداره‌کل آموزش و پرورش در شیراز تجمع کرده و خواستار لغو امتحانات حضوری و تاثیر معدل پایه یازدهم در کنکور شدند.
+</div>
+
+## IranIntlTV — post 340806
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340806_1780748313.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دانش‌آموزان شنبه در شهرهای مختلف ایران در اعتراض به سیاست‌های آموزشی حکومت، از جمله تاثیر معدل در کنکور و شیوه برگزاری امتحانات، تجمع کردند.
+
+علی شیرازی، عضو تحریریه ایران‌اینترنشنال، گفت: «جمهوری اسلامی باید بداند که نمی‌تواند این نسل را سرکوب کند.» او افزود: «این نسل تا زمانی که حق خود را از حکومت نگیرد، از پا نخواهد نشست.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340805
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340805_1780748316.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان در استان لرستان روز شنبه همزمان با سایر استان‌ها مقابل اداره‌کل آموزش و پرورش استان تجمع کرده و به شیوه برگزاری امتحانات و تاثیر معدل در کنکور اعتراض کردند.
+</div>
+
+## IranIntlTV — post 340804
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340804_1780748318.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با گسترش سراسری اعتراضات دانش‌آموزی، محصلان استان خراسان رضوی روز شنبه ۱۶ خرداد در مشهد با تجمع مقابل اداره‌کل آموزش و پرورش علیه تاثیر معدل پایه یازدهم در کنکور و شیوه برگزار کلاس‌ها و امتحانات اعتراض کردند. آن‌ها خواستار استعفای دبیر شورای عالی انقلاب فرهنگی شدند.
+</div>
+
+## IranIntlTV — post 340803
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340803_1780748321.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مروری بر روزنامه‌های ایران، شنبه ۱۶ خرداد، با مجتبی هاشمی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 340802
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340802_1780748323.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد دانش‌آموزان شیروان در استان خراسان شمالی همزمان با سایر استان‌ها به اعتراضات سراسری دانش‌آموزی علیه سیاست‌های کنکوری و آموزشی حکومت در زمینه تاثیر معدل و شیوه برگزاری امتحانات پیوستند.
+</div>
+
+## Shin_Persian — post 6568
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6568_1780748325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 06 Jun 2026 12:01:57 UTC
+
+Kuwait Ministry of Defence spokesperson reports armed forces intercepted 7 hostile ballistic missiles over residential areas at dawn.
+
+Falling debris reported.
+
+#Kuwait 🇰🇼
+
+Source: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2063229863570321552
+
+فارسی
+
+سخنگوی وزارت دفاع کویت گزارش داد که نیروهای مسلح این کشور سحرگاه امروز ۷ موشک بالستیک متخاصم را برفراز مناطق مسکونی رهگیری کرده‌اند.
+
+سقوط قطعات موشک گزارش شده است.
+
+#Kuwait 🇰🇼
+
+منبع: @KuwaitArmyGHQ
+https://x.com/KuwaitArmyGHQ/status/2063229863570321552
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6566
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6566_1780748326.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 06 Jun 2026 11:22:13 UTC
+
+Feb 28, 2026 (First day of the war)
+12:00 local time (0830Z)
+Tomahawk heading east towards Tehran
+Camera Coords: 35.68082, 51.24632
+Tehran Province, #Iran
+
+فارسی
+
+۲۸ فوریه ۲۰۲۶ (روز اول جنگ)
+ساعت ۱۲:۰۰ به وقت محلی (۰۸۳۰Z (۱۲:۰۰ به وقت تهران))
+تاماهاوک در حال حرکت به سمت شرق به سوی تهران
+مختصات دوربین: 35.68082, 51.24632
+استان تهران، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6565
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Faytuks Network ✓ @FaytuksNetwork
+Sat, 06 Jun 2026 10:54:23 UTC
+
+Saudi Arabia condemns “Iranian aggressions” against Kuwait and Bahrain
+
+فارسی
+
+عربستان سعودی «تجاوزات ایران» علیه کویت و بحرین را محکوم کرد
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219756
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219756_1780748329.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شعار اعتراضی دانش‌آموزان در اراک: «مسئول بی‌لیاقت، استعفا، استعفا»؛
+در ادامه اعتراضات سراسری دانش‌آموزان، صدها دانش‌آموز در شهرهای مختلف روز ‌شنبه ۱۶ خرداد با تجمع مقابل ساختمان آموزش و پرورش استان‌ها به تغییر قوانین کنکور، افزایش تأثیر معدل و پیامدهای جنگ بر آمادگی برای آزمون سراسری اعتراض کردند.
+</div>
+
+## FarsiVOA — post 219755
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219755_1780748331.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دانش‌آموزان معترض در یاسوج: «دانش‌آموز می‌میرد، ذلت نمی‌پذیرد»
+
+در ادامه اعتراضات سراسری دانش‌آموزان، صدها دانش‌آموز روز ‌شنبه ۱۶ خرداد با تجمع مقابل ساختمان آموزش و پرورش به تغییر قوانین کنکور، افزایش تأثیر معدل و پیامدهای جنگ بر آمادگی برای آزمون سراسری اعتراض کردند.
+</div>
+
+## FarsiVOA — post 219754
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219754_1780748334.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه اعتراضات سراسری دانش‌آموزان، محصلان در تهران شنبه ۱۶ خرداد در اعتراض به افزایش تاثیر معدل در کنکور و نحوه برگزاری آزمون‌ها مقابل شورای عالی انقلاب فرهنگی تجمع کردند و شعارهای اعتراضی سردادند.
+</div>
+
+## FarsiVOA — post 219753
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219753_1780748336.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اجلاس رهبران شرکت‌های هواپیمایی جهان روز شنبه در میانه بحران انرژی و تورم ناشی از انسداد تنگه هرمز توسط جمهوری اسلامی آغاز شد.
+
+اجلاس مجمع بین‌المللی حمل و نقل هوایی که ۳۷۰ شرکت هواپیمایی با سهمی ۸۵ درصدی در ترافیک هوایی جهان عضو آن هستند، در حالی برگزار می‌شود که این نهاد بین‌المللی قبل از جنگ خاورمیانه سود خالص ۴۱ میلیارد دلاری برای صنعت هوایی در سال جاری پیش‌بینی کرده بود.
+
+با این حال جهش چشمگیر قیمت سوخت هواپیما،به همراه افزایش هزینه‌های نگهداری و تعمیر هواپیماها به سود شرکتها سایه انداخته است. حتی در آمریکا که صادرکننده خالص نفت و محصولات نفتی است، قیمت بلیت هواپیما اخیراً بیش از یک سوم نسبت به پارسال جهش داشته است.
+
+هرچند شرکت‌های هواپیمایی می‌توانند بخشی از افزایش هزینه سوخت را از طریق افزایش نرخ بلیت جبران کنند، اما این اقدام ممکن است مسافران با بودجه محدودتر را از پرواز هوایی منصرف کند.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 قاضی فدرال سیاست مهاجرتی ترامپ علیه ۳۹ کشور را متوقف کرد
+
+یک قاضی فدرال در آمریکا مجموعه‌ای از سیاست‌های مهاجرتی دولت دونالد ترامپ، رئیس جمهور ایالات متحده، را که شهروندان ۳۹ کشور را هدف قرار داده بود، غیرقانونی اعلام کرد؛ سیاست‌هایی که به موجب آنها رسیدگی به درخواست‌های پناهندگی، مجوز کار، گرین‌کارت و تابعیت هزاران مهاجر عملاً متوقف شده بود.
+
+جان مک‌کانل، قاضی ارشد دادگاه فدرال در شهر پراویدنس ایالت رود آیلند، روز جمعه ۵ ژوئن (۱۵ خرداد) به وقت محلی حکم داد که اداره خدمات شهروندی و مهاجرت آمریکا (USCIS) با اتخاذ این سیاست‌ها از حدود اختیارات قانونی خود فراتر رفته است.
+
+اداره خدمات شهروندی و مهاجرت که زیرمجموعه وزارت امنیت داخلی آمریکا به شمار می‌رود، از ماه نوامبر مجموعه‌ای از محدودیت‌ها را علیه متقاضیان مهاجرت از ۳۹ کشور آفریقایی، آسیایی، خاورمیانه‌ای و آمریکای لاتین به اجرا گذاشته بود.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125560
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 زخم‌های عمیق بر تنِ ایران؛ بازخوانی مستند ۳۹ روز ویرانی و آوارگی
+
+🔺 گزارشی از الینا فرهادی
+
+تصویری از گورهای دانش‌آموزان کشته‌شده مدرسه میناب. صبح شنبه ۹ اسفند ۱۴۰۴، موشکی ساختمان دبستان دخترانه شجره طیبه را در هم کوبید و کلاس‌های درس و حیاط پرنشاط کودکان به تلی از آوار، دود سیاه و فریاد تبدیل شد. طبق آمار رسمی، این حمله ۱۶۸ کشته و ۹۶ زخمی برجای گذاشت که بیش از صد تن از قربانیان، دانش‌آموزان بی‌گناه و معلمان آن‌ها بودند؛ فاجعه‌ای تلخ که زنگ مدرسه را برای همیشه با صدای مرگ خاموش کرد.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125559
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125559_1780748337.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 گزارش پولیتیکو از احتمال لغو توافق موشکی آمریکا و آلمان به دلیل جنگ با ایران
+
+جنگ ایران پیامدهای نظامی برای آلمان به همراه داشته است. ایالات متحده به دلیل کاهش ذخایر موشکی و کمبود مهمات در جنگ با ایران، "توافق ارسال موشک تاماهوک به آلمان" را لغو کرده است.
+
+پایگاه خبری "پولیتیکو" روز شنبه ۱۶ خرداد (۶ ژوئن) خبر داد دونالد ترامپ، رئيس‌جمهور آمریکا قصد دارد ارسال برنامه‌ریزی‌شده موشک‌های کروز "تاماهاوک" به آلمان را متوقف کند.
+
+الکسوس گرینکویچ، ژنرال نیروی هوایی ایالات متحده هم پیش‌تر اعلام کرده بود که ایالات متحده درصدد است ارسال نیروهای خود را در اروپا کاهش دهد و در مناطق دیگر بازآرایی کند.
+
+عدم استقرار موشک‌های تاماهوک در آلمان در تضاد با توافقی است که اولاف شولتس، صدراعظم سابق آلمان، با جو بایدن، رئیس‌جمهور وقت آمریکا، در سال ۲۰۲۴ امضا کرده بود.
+
+این توافق مقرر می‌کرد که از سال ۲۰۲۶ ایالات متحده دوباره موشک‌های میان‌برد با کلاهک متعارف را در آلمان مستقر کند؛ موشک‌هایی که قادرند اهدافی را در عمق خاک روسیه هدف قرار دهند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15802
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15802_1780748338.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پهپادهای اوکراینی صبح امروز به پالایشگاه نفت تیومن در روسیه حمله کردند و باعث آتش‌سوزی گسترده در این تأسیسات شدند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15801
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15801_1780748341.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انتشار تصاویر جدید از پایگاه دریایی سپاه در سیریک پس از حملات آمریکا
+
+تصاویر منتشرشده، وضعیت پایگاه نیروی دریایی سپاه در سیریک را پیش و پس از حملات هوایی آمریکا در روزهای اخیر نشان می‌دهد. در این تصاویر، آثار تخریب و آسیب به بخش‌هایی از تأسیسات این پایگاه قابل مشاهده است.
+
+پایگاه دریایی سیریک یکی از مراکز مهم استقرار و پشتیبانی شناورهای سپاه در سواحل دریای عمان محسوب می‌شود. هرگونه آسیب به این تأسیسات می‌تواند بر ظرفیت عملیاتی و لجستیکی نیروهای دریایی ایران در جنوب کشور تأثیر بگذارد،
+
+
+👺Phantom
+
+
+📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15800
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15800_1780748343.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ تأیید شده: داده‌های این‌ بخش نشان می‌دهد که اتصال اینترنت در «آزاد جامو و کشمیر» تحت اداره پاکستان، با اختلال شدید روبه‌رو شده است.
+
+این قطعی اینترنت پیش از اعتراضات رخ داده؛ جایی که مقام‌ها با استفاده از اختیارات ضدتروریسم، «کمیته اقدام مشترک عوامی» را ممنوع کرده‌اند و احتمالاً این اقدام برای محدود کردن پوشش خبری رویدادها هم به کار می‌رود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15799
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15799_1780748343.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فلاحت‌پیشه: برخی ترجیح می‌دهند ایران «غزه» شود تا توافقی با آمریکا امضا نشود.
+
+حشمت‌الله فلاحت‌پیشه، رئیس پیشین کمیسیون امنیت ملی مجلس، با انتقاد از جریان‌های مخالف مذاکره با آمریکا گفت افرادی مانند امیرحسین ثابتی حاضرند ایران با شرایطی مشابه غزه مواجه شود، اما توافقی میان تهران و واشنگتن شکل نگیرد.
+
+این اظهارات بازتابی از شکاف‌های موجود در فضای سیاسی ایران بر سر نحوه مواجهه با آمریکا و پرونده هسته‌ای است؛ اختلافی که با تشدید تنش‌های منطقه‌ای و فشارهای خارجی، بیش از گذشته به سطح عمومی کشیده شده است.
+
+👺Phantom
+
+📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15798
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بدون شرح 😶 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15797
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15797_1780748346.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بدون شرح 😶
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15796
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15796_1780748347.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ گزارشگر صداوسیما: مرکز ناوگان پنجم دریای آمریکا مورد اصابت موشک قرار گرفت؛ نه ببخشید اشتباه شد؛ صدای انفجار در جزیره خارک شنیده شد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157966
+
+<div align="center">
+  <a href="telegram/content/RadioFarda_157966_1780748350.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ارتش لبنان اعلام کرد که روز شنبه ۱۶ خرداد در حمله اسرائیل به یک خودروی نظامی در جاده خردلی-نبطیه در جنوب لبنان، دو افسر و یک سرباز لبنانی کشته شدند.
+
+🔸تصاویر منتشر شده نشان می‌دهد که روز شنبه ۱۶ خرداد همچنان حملات اسرائیل به جنوب لبنان داشت و پس از حملات به روستاهایی در این منطقه، ستون‌های دود به هوا برخاست.
+
+🔸ارتش اسرائیل روز شنبه اعلام کرد که پس از شناسایی آنچه که آن را «تهدیدی برای نیروهای خود» توصیف کرده و دریافت نشانه‌هایی مبنی بر آماده شدن حزب‌الله برای شلیک به نیروهای اسرائیلی از منطقه، این خودرو را هدف قرار داده است.
+
+🔸ارتش اسرائیل نیر تایید کرد که تحقیقات اولیه نشان داده است که دو افسر و یک سرباز ارتش لبنان در داخل خودرو بوده‌اند و این حادثه در دست بررسی است.
+
+🔸ارتش لبنان تا حد زیادی از درگیری‌های بین حزب‌الله و اسرائیل دوری کرده و در جریان درگیری فعلی در این درگیری‌ها شرکت نکرده است.
+
+🔸رسانه‌های دولتی لبنان از حملات جدید اسرائیل به بیش از ۴۰ نقطه در روز جمعه خبر دادند. همزمان حزب‌الله مدعی حملات جدید به نیروهای اسرائیلی در جنوب لبنان شد.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157965
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157965" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ساعت ۱۴ با رادیوفردا، شانزدهم خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157964
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157964_1780748353.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸در واکنش به عدم صدور ویزا برای عده‌ای از اعضای فرعی تیم ملی، فدراسیون فوتبال ایران در بیانیه‌ای که روز شنبه،‌ ۱۶ خردادماه، منتشر شد دولت آمریکا را به «رفتار کینه‌توزانه» و «کاملا سیاسی» متهم کرد.
+
+🔸روزنامه نیویورک‌ تایمز روز جمعه به نقل از چهار مقام ارشد در دولت آمریکا خبر داد که درخواست همهٔ ۲۶ بازیکن ایران پذیرفته شده، اما بیش از ده نفر از اعضای کادر پشتیبانی و مسئولان فدراسیون که قرار بود تیم را همراهی کنند، اجازه ورود به آمریکا نگرفته‌اند.
+
+🔸در بیانیه فدراسیون فوتبال آمده است:‌ «دولت هنجارشکن و قانون‌ستیز آمریکا با تسری رفتارهای کینه‌توزانه خود علیه ملت ایران به عرصه ورزش، در عمل امکان برخورداری از شرایط برابر و امکان رقابت بدون تبعیض را از تیم ملی ایران دریغ کرد.»
+
+🔸به گفته فدراسیون فوتبال،‌ فیفا «وظیفه دارد ویزای کادر مدیریتی، اجرایی، فنی و پشتیبانی تیم ملی ایران را که هم‌اکنون در اردو حضور داشته و تیم ملی به آنها نیاز مبرم دارد، تا حصول نتیجه نهایی پیگیری کند».
+
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21484
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21484_1780748354.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیشب مراد ویسی داشت می‌گفت اگه این خارکصه رو بزنیم کنار
+که خیلی تمیز و سریع جمعش کرد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21475
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21475_1780748355.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اعتراض دانش اموزان به تاثیر قطعی معدل یازدهم در کنکور
+امروز ۱۶ خرداد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21474
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21474_1780748357.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استوری امیرحسین قیاسی
+قضاوت با خودتون
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21473
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منبع پاکستانی به الجزیره:
+
+وزیر کشور پاکستان، حامل پیامی برای رهبر ایران است
+
++ پاکستان خفه شو
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻شماری از دانش آموزان و داوطلبان کنکور امروز در شهرهای ایران از جمله تهران، شیراز، اراک، اصفهان، قم، قزوین، مشهد، یاسوج و کرمانشاه در اعتراض به تاثیر سوابق تحصیلی و نمرات دو سال آخر دبیرستان بر نتایج کنکور تجمع کردند.
+
+این دومین تجمع اعتراضی در یک هفته است. 
+
+معترضان در شهرهای مختلف مقابل ساختمان های آموزش و پرورش و در تهران مقابل دبیرخانه شورای عالی انقلاب فرهنگی تجمع کرده و خواستار بازنگری در این شیوه شدند. 
+
+آنها با در دست داشتن پلاکارد، خواستار تاثیر مثبت نمرات خوب به جای تاثیر قطعی نمرات در نتیجه کنکور شدند و شعارهایی چون «دانش آموز می‌میرد، ذلت نمی‌پذیرد» و «خسروپناه حیا کن، کنکوری را رها کن» سر دادند.
+
+روابط عمومی شورای عالی انقلاب فرهنگی دیروز اعلام کرد موضوع تاثیر سوابق تحصیلی در با همکاری وزارت آموزش و پرورش در دست بررسی است و تصمیم از طریق مراجع رسمی اعلام خواهد شد.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 282979
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ فدراسیون فوتبال ایران با انتقاد از صادر نشدن ویزا برای برخی از اعضای هیئت اعزامی تیم ملی به جام جهانی، دولت آمریکا را به رفتار تبعیض‌آمیز متهم کرد. این فدراسیون آمریکا را متهم کرد که «با تسری رفتارهای کینه توزانه خود علیه ملت ایران به عرصه ورزش، در عمل…
+</div>
+
+## BBCPersian — post 282978
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282978_1780748358.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+فدراسیون فوتبال ایران با انتقاد از صادر نشدن ویزا برای برخی از اعضای هیئت اعزامی تیم ملی به جام جهانی، دولت آمریکا را به رفتار تبعیض‌آمیز متهم کرد.
+
+این فدراسیون آمریکا را متهم کرد که «با تسری رفتارهای کینه توزانه خود علیه ملت ایران به عرصه ورزش، در عمل امکان برخورداری از شرایط برابر و امکان رقابت بدون تبعیض را از تیم ملی ایران دریغ کرد.»
+
+فدراسیون فوتبال گفت برای «ارکان مهم مدیریتی و اداری تیم ملی فوتبال ایران» ویزا صادر نشده است و این موضوع را از طریق فیفا پیگیری می‌کند.
+
+در این بیانیه آمده است: «میزبان با رفتار تبعیض‌آمیز و هدفمند علیه تیم ملی فوتبال ایران محیطی تبعیض‌آمیز و نابرابر را رقم زد و این یعنی مداخله سیاست در ورزش به بدترین وجه ممکن.»
+
+
+📷GETTY
+https://bbc.in/4g37zn5
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391125
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391125_1780748359.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا رفتی چرا من بی‌قرارم....
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391124
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391124_1780748361.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یارو کلی پول جمع کرده بره حج! تو‌ برگشتن٫ از چمدونش کلی نوشیدنیهای دزدی از هتلش رو ‌‌پیدا میکنن! خدایا خار خ‌رت رو گ اییدم که تو یه اشتباه کلیدی٫ مسلمون آفریدی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391123
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391123_1780748364.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 این ویدیو از دانش‌آموزان مملکت تو روز حمله آمریکا و اسرائیل به ایران و تعطیل شدن مدرسه‌شون رفته تو اکسپلور خارجی‌ها؛
+
+تو کامنت‌ها همشون تعجب کردن که اینا چرا اینجوری میکنن؟ اصلا چرا نمی‌ترسن؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391122
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391122_1780748367.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ورزش سه | ویزای آمریکا برای این نفرات رد شده: مهدی تاج - رئیس فدراسیون فوتبال مهدی محمدنبی - مدیر تیم هدایت ممبینی - دبیرکل فدراسیون محسن معتمدکیا - مدیررسانه‌ای مهدی خراطی - مدیراجرایی مسعود اردشیر - افسر امنیتی مهدی ملک آباد - رئیس حراست سروش سلماسی- آنالیزور…
+</div>
+
+## Hranews — post 113419
+
+<div align="center">
+  <img src="telegram/content/Hranews_113419_1780748367.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک ماه پس از بازداشت؛ تداوم بی‌خبری از وضعیت کمال امیدی
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– با گذشت حدود یک ماه از بازداشت کمال امیدی، مدرس زبان و مدیر یک آموزشگاه زبان در خمین، کماکان اطلاعی از محل نگهداری و وضعیت وی حاصل نشده است. بی‌خبری از وضعیت این شهروند، منجر به افزایش نگرانی‌های خانواده او شده است.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، کمال امیدی، همچنان در بازداشت و بلاتکلیفی به‌سر میبرد.
+
+بر اساس اطلاعات دریافتی هرانا، کمال امیدی حدود یک ماه پیش در شهرستان خمین بازداشت شده و با وجود گذشت هفته‌ها از زمان دستگیری، خانواده وی همچنان از محل نگهداری و وضعیت او بی‌اطلاع هستند.
+
+ادامه مطلب
+
+#کمال_امیدی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 125536
+
+<div align="center">
+  <a href="telegram/content/alonews_125536_1780748368.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امور خارجه ایالات متحده فروش نظامی خارجی احتمالی به ارزش ۱.۵ میلیارد دلار به نیوزیلند را برای پنج فروند هلیکوپتر MH-60R Seahawk و تجهیزات مرتبط تأیید کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125535
+
+<div align="center">
+  <a href="telegram/content/alonews_125535_1780748368.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اطلاع‌رسانی عجیب مجری صداوسیما: مرکز ناوگان پنجم دریای آمریکا مورد اصابت موشک قرار گرفت؛ نه ببخشید اشتباه شد؛ صدای انفجار در جزیره خارک شنیده شد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125534
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ با سابقه ۵ سال فعالیت مداوم 
+🛡 حتی بدون قطعی تو دوران جنگ برای ۱۰۰ نفر اول و یک ربع بعد 
+😍
+❤️ 
+🔥 آتیش زدم به مالم به خاطر عیالم بقیه هنوز VPN حجمی میفروشن اونم با قیمتای نجومی 
+🚀 ما چی؟ 
+💯
+💥 VPN نامحدود واقعی فقط 190 تومن
+🏷️ 
+🫴 ویژه ۱۰۰ نفر اول 
+💥 بدون محدودیت…
+</div>
+
+## alonews — post 125533
+
+<div align="center">
+  <img src="telegram/content/alonews_125533_1780748370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ با سابقه ۵ سال فعالیت مداوم
+
+🛡 حتی بدون قطعی تو دوران جنگ
+
+برای ۱۰۰ نفر اول و یک ربع بعد 
+😍
+❤️
+
+
+🔥 آتیش زدم به مالم به خاطر عیالم
+
+بقیه هنوز VPN حجمی میفروشن
+اونم با قیمتای نجومی 
+🚀
+
+ما چی؟ 
+💯
+💥 VPN نامحدود واقعی فقط 190 تومن
+🏷️
+
+
+🫴 ویژه ۱۰۰ نفر اول
+
+
+💥 بدون محدودیت حجم
+
+@NetAazaadBot
+@NetAazaadBot
+</div>
+
+## alonews — post 125532
+
+<div align="center">
+  <a href="telegram/content/alonews_125532_1780748371.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بلومبرگ : از ماه می ایران نتوانسته نفتی را از طریق تنگه هرمز صادر کند و ۸۰ میلیون بشکه نفت ایران پشت تنگه هرمز گیر افتاده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125531
+
+<div align="center">
+  <a href="telegram/content/alonews_125531_1780748371.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / الجزیره به نقل از یک منبع پاکستانی: وزیر کشور پاکستان در سفر به تهران حامل نامه‌ای درمورد پیشنهادهایی برای بحث منابع ارزی مسدودشده ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125530
+
+<div align="center">
+  <a href="telegram/content/alonews_125530_1780748371.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان اورژانس : روزی حدود ۶۰۰ تا تماس مزاحم داریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125529
+
+<div align="center">
+  <a href="telegram/content/alonews_125529_1780748372.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امیرحسین قیاسی: سکوتم در جنگ اشتباه بود!
+
+
+🔴حتى در صورت سكوت هم معلومه كه من مقابل كسى هستم كه بدخواه كشورمه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125528
+
+<div align="center">
+  <a href="telegram/content/alonews_125528_1780748372.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزرای کشور کشورهای عضو شورای همکاری خلیج فارس (GCC) جلسه اضطراری تشکیل می‌دهند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125527
+
+<div align="center">
+  <a href="telegram/content/alonews_125527_1780748372.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فوران آخرالزمانی یک آتشفشان در هاوایی
+
+
+🔴طبق اعلام وزارت کشور آمریکا، فعالیت این آتشفشان در ایالت هاوایی همچنان ادامه دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125525
+
+<div align="center">
+  <a href="telegram/content/alonews_125525_1780748374.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فیفا ایرانیان را از آوردن پرچم شیر و خورشید ایران به مسابقات جام جهانی منع کرده است.
+
+
+🔴یکی از راه‌حل‌های هوشمندانه‌ای که ایرانیان ارائه داده‌اند، ایجاد اپلیکیشنی است که به آنها امکان می‌دهد پرچم را به صورت دیجیتالی و گروهی نمایش دهند.
+
+
+🔴از ۴ نفر تا ۳۸۰ نفر
+
+
+👑 https://www.iransync.com
+
+#جام_جهانی
+
+
+✅@AloNews
+</div>
+
+## alonews — post 125524
+
+<div align="center">
+  <a href="telegram/content/alonews_125524_1780748377.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه قطر: بر ضرورت دور نگه داشتن منطقه از پیامدهای حملات بی‌دلیل تأکید می‌کنیم و بر کاهش تنش برای بازگرداندن امنیت و ثبات تأکید داریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125523
+
+<div align="center">
+  <a href="telegram/content/alonews_125523_1780748377.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الحدث به نقل از منابع ارشد پاکستانی:
+وزیر کشور پاکستان پس از دیدار با نخست‌وزیر شهباز شریف و مقامات ارشد، امروز عازم تهران خواهد شد
+
+
+🔴 نخست‌وزیر پاکستان دستورات ویژه‌ای به وزیر کشور خود درباره مذاکرات بین ایران و آمریکا داده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125522
+
+<div align="center">
+  <a href="telegram/content/alonews_125522_1780748377.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سرتیپ ویسام صبرا در حمله‌ای که صبح امروز در جاده خُردلی رخ داد، همراه با تعدادی از نیروهای نظامی کشته شد. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125521
+
+<div align="center">
+  <a href="telegram/content/alonews_125521_1780748377.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع رسانه‌ای و وزارت دفاع بحرین از وقوع چند انفجار درپی حملات موشکی و پهپادی به این کشور خبر دادند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125520
+
+<div align="center">
+  <a href="telegram/content/alonews_125520_1780748378.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اینترنت دیتاسنترها همچنان قطع است
+کسب‌وکارهای اینترنتی کماکان با مشکل مواجه‌اند
+
+مدیرعامل شرکت آسیاتک در گفت‌وگو با سیتنا:
+
+🔴برخلاف برخی اظهارنظرها مبنی بر بازگشت وضعیت اینترنت بین‌الملل به شرایط پیش از دی‌ماه سال گذشته، دسترسی مشتریان مراکز داده (دیتاسنترها) همچنان برقرار نشده و کسب‌وکارهای اینترنتی کماکان با چالش مواجه‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 14:32
 ---
 
