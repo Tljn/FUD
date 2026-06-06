@@ -7,6 +7,626 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 05:48
+---
+
+## VahidOOnLine — post 243899
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243899_1780712327.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهنام بن‌طالب‌لو، مدیر ارشد برنامه ایران در بنیاد دفاع از دموکراسی‌ها، در مطلبی در وب‌سایت این بنیاد با اشاره به آمار تانکر ترکرز درباره به صفر رسیدن صادرات نفت ایران در ماه مه در پی محاصره دریایی نوشت اقدام جمهوری اسلامی در بستن تنگه هرمز، معادله را به زیان حاکمان تهران تغییر داده است.
+بر اساس داده‌های شرکت تانکر ترکرز، ایران در این ماه هیچ نفت خامی صادر نکرد و تنها ۲ میلیون بشکه نفتا صادر کرد که معادل حدود ۶۴ هزار بشکه در روز است.
+این مطلب با تاکید بر اینکه محاصره دریایی آمریکا عملا شریان اصلی تامین مالی حکومت را قطع کرده است، نوشت: «اقدام جمهوری اسلامی در بستن تنگه هرمز، معادله را به زیان حاکمان تهران تغییر داده و توان مالی حکومت را هدف قرار داده است.»
+بن‌طالب‌لو با اشاره به اینکه محاصره دریایی همچنان ابزار اصلی فشار اقتصادی آمریکا به شمار می‌رود، هشدار داد کنار گذاشتن این ابزار فشار اقتصاد کلان صرفا برای بازگرداندن تردد در خلیج فارس می‌تواند اشتباه راهبردی باشد.
+او افزود اگر این اهرم اقتصادی زودتر از موعد کنار گذاشته شود، سیاست‌گذاران نباید انتظار امتیازهای عمده در مسائل گسترده‌تر امنیتی را داشته باشد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243898
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243898_1780712327.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️روابط عمومی سپاه، بامداد شنبه، با انتشار بیانیه‌ای اعلام کرد: «به دنبال حملات ارتش آمریکا به سیریک و جزیره قشم، پایگاه‌های دشمن در منطقه مورد اصابت موشک‌های هوافضا قرار گرفتند».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243897
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243897_1780712328.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درپی موج دوم حمله‌های موشکی و پهپادی به کویت، آژیرهای خطر در این کشور فعال شدند و ارتش کویت از فعال شدن پدافند هوایی برای رهگیری این حمله‌ها خبر داد. دقایقی قبل نیز ارتش کویت از تلاش برای رهگیری موج دیگری حمله‌های موشکی و پهپادی خبر داده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243896
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243896_1780712328.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت کشور بحرین، بامداد شنبه، ۱۶ خردادماه، با انتشار دو بیانیه «فوری» در اکس اعلام کرد که آژیرهای خطر و هشدار در این کشور به صدا درآمده‌اند. مقامات امنیتی بحرین با اعلام وضعیت اضطراری، از تمامی مردم این کشور خواسته‌اند ضمن حفظ آرامش کامل، فورا به نزدیک‌ترین مکان امن و پناهگاه بروند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243895
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243895_1780712329.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز جمعه در گفتگوی اختصاصی با شبکه «ان‌بی‌سی نیوز» اعلام کرد که ایران به دلیل «قوی و مغرور بودن»، هنوز توافقی را با ایالات متحده برای پایان دادن به جنگ کنونی که وارد چهارمین ماه خود شده است، امضا نکرده است. ترامپ با اشاره به روند مذاکرات جاری میان واشنگتن و تهران تاکید کرد: «آنها مغرور و قوی هستند و اکنون مجبورند کارهایی را انجام دهند که هرگز فکرش را هم نمی‌کردند. آنها عملا چاره دیگری ندارند و نهایتا باید توافق کنند، اما این فرآیند کمی زمان می‌برد.» رئیس‌جمهوری آمریکا با انتقاد از کسانی که خواستار دستیابی فوری به یک توافق با ایران هستند، سرعت اقدامات خود را با جنگ ۱۹ ساله ویتنام مقایسه کرد و افزود با وجود اینکه تنها حدود ۲۱ تا ۲۲ درصد از کل موشک‌های اولیه ایران باقی مانده و بخش اعظم توان نظامی و کارخانه‌های پهپادی آن‌ها نابود شده است، پذیرش این شرایط سخت برای مقامات تهران زمان‌بر خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243894
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243894_1780712329.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دولتی کویت اعلام کرد پدافند هوایی این کشور در حال رهگیری حمله‌های موشکی و پهپادی است.
+جمهوری اسلامی چهارشنبه نیز حملات موشکی و پهپادی مرگباری علیه کویت انجام داد که در نتیجه آن یک نفر کشته و ۶۳ نفر مجروح شدند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243893
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243893_1780712330.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ستاد کل فرماندهی ارتش کویت، بامداد شنبه، ۱۶ خردادماه، با انتشار بیانیه‌ای «فوری» اعلام کرد که پدافند هوایی این کشور در حال مقابله و پاسخی جامع به «حملات موشکی و پهپادهای تهاجمی متخاصم» در آسمان کشور است. مقامات نظامی کویت با تایید وضعیت اضطراری اشاره کردند که هرگونه صدای انفجار احتمالی، ناشی از عملکرد سیستم‌های پدافندی در رهگیری و انهدام این اهداف مهاجم در هوا است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243892
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243892_1780712331.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محسن رضایی، فرمانده سابق سپاه و مشاور نظامی مجتبی خامنه‌ای، در گفتگوی اختصاصی با شبکه «سی‌ان‌ان» هشدار داد که در صورت تداوم درگیری‌ها و برچیده نشدن محاصره دریایی اعمال‌شده علیه ایران، دامنه جنگ به سایر آبراه‌های استراتژیک کشیده خواهد شد. رضایی گفت: «اگر جنگ ادامه یابد و محاصره دریایی لغو نشود، ما دامنه نبرد را به اقیانوس هند، تنگه باب‌المندب، دریای سرخ و دریای مدیترانه خواهیم کشاند.» او با تاکید بر اینکه تهران ابعاد جدیدی به این تقابل نظامی خواهد بخشید، افزود: «با حمله به دیگر پایگاه‌های آمریکا، بعد دیگری به جنگ می‌دهیم و در این میان، ایالات متحده قطعا متحمل خسارات و تلفات بسیار بیشتری خواهد شد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243891
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243891_1780712331.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز گزارش داد تیم ملی فوتبال ایران پس از ماه‌ها بلاتکلیفی سرانجام مجوز ورود به آمریکا برای حضور در جام جهانی ۲۰۲۶ را دریافت کرده است، اما درخواست ویزای شماری از اعضای کادر پشتیبانی و مسئولان فدراسیون فوتبال ایران، از جمله مهدی تاج، رد شده است.
+نیویورک‌تایمز به نقل از چهار مقام ارشد آگاه گزارش داد تمامی ۲۶ بازیکن تیم ملی فوتبال ایران برای حضور در جام جهانی ۲۰۲۶ ویزای ورود به ایالات متحده را دریافت کرده‌اند و می‌توانند در مسابقات این دوره شرکت کنند.
+بر اساس این گزارش، جمعه ۱۵ خرداد یک مقام ایرانی برای دریافت گذرنامه‌هایی که در چارچوب روند صدور ویزا به سفارت آمریکا تحویل داده شده بود، مراجعه کرد. با این حال، درخواست ویزای بیش از ۱۲ نفر از اعضای کادر همراه تیم، از جمله برخی مربیان، بدنسازان، تحلیلگران، اعضای کادر پزشکی و همچنین شماری از مسئولان فدراسیون فوتبال ایران رد شده است.
+نیویورک‌تایمز به نقل از یکی از منابع خود نوشت که ویزای مهدی تاج، رییس فدراسیون فوتبال ایران، نیز صادر نشده است. تاج که سابقه عضویت در سپاه پاسداران را دارد، پیش‌تر نیز در سفرهای بین‌المللی با محدودیت‌هایی روبه‌رو شده بود.
+
+https
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243890
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جشنواره باستانی و هزارساله اسب‌سواری سامورایی‌ها در ژاپن موسوم به «سوما نامائوی» که در طول تاریخ از گزند جنگ‌ها، زمین‌لرزه‌ها و حتی فاجعه اتمی جان سالم به در برده بود، اکنون با چالش جدیدی به نام تغییرات اقلیمی دست‌وپنجه نرم می‌کند. به گزارش خبرگزاری فرانسه، تابستان‌های طاقت‌فرسا و سوزان ژاپن با دمای بی‌سابقه تا مرز ۴۰ درجه سانتی‌گراد، سازمان‌دهندگان این رویداد باستانی را مجبور کرد تا برای اولین بار تاریخ برگزاری آن را به اواخر ماه مه (اوایل خرداد) منتقل کنند؛ تصمیمی حیاتی که به این جشنواره تاریخی و سنتی جانی دوباره بخشیده و آن را با شرایط آب‌و‌هوایی شدید جدید سازگار کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243889
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243889_1780712332.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه جمهوری آذربایجان ادعاهای مطرح‌شده در گزارش اخیر سی‌ان‌ان درباره استفاده اسرائیل از خاک این کشور برای عملیات نظامی و اطلاعاتی علیه حکومت ایران را «کاملا بی‌اساس» خواند و خواستار تکذیب آن شد.
+
+آیکهان حاجی‌زاده، سخنگوی این وزارتخانه، جمعه ۱۵ خرداد اعلام کرد باکو پیش‌تر نیز این ادعاها را رد کرده و موضع رسمی خود را پیش از انتشار گزارش به سی‌ان‌ان اعلام کرده بود.
+
+او تاکید کرد جمهوری آذربایجان هرگز اجازه استفاده از خاک خود علیه کشور دیگری را نداده و نخواهد داد و انتشار گزارش بر پایه منابع ناشناس را مغایر با اصول بی‌طرفی دانست.
+
+سی‌ان‌ان به نقل از منابعی مدعی شده بود اسرائیل در جریان جنگ ایران، نیروهای نظامی و اطلاعاتی خود را به طور محرمانه در نزدیکی مرز ایران در آذربایجان مستقر کرده و از آنجا عملیات اطلاعاتی و پهپادی انجام داده است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13611
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارسالی : من بابامم تعریف میکرد که زمان جنگ عراق و کویت صدا های بمب هارو میشنیدن خرمشهر
+@withyashar
+گزارش های زیاد از شنیده شدن انفجار کویت از خرمشهر !
+</div>
+
+## WithYashar — post 13610
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13610_1780712333.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارسالی : کویت آلارم اومد الان ، ۳پا موشک زده سمتش !
+@withyashar
+</div>
+
+## WithYashar — post 13609
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13609_1780712333.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ در‌تروث : نیروی دریایی ایران
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342671
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342671_1780712334.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump returns from Wisconsin.
+
+POTUS stepped off Air Force One, gave a fist bump toward the press, and made his way across the tarmac.
+
+He then boarded Marine One.
+</div>
+
+## FoxNewsTwitter — post 342670
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342670_1780712336.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump wears Olympic gold.
+
+Olympic speed skating champion Jordan Stolz placed his gold medal around the president's neck during an agriculture roundtable at Custer Farms in Chippewa Falls, Wisconsin.
+
+The Wisconsin native later shook hands with Trump at the event, which focused on policies impacting American farmers.
+</div>
+
+## FoxNewsTwitter — post 342669
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342669_1780712336.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: Democratic Senate candidate Graham Platner addresses supporters in Maine.
+
+“When hurtful things I said on the internet a decade ago came out into the public as I shared my personal journey through PTSD and darkness of recovery and accountability and growth, Maine had my back.”
+
+“Now, as every single piece of that past and journey gets dug up, litigated, and weaponized, you have my back.”
+</div>
+
+## pm_afshaa — post 92363
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92363_1780712338.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه: به دنبال تجاوز امریکا به سیریک و جزیره قشم، ساعتی پیش پایگاه‌های دشمن در منطقه مورد اصابت موشک‌ قرار گرفتن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92360
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92360_1780712338.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رد موشک‌های شلیک شده از فارس و بوشهر به سمت کویت و بحرین :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92359
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله آمریکا به قشم و جنوب کشور و حمله ایران به کویت و بحرین هم عادی شده و هر دو سه شب یبار تکرار میشه اخرم هر دو طرف میگن اقدام دفاعی کردیم و اتش بس برقراره
+</div>
+
+## pm_afshaa — post 92358
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92358_1780712339.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت کشور بحرین: آژیرهای خطر به صدا درآمده و از شهروندان و ساکنان میخوایم که به نزدیکترین مکان امن برن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92357
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به بحرین هم موشک زدن
+</div>
+
+## pm_afshaa — post 92356
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92356_1780712339.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری دولتی کویت:
+پدافند هوایی این کشور در حال رهگیری حمله‌های موشکی و پهپادی است.
+
++ ویدیویی از صدای آژیر خطر در کویت :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92354
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92354_1780712341.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران در جواب این حمله موشک زده به کویت و دقایقی پیش هشدار حمله موشکی و پهبادی به ساکنان کویت ارسال شده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92353
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92353_1780712341.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: لحظاتی پیش نیروهای سنتکام چهار پهپاد تهاجمی ایرانی رو که به سمت تنگه هرمز پرتاب شده بودن سرنگون کردن. پهپادهای تهاجمی یک تهدید فوری برای ترافیک دریایی منطقه است ‌و نیروهای آمریکایی متعاقبا به سایت‌های رادار نظارتی ساحلی ایران در گوروک و جزیره قشم…
+</div>
+
+## VahidOnline — post 75964
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75964_1780712342.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی سپاه، بامداد شنبه، با انتشار بیانیه‌ای اعلام کرد: «به دنبال حملات ارتش آمریکا به سیریک و جزیره قشم، پایگاه‌های دشمن در منطقه مورد اصابت موشک‌های هوافضا قرار گرفتند».
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75961
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75961_1780712342.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+'رد موشک‌های شلیک شده از ایران'
+تصاویر دریافتی از استان‌های فارس و بوشهر
+
+آپدیت:
+وزارت کشور بحرین نیز دقایقی قبل از به صدا در آمدن آژیر خطر خبر داد و از مردم خواست به اماکن امن بروند.
+VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75960
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75960_1780712343.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک دیگری از ایران همزمان با صدور هشدر دیگری در کویت
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75959
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75959_1780712343.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی: اعلام هشدار در کویت
+همزمان با پیام‌های دریافتی از شنیده شدن صدای شلیک از خوزستان
+
+آپدیت:
+ارتش کویت دقایقی قبل از فعالیت پدافند هوایی کویت برای مقابله با «حملات موشکی و پهپادی خصمانه» خبر داد.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340753
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340753_1780712343.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهنام بن‌طالب‌لو، مدیر ارشد برنامه ایران در بنیاد دفاع از دموکراسی‌ها، در مطلبی در وب‌سایت این بنیاد با اشاره به آمار تانکر ترکرز درباره به صفر رسیدن صادرات نفت ایران در ماه مه در پی محاصره دریایی نوشت اقدام جمهوری اسلامی در بستن تنگه هرمز، معادله را به زیان حاکمان تهران تغییر داده است.
+بر اساس داده‌های شرکت تانکر ترکرز، ایران در این ماه هیچ نفت خامی صادر نکرد و تنها ۲ میلیون بشکه نفتا صادر کرد که معادل حدود ۶۴ هزار بشکه در روز است.
+این مطلب با تاکید بر اینکه محاصره دریایی آمریکا عملا شریان اصلی تامین مالی حکومت را قطع کرده است، نوشت: «اقدام جمهوری اسلامی در بستن تنگه هرمز، معادله را به زیان حاکمان تهران تغییر داده و توان مالی حکومت را هدف قرار داده است.»
+بن‌طالب‌لو با اشاره به اینکه محاصره دریایی همچنان ابزار اصلی فشار اقتصادی آمریکا به شمار می‌رود، هشدار داد کنار گذاشتن این ابزار فشار اقتصاد کلان صرفا برای بازگرداندن تردد در خلیج فارس می‌تواند اشتباه راهبردی باشد.
+او افزود اگر این اهرم اقتصادی زودتر از موعد کنار گذاشته شود، سیاست‌گذاران نباید انتظار امتیازهای عمده در مسائل گسترده‌تر امنیتی را داشته باشد.
+</div>
+
+## IranIntlTV — post 340752
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340752_1780712344.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درپی موج دوم حمله‌های موشکی و پهپادی به کویت، آژیرهای خطر در این کشور فعال شدند و ارتش کویت از فعال شدن پدافند هوایی برای رهگیری این حمله‌ها خبر داد. دقایقی قبل نیز ارتش کویت از تلاش برای رهگیری موج دیگری حمله‌های موشکی و پهپادی خبر داده بود.
+https://iranintl.com/202606069640
+</div>
+
+## IranIntlTV — post 340751
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340751_1780712344.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دولتی کویت اعلام کرد پدافند هوایی این کشور در حال رهگیری حمله‌های موشکی و پهپادی است.
+جمهوری اسلامی چهارشنبه نیز حملات موشکی و پهپادی مرگباری علیه کویت انجام داد که در نتیجه آن یک نفر کشته و ۶۳ نفر مجروح شدند.
+
+https://iranintl.com/202606066191
+</div>
+
+## IranIntlTV — post 340750
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340750_1780712345.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز گزارش داد تیم ملی فوتبال ایران پس از ماه‌ها بلاتکلیفی سرانجام مجوز ورود به آمریکا برای حضور در جام جهانی ۲۰۲۶ را دریافت کرده است، اما درخواست ویزای شماری از اعضای کادر پشتیبانی و مسئولان فدراسیون فوتبال ایران، از جمله مهدی تاج، رد شده است.
+نیویورک‌تایمز به نقل از چهار مقام ارشد آگاه گزارش داد تمامی ۲۶ بازیکن تیم ملی فوتبال ایران برای حضور در جام جهانی ۲۰۲۶ ویزای ورود به ایالات متحده را دریافت کرده‌اند و می‌توانند در مسابقات این دوره شرکت کنند.
+بر اساس این گزارش، جمعه ۱۵ خرداد یک مقام ایرانی برای دریافت گذرنامه‌هایی که در چارچوب روند صدور ویزا به سفارت آمریکا تحویل داده شده بود، مراجعه کرد. با این حال، درخواست ویزای بیش از ۱۲ نفر از اعضای کادر همراه تیم، از جمله برخی مربیان، بدنسازان، تحلیلگران، اعضای کادر پزشکی و همچنین شماری از مسئولان فدراسیون فوتبال ایران رد شده است.
+نیویورک‌تایمز به نقل از یکی از منابع خود نوشت که ویزای مهدی تاج، رییس فدراسیون فوتبال ایران، نیز صادر نشده است. تاج که سابقه عضویت در سپاه پاسداران را دارد، پیش‌تر نیز در سفرهای بین‌المللی با محدودیت‌هایی روبه‌رو شده بود.
+
+https
+</div>
+
+## IranIntlTV — post 340749
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340749_1780712345.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه جمهوری آذربایجان ادعاهای مطرح‌شده در گزارش اخیر سی‌ان‌ان درباره استفاده اسرائیل از خاک این کشور برای عملیات نظامی و اطلاعاتی علیه حکومت ایران را «کاملا بی‌اساس» خواند و خواستار تکذیب آن شد.
+
+آیکهان حاجی‌زاده، سخنگوی این وزارتخانه، جمعه ۱۵ خرداد اعلام کرد باکو پیش‌تر نیز این ادعاها را رد کرده و موضع رسمی خود را پیش از انتشار گزارش به سی‌ان‌ان اعلام کرده بود.
+
+او تاکید کرد جمهوری آذربایجان هرگز اجازه استفاده از خاک خود علیه کشور دیگری را نداده و نخواهد داد و انتشار گزارش بر پایه منابع ناشناس را مغایر با اصول بی‌طرفی دانست.
+
+سی‌ان‌ان به نقل از منابعی مدعی شده بود اسرائیل در جریان جنگ ایران، نیروهای نظامی و اطلاعاتی خود را به طور محرمانه در نزدیکی مرز ایران در آذربایجان مستقر کرده و از آنجا عملیات اطلاعاتی و پهپادی انجام داده است.
+
+https://iranintl.com/202606054179
+</div>
+
+## Shin_Persian — post 6557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 06 Jun 2026 01:14:57 UTC
+
+Sirens activated. Citizens and residents are urged to remain calm, proceed to the nearest safe location, and follow official news channels.
+#Bahrain 🇧🇭
+
+Source: @moi_bahrain
+https://x.com/moi_bahrain/status/2063067028001317008
+
+فارسی
+
+آژیرهای خطر فعال شدند. از شهروندان و ساکنان درخواست می‌شود آرامش خود را حفظ کرده، به نزدیک‌ترین مکان امن بروند و کانال‌های خبری رسمی را دنبال کنند.
+#Bahrain 🇧🇭
+
+منبع: @moi_bahrain
+https://x.com/moi_bahrain/status/2063067028001317008
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6556
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6556_1780712346.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 06 Jun 2026 00:52:21 UTC
+
+Kuwaiti Air Defenses are currently responding to hostile missile and drone attacks.
+
+The General Staff of the Army states that any explosion sounds are the result of interceptions.
+
+Follow all safety instructions from authorities.
+
+#Kuwait 🇰🇼
+
+فارسی
+
+پدافند هوایی کویت در حال حاضر در حال پاسخگویی به حملات موشکی و پهپادی متخاصم است.
+
+ستاد کل ارتش اعلام کرد که هرگونه صدای انفجار ناشی از عملیات رهگیری است.
+
+تمامی دستورالعمل‌های ایمنی مقامات را رعایت کنید.
+
+#Kuwait 🇰🇼
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219732
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219732_1780712346.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در پی گزارش‌ها از حملات پهپادی و موشکی خصمانه به کویت، صدای آژیرهای حمله هوایی در سراسر کویت به صدا در آمد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219731
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش| چهل روز از اعدام ساسان آزادوار گذشت، جوانی که نوشت: «هزاران امید میان استخوان‌هایم آواز می‌خواند»
+
+▪️ساسان آزادوار جونقانی، ۲۱ ساله، از معترضان دی‌ماه اصفهان، سحرگاه ۱۰ اردیبهشت ۱۴۰۵ اعدام شد. او در صفحه اینستاگرامش، خود را «بختیاری» معرفی کرده بود. ساسان آزادوار، که گفته می‌شود قهرمان سبک کیوکوشین کاراته در اصفهان بود، یک‌بار زیر یکی از عکس‌های اینستاگرامی‌اش که تاریخ آن به حدود دو سال و نیم پیش بازمی‌گردد، نوشته بود: «هزاران امید میان استخوان‌هایم آواز می‌خواند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157740.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219730
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219730_1780712347.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کاربران شبکه‌های اجتماعی ویدیوهایی را منتشر کرده‌اند که می‌گویند رهگیری موشک‌های شلیک‌شده در بامداد شنبه به سمت بحرین و در آسمان این کشور را نشان می‌دهد. کویت نیز از مقابله با حملات خصمانه پهپادی و موشکی خبر داده است. هر دو کشور پیشتر هدف حملات جمهوری اسلامی قرار گرفته‌‌اند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219729
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219729_1780712347.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وزارت کشور بحرین نیز دقایقی قبل از به صدا در آمدن آژیر خطر خبر داد و از مردم خواست به اماکن امن بروند. این در حالی است که کویت نیز از مقابله با حملات موشکی و پهپادی خصمانه خبر داده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219728
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219728_1780712348.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس‌جمهوری آمریکا، جمعه شب با انتشار این ویدیو در تروت‌سوشال به وضعیت نیروی دریایی جمهوری اسلامی در پی عملیات نظامی مشترک آمریکا و اسرائيل طعنه زد. آقای ترامپ در سخنان خود گفته است که کشتی‌های نیروی دریایی جمهوری اسلامی «کف دریا به خط هستند.»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219727
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219727_1780712348.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وزارت کشور بحرین نیز دقایقی قبل از به صدا در آمدن آژیر خطر خبر داد و از مردم خواست به اماکن امن بروند. این در حالی است که کویت نیز از مقابله با حملات موشکی و پهپادی خصمانه خبر داده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219726
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219726_1780712348.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کانال تلگرامی وحیدآنلاین تصویری از آنچه شلیک موشک از ایران توصیف شده در ساعات اولیه روز شنبه به وقت ایران منتشر کرد. این در حالی است که کویت دقایقی قبل از مقابله با حملات موشکی خصمانه خبر داد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219723
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219723_1780712348.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ارتش کویت دقایقی قبل از فعالیت پدافند هوایی کویت برای مقابله با «حملات موشکی و پهپادی خصمانه» خبر داد. این بیانیه در پی حملات دفاعی سنتکام به مواضع جمهوری اسلامی در واکنش به شلیک چند پهپاد از سوی حکومت ایران گزارش می‌شود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219722
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ در جمع کشاورزان ویسکانسین: محاصره دریایی علیه جمهوری اسلامی موفقیت‌آمیز بوده است
+@FarsiVOA
+</div>
+
+## BBCPersian — post 282937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وقتی پل، اختاپوس معروف، همه نتایج آلمان در جام جهانی فوتبال ۲۰۱۰ آفریقای جنوبی را درست پیش‌بینی کرد، در سراسر جهان به‌عنوان یک پیشگو مورد ستایش قرار گرفت.
+
+متن کامل این مطلب را در وبسایت بی‌بی‌سی فارسی بخوانید:
+https://bbc.in/4uSkuNg
+
+
+
+📸GettyImages/ Reuters/ Bloomberg via Getty Images/ EPA-EFE/REX/Shutterstock/ ullstein bild via Getty Images/ Corbis via Getty Images
+@BBCPersian
+</div>
+
+## BBCPersian — post 282936
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282936_1780712349.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ولادیمیر پوتین، رئیس‌جمهور روسیه، درخواست ولودیمیر زلنسکی برای گفت‌وگوی رودررو درباره پایان جنگ اوکراین را رد کرد و گفت چنین دیداری فایده‌ای ندارد.
+
+آقای زلنسکی روز پنجشنبه در نامه‌ای سرگشاده خواستار مذاکرات مستقیم با پوتین شد و نوشت که نباید منتظر ماند تا جنگی که با تهاجم گسترده روسیه به اوکراین در سال ۲۰۲۲ آغاز شد، بار دیگر در کانون توجه آمریکا قرار گیرد.
+
+رئیس‌جمهور اوکراین همچنین خواستار برقراری آتش‌بس شد.
+
+آقای پوتین اما این نامه را «بی‌ادبانه» خواند و بار دیگر تاکید کرد که مذاکرات صلح باید پیش از هرگونه آتش‌بس انجام شود.
+
+متن کامل این مطلب را در سایت بی‌بی‌سی فارسی بخوانید.
+
+📸 AFP via Getty Images
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 03:40
 ---
 
