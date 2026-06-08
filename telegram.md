@@ -7,6 +7,741 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 02:38
+---
+
+## VahidOOnLine — post 244445
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244445_1780960100.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز دوشنبه با تاکید بر موضع سرسختانه واشنگتن در قبال برنامه‌های هسته‌ای تهران، با تقدیر از همراهی لیندزی گراهام، سناتور برجسته آمریکایی گفت: «لیندزی در تمام این مسیر پابه‌پای من جنگیده و ما تیم بسیار سرسختی بوده‌ایم. من فکر می‌کنم در حال پیروز شدن در این نبرد هستیم، اما طی دو هفته آینده با اعلام پیروزی کامل، برنده واقعی آن خواهیم شد. این یک پیروزی کامل خواهد بود که بسیار زود رخ خواهد داد.»
+رئیس‌جمهوری آمریکا در ادامه با اشاره به نابودی گسترده زیرساخت‌های نظامی ایران، این وضعیت را مصداق تحقق «صلح از طریق اقتدار» دانست و خاطرنشان کرد: «ما در حال حاضر مشغول مذاکره هستیم و آن‌ها به شدت می‌خواهند یک توافق بسیار خوب انجام دهند. آن‌ها اکنون حاضرند همه‌چیز را به ما واگذار کنند و توافق کنند که ایران هیچ سلاح هسته‌ای نداشته باشد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244444
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244444_1780960100.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد جمعی از ایرانیان شهر ساسکاتونِ کانادا، روز یک‌شنبه ۱۷ خرداد، در حمایت از مردم ایران و شاهزاده رضا پهلوی و در اعتراض به اعدام‌های جمهوری اسلامی، زنجیره انسانی تشکیل دادند و شعار «تغییر رژیم برای ایران» سر دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244443
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شبکه «آی۲۴» بامداد سه‌شنبه ۱۹ خرداد تصاویری از لحظه رهگیری و انهدام یک پهپاد پرتاب‌شده از سوی حوثی‌های یمن در آسمان شهر ایلات در جنوب اسرائیل منتشر کرد.
+
+بر اساس این گزارش، این پهپاد پیش از رسیدن به هدف توسط سامانه‌های دفاعی اسرائیل رهگیری و منهدم شد. مقام‌های اسرائیلی تاکنون گزارشی از تلفات یا خسارات احتمالی این حادثه منتشر نکرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244442
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️«ورزش سه» روز دوشنبه با انتشار تصاویری گزارش داد، بازیکنان تیم فوتبال ایران پس از ورود به مکزیک، اولین جلسه تمرین خود را با دویدن دور استخر محل اقامت خود در شهر تیخوانا برگزار کردند. تصاویری که انتشار آن واکنش کاربران شبکه‌های اجتماعی را به دنبال داشت. درحالی‌که تنها سه روز تا آغاز جام جهانی ۲۰۲۶ مانده، تیم فوتبال ایران همچنان با بحران ویزا، انتقال اجباری محل اقامتش از آمریکا به مکزیک و انتقادهای گسترده درباره کیفیت آماده‌سازی‌ روبرو است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244441
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244441_1780960102.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد جمعی از ایرانیان شهر رجاینای کانادا، به‌مناسبت سالروز تولد کیان پیرفلک، کودک کشته‌شده به‌دست ماموران جمهوری اسلامی در جریان اعتراضات سال ۱۴۰۱، روز یک‌شنبه ۱۷ خرداد روی پل آلبرت تجمع کردند و یاد او را گرامی داشتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244440
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244440_1780960103.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زلزله‌ای به بزرگی ۵ منطقه سرگزی احمدی در شمال هرمزگان را لرزاند. هنوز از تلفات یا خسارت‌های احتمالی این زمین‌لرزه گزارشی منتشر نشده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14091
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس‌جمهور ترامپ درباره لیندزی گراهام:
+
+او برجسته است. مدت‌ها در کنار من بوده است.
+ما ابتدا مدت‌ها پیش بر سر موضوع کاندیداتوری با هم مبارزه کردیم. او کاندیدا بود و من هم کاندیدا بودم، و ما مبارزه کردیم، و من شروع کردم به این که بفهمم او فردی بسیار بااستعداد است.
+بعد از آن مبارزه، ما بهترین دوستان شدیم و او به من به اندازه هر کسی در سنا کمک کرده است.
+@withyashar
+</div>
+
+## WithYashar — post 14090
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: در دو هفته آینده "پیروزی کامل" را بر ایران اعلام خواهم کردم!
+
+رئیس جمهور ایالات متحده: من فکر می‌کنم که ما در آن نبرد پیروز می‌شویم، اما شما واقعاً در دو هفته آینده که پیروزی کامل را اعلام می‌کنیم، پیروز خواهید شد.
+
+این یک پیروزی کامل خواهد بود. خیلی زود این اتفاق می افتد و قیمت نفت پایین می آید.
+@withyashar
+</div>
+
+## WithYashar — post 14089
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کن کلیپنشتاین، روزنامه‌نگار آمریکایی، مدعی شده اسناد محرمانه‌ای را دیده که نشان می‌دهد بخشی از نیروهای لشکر ۸۲ هوابرد آمریکا در آوریل ۲۰۲۶ به‌طور مخفیانه به اسرائیل اعزام شده‌اند. به ادعای او، این نیروها در چارچوب برنامه‌ریزی مشترک آمریکا و اسرائیل برای سناریوهایی از جمله تصرف جزیره خارگ ایران و ایجاد یک منطقه ساحلی در داخل خاک ایران آماده شده بودند. این ادعا تاکنون از سوی پنتاگون یا دولت آمریکا به‌صورت رسمی تأیید نشده است.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342732
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342732_1780960104.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Heightened security across New York City after six people were injured in a stabbing attack near Penn Station and ahead of President Trump's arrival in Manhattan for Game 3 of the NBA Finals, FOX News' @BillMelugin_ reports.
+</div>
+
+## FoxNewsTwitter — post 342731
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342731_1780960105.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“There are people in the United States Senate right now who are not saints.”
+
+Sen. Bernie Sanders explained why he's backing Democratic Maine Senate candidate Graham Platner despite a growing list of scandalous allegations plaguing his campaign.
+
+Sanders pointed to Platner's struggles with PTSD and the treatment he has received to rebuild his life.
+
+The former presidential candidate also said that many of the lawmakers judging Platner have their own imperfections.
+</div>
+
+## pm_afshaa — post 92978
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92978_1780960107.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: دو هفته دیگه پیروزی واقعی رو جلوی ایران بدست میاریم و اعلام می‌کنیم!
+
+ما هر چی که تو این منطقه بود و میشد نابودش کرد، کامل له کردیم و خاکش کردیم؛ فکر کنم داریم این جنگ رو می‌بریم، ولی پیروزی واقعی‌ش رو دو هفته دیگه می‌بینید، وقتی اعلام کنیم: «پیروزی کامل».
+
+یه پیروزی تمام‌عیار میشه. خیلی زود اتفاق می‌افته و قیمت نفت هم حسابی میاد پایین. الان داریم باهاشون مذاکره می‌کنیم. اونا خیلی دلشون میخواد یه معامله خوب ببندن. حاضرن همه چی رو به ما بدن. حتی حاضرن قبول کنن که «هیچ سلاح هسته‌ای نداشته باشن».
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5486
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5486_1780960108.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💀
+🚨 منابع موثق به دژ می‎گویند در حملات اسرائیل به تأسیسات نظامی جمهوری اسلامی که روز دوشنبه ۱۸ خرداد ۱۴۰۵ روی داد دو پرسنل نیروی پدافند ارتش کشته شدند.
+
+بهمن حسینی و علیرضا عبیری عضو یگان ترابری بودند که موقعیت آنها لو رفته است. هر دو نفر اقدام به تغییر موقعیت می‌کنند که مورد اصابت موشک قرار می‌گیرند. هنوز مشخص نیست موشک‌ها از پهپاد شلیک شده یا دورایستا بودند.
+
+خبر کشته شدن این دو نفر رسانه‌ای نشد تا حکومت مجبور به انتقام فوری نشود.
+
+پیش‌تر چهار عضو سـ.ـپاه پاسداران در حمله آمریکا به قایق‌های تندرو در تنگه هرمز کشته شدند و خبر آن رسانه‌ای نشده بود.
+
+#ارتش #جنگ
+@DEJradio
+</div>
+
+## DEJradio — post 5485
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5485_1780960108.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 رسوایی تعرض به دختر ۱۴ ساله توسط بازیکن تیم جمهوری اسلامی؛
+از حواشی تیمی که حکومت پشت آن است اما‌ مردم نه!
+
+گزارش: مهدی رستم‌پور
+
+#فوتبال #تیم_ملی #تجاوز
+@DEJradio
+</div>
+
+## mamlekate — post 103648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 شبکه آمریکایی: نتانیاهو در حال تدارک حمله‌ای بزرگ به جمهوری اسلامی بود که ترامپ او را منصرف کرد
+
+شبکه خبری آمریکایی سی‌ان‌ان به نقل از یک منبع اسرائیلی و یک منبع آگاه رسمی آمریکایی گزارش داد، اسرائیل روز دوشنبه در حال آماده‌سازی برای «یک حمله بزرگ در تهران» بود که دونالد ترامپ، رئیس جمهوری آمریکا، در تماسی تلفنی با بنیامین نتانیاهو، نخست وزیر اسرائیل از او خواست تا از حملات تلافی‌جویانه بیشتر خودداری کند.
+
+@mamlekate
+</div>
+
+## VahidOnline — post 76089
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76089_1780960110.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران در اظهاراتی جدید به حمله موشکی شب گذشته از خاک یمن به سوی اسرائیل واکنش نشان داده و آن را نشانه‌ای آنچه «هوشمندی جبهه مقاومت» خوانده، دانسته است.
+
+آقای قاآنی روز دوشنبه گفت: «اقدام به موقع و با اقتدار یمن قهرمان نشان از هوشمندی جبهه مقاومت دارد اگر لازم شد دیگران نیز می‌آیند. شرارت‌های رژیم صهیونی و آمریکا در این منطقه عکس‌العمل جبهه متحد مقاومت را در پی خواهد داشت. رزمندگان بدون مرز مشرف برگلوگاههای عبور شما هستند به تعرض ادامه دهید گلوی شما را خواهند گرفت.»
+
+یکشنبه شب ارتش اسرائیل اعلام کرد که پرتاب یک موشک از خاک یمن به سوی اسرائیل را رصد کرده و کمی بعد از رهگیری آن خبر داد.
+
+کمی بعد حوثی‌های یمن حمله به اسرائیل را تایید کردند و گفتند که «منطقه اشغالی یافا» را هدف قرار داده‌اند.
+
+حوثی‌ها همچنین در بیانیه‌ای «ممنوعیت کامل و مطلق» تردد دریایی اسرائیل در دریای سرخ را اعلام کردند:
+
+«ما در قبال محاصره ناعادلانه تحمیل‌شده بر مردم خود و مردم محور جهاد و مقاومت در فلسطین، غزه، ایران، لبنان و عراق ساکت نخواهیم نشست.»
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341261
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341261_1780960111.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد جمعی از ایرانیان شهر ساسکاتونِ کانادا، روز یک‌شنبه ۱۷ خرداد، در حمایت از مردم ایران و شاهزاده رضا پهلوی و در اعتراض به اعدام‌های جمهوری اسلامی، زنجیره انسانی تشکیل دادند و شعار «تغییر رژیم برای ایران» سر دادند.
+</div>
+
+## IranIntlTV — post 341260
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341260_1780960112.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مئیر جاودانفر، تحلیل‌گر مسائل اسرائیل، گفت: «حزب‌الله سرباز نظام ولایت فقیه است که از خاک لبنان برای عملیات علیه اسرائیل استفاده می‌کند. موثرترین راه بازدارندگی، حمله به زیرساخت‌های نظامی جمهوری اسلامی در داخل ایران است، نه صرفا هدف قرار دادن نیروهای نیابتی آن در کشورهای منطقه.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341259
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341259_1780960113.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا نامور حقیقی، تحلیل‌گر سیاسی، درباره اظهارات اسماعیل قاآنی درباره عملیاتی شدن آنچه «کمربند امنیتی مقاومت» از تنگه هرمز تا باب‌المندب نامیده، گفت: «این اقدام بیش از آنکه به طرف مقابل ضربه‌ای راهبردی وارد کند، می‌تواند هزینه‌های سیاسی، اقتصادی و امنیتی بیشتری برای خود جمهوری اسلامی ایجاد کند.»
+
+او افزود: «تجربه تاریخی نیز نشان داده است که هرگاه نظم تجارت جهانی در معرض تهدید قرار گیرد، اجماع بین‌المللی برای مقابله با آن با سرعت بیشتری شکل می‌گیرد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341258
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341258" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ سهم مردم ایران از حملهٔ موشکی سپاه به اسرائیل
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341257
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341257_1780960115.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پایان نخستین جلسه تمرینی تیم ملی در تیخوانا
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/IAZH4WOm_kE
+@iranintltv
+</div>
+
+## IranIntlTV — post 341256
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341256" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: صد روز بدون خامنه‌ای
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341255
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341255_1780960116.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد جمعی از ایرانیان شهر رجاینای کانادا، به‌مناسبت سالروز تولد کیان پیرفلک، کودک کشته‌شده به‌دست ماموران جمهوری اسلامی در جریان اعتراضات سال ۱۴۰۱، روز یک‌شنبه ۱۷ خرداد روی پل آلبرت تجمع کردند و یاد او را گرامی داشتند.
+</div>
+
+## IranIntlTV — post 341254
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341254_1780960118.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «امروز صدمین روز ایران بدون خامنه‌ای است؛ ۱۰۰ روزی که جمهوری اسلامی نه توان برگزاری مراسم تشییع و دفن رهبر قبلی خود را داشته و نه توانسته از رهبر جدیدش رونمایی کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341253
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341253_1780960119.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زلزله‌ای به بزرگی ۵ منطقه سرگزی احمدی در شمال هرمزگان را لرزاند. هنوز از تلفات یا خسارت‌های احتمالی این زمین‌لرزه گزارشی منتشر نشده است.
+https://iranintl.com/202606083912
+</div>
+
+## IranIntlTV — post 341252
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341252_1780960119.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نشان‌هایی که اعضای تیم ملی فوتبال در هنگام ورود به مکزیک بر لباس‌های خود داشتند ممکن است با جریمه‌هایی برای تیم ملی مواجه شود.
+
+🔹اعضای تیم ملی نشان‌های پینی روی یقه کت‌های خود نصب کرده بودند که روی آن نوشته شده بود «#168»؛ مشابه یک هشتگ که هواداران جمهوری اسلامی استفاده می‌کنند.
+
+🔹سایت اتلتیک در گزارشی به نقل از وزارت خارجه جمهوری اسلامی می‌نویسد که این هشتگ یادبود تعداد کودکانی است که در نخستین روز جنگ ۴۰ روزه در یک مدرسه ابتدایی کشته شدند.
+
+🔹به نوشته این رسانه، تیم ایران بعدازظهر شنبه هنگامی که اردوی پیش از جام جهانی خود در آنتالیا، ترکیه را ترک کرده بود، این نشان‌ها را به همراه نداشت. در طول سفر با توقفی برای سوخت‌گیری در اسپانیا، نشان‌ها به یقه کت‌های سرمه‌ای آن‌ها متصل شد و هنگام پیاده شدن در مکزیک و هنگام حرکت به سمت هتل تیم قابل مشاهده بود.
+
+🔹مقررات فیفا تصریح می‌کند که «تجهیزات نباید دارای هرگونه شعار، بیانیه یا تصویر سیاسی، مذهبی یا شخصی باشد» و در غیر این صورت بازیکنان و یا تیم ممکن است توسط برگزارکننده مسابقه یا فیفا با مجازات مواجه شوند.
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 220076
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کنگره آمریکا در جستجوی راه حل؛ مذاکره با جمهوری اسلامی یا مهار تنش‌های منطقه‌ای
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220075
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220075_1780960120.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کاربران: جمهوری اسلامی منافع نیابتی‌ها در خارج را بر سرنوشت و جان مردم ایران مقدم می‌شمارد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220074
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220074_1780960121.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ارتش اسرائيل اعلام کرد که یک پهپاد شلیک‌شده از سمت یمن را سرنگون کرد. ارتش اسرائيل پیشتر اعلام کرد که بود این پهپاد وارد منطقه جنوبی ایلات شده است. شورشیان حوثی مورد حمایت جمهوری اسلامی بارها به سمت اسرائيل پهپاد و موشک شلیک کرده‌اند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16240
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16240_1780960121.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ گزارش: آمریکا مخفیانه نیروهای لشکر ۸۲ هوابرد را به اسرائیل اعزام کرده بود
+
+کن کلیپنستین گزارش داده است که آمریکا در فروردین‌ماه به‌صورت محرمانه بخشی از نیروهای لشکر ۸۲ هوابرد را به اسرائیل اعزام کرده بود.
+بر اساس این گزارش، نیروهایی از گردان دوم هنگ ۵۰۱ پیاده‌نظام موسوم به «جرونیمو» با دستور موقت به اسرائیل منتقل شدند، اما پنتاگون هرگز این استقرار را به‌طور رسمی اعلام نکرد.
+در این گزارش ادعا شده که این نیروها در چارچوب طرح‌های مشترک آمریکا و اسرائیل برای سناریوهای احتمالی مرتبط با ایران به منطقه اعزام شده‌اند و بخشی از آنها همچنان در اسرائیل حضور دارند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹 ناوهای هواپیمابر عملیاتی نیروی دریایی آمریکا (۲۰۲۶) ⚓ کلاس نیمیتز (Nimitz Class) • USS Nimitz (CVN-68) — پایگاه: نورفک، ویرجینیا • USS Dwight D. Eisenhower (CVN-69) — پایگاه: نورفک، ویرجینیا • USS Carl Vinson (CVN-70) — پایگاه: سن‌دیگو، کالیفرنیا •…
+</div>
+
+## Persian_Trend_Official — post 16238
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16238_1780960121.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینا جدی این رو پخش کردن یا از کلیپ های طنز مجاهدینه ؟! 😦
+</div>
+
+## Persian_Trend_Official — post 16237
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸🛥 آخرین بروزرسانی از وضعیت ناوگروه‌های نیروی دریایی ایالات متحده آمریکا در سراسر جهان نشان می‌دهد که ناوهای هواپیمابر ابراهام لینکلن و جورج دبلیو بوش به همراه ناوگروه‌های ضربت خود و با همکاری ناو تهاجمی آبی-خاکی یو‌اس‌اس تریپولی، همچنان محاصره دریایی علیه…
+</div>
+
+## Persian_Trend_Official — post 16236
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16236_1780960123.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشستم به در نگاه میکنم دریچه آه میکشد
+</div>
+
+## Persian_Trend_Official — post 16235
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16235_1780960123.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸🛥 آخرین بروزرسانی از وضعیت ناوگروه‌های نیروی دریایی ایالات متحده آمریکا در سراسر جهان نشان می‌دهد که ناوهای هواپیمابر ابراهام لینکلن و جورج دبلیو بوش به همراه ناوگروه‌های ضربت خود و با همکاری ناو تهاجمی آبی-خاکی یو‌اس‌اس تریپولی، همچنان محاصره دریایی علیه بنادر ایران را ادامه می‌دهند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16234
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش هایی از شنیده شدن صدای انفجار در اطراف گیشا در تهران
+</div>
+
+## Persian_Trend_Official — post 16233
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16233_1780960124.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ یک پهپاد از سوی حوثی‌ها شلیک شده بود و با شلیک دو موشک رهگیر سرنگون شد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21886
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رئیس‌جمهور ترامپ می‌گوید ایالات متحده در دو هفته آینده «پیروزی کامل» بر ایران را اعلام خواهد کرد:
+
+من فکر می‌کنم ما در آن نبرد پیروز می‌شویم، اما شما واقعاً در دو هفته آینده وقتی که پیروزی کامل را اعلام کنیم، آن را خواهید برد.
+
+این یک پیروزی کامل خواهد بود. خیلی زود اتفاق خواهد افتاد و قیمت نفت به شدت کاهش خواهد یافت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21885
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21885_1780960124.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اعزام لشگر ۸۲ هوابرد ایالات متحده به اسرائیل
+
+کن کلیپنشتاین، روزنامه‌نگار آمریکایی، اعلام کرد که ایالات متحده طبق دستور استقرار ارتش مورخ ۷ آوریل ۲۰۲۶، مخفیانه عناصری از لشگر ۸۲ هوابرد را به اسرائیل اعزام کرد.
+
+این دستور، بخش‌هایی از گردان دوم، هنگ ۵۰۱ پیاده نظام - گردان «جرونیمو» - را به صورت موقت به اسرائیل اعزام می‌کند.
+
+پنتاگون هرگز علناً این استقرار را تأیید نکرد و فقط اظهار داشت که لشگر ۸۲ تحت فرماندهی مرکزی عازم خاورمیانه است.
+
+این استقرار با طرح‌های احتمالی مشترک ایالات متحده و اسرائیل که از فوریه تکمیل شده‌اند، برای تصرف جزیره خارگ و ایجاد قلمرو ساحلی در داخل ایران مرتبط است.
+
+نیروی ۸۲ هوابرد، نیروی واکنش سریع برتر ارتش است که برای فرود با چتر نجات در قلمرو دشمن آموزش دیده است. برخی از نیروها از ماه ژوئن در اسرائیل باقی مانده‌اند، اگرچه هیچ عملیات زمینی قریب‌الوقوعی در کار نیست.
+
+مسکوت نگه داشتن این استقرار، از بحث عمومی در مورد عملیات مشترک آمریکا و اسرائیل در داخل ایران جلوگیری کرد و از «حساسیت‌های کشور میزبان» با شرکای عرب خلیج فارس طفره رفت.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21884
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21884_1780960125.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مارک لوین، تحلیلگر نزدیک به ترامپ :
+
+جوانان ایران دوباره درحال اعتراض هستند، مردم ایران را مسلح کنید
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش خبرنگار مهر:
+
+زمین‌لرزه‌ای به بزرگی ۵ ریشتر، بامداد سه‌شنبه مرز استان‌های هرمزگان و کرمان در حوالی سرگز را لرزاند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21882
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21882_1780960125.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محور مقاومت
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283216
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283216_1780960125.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران در اظهاراتی جدید به حمله موشکی شب گذشته از خاک یمن به سوی اسرائیل واکنش نشان داده و آن را نشانه «هوشمندی جبهه مقاومت» دانسته است.
+
+آقای قاآنی روز دوشنبه گفت: «اقدام به موقع و با اقتدار یمن قهرمان نشان از هوشمندی جبهه مقاومت دارد اگر لازم شد دیگران نیز می‌آیند. شرارت‌های رژیم صهیونی و آمریکا در این منطقه عکس‌العمل جبهه متحد مقاومت را در پی خواهد داشت. رزمندگان بدون مرز مشرف برگلوگاههای عبور شما هستند به تعرض ادامه دهید گلوی شما را خواهند گرفت.»
+
+یکشنبه شب ارتش اسرائیل اعلام کرد که پرتاب یک موشک از خاک یمن به سوی اسرائیل را رصد کرده و کمی بعد از رهگیری آن خبر داد.
+
+کمی بعد حوثی‌های یمن حمله به اسرائیل را تایید کردند و گفتند که «منطقه اشغالی یافا» را هدف قرار داده‌اند.
+
+حوثی‌ها همچنین در بیانیه‌ای «ممنوعیت کامل و مطلق» تردد دریایی اسرائیل در دریای سرخ را اعلام کردند: «ما در قبال محاصره ناعادلانه تحمیل‌شده بر مردم خود و مردم محور جهاد و مقاومت در فلسطین، غزه، ایران، لبنان و عراق ساکت نخواهیم نشست.»
+📷Reuters
+
+https://bbc.in/3S9Xw5S
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ جام جهانی داره شروع میشه و بازار شرطبندی و پیشبینی از همیشه داغ تر هستش 
+🔥 https://t.me/+lCR7HeYTU15iNjM0 https://t.me/+lCR7HeYTU15iNjM0 A18 
+⚡️ اگر میخوای با آنالیز های رضا کینگ کونگ پول دربیاری توی این جام حتما عضو کانال شو ✅
+</div>
+
+## Dirty_Kids — post 391431
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391431_1780960126.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ جام جهانی داره شروع میشه و بازار شرطبندی و پیشبینی از همیشه داغ تر هستش 
+🔥
+
+https://t.me/+lCR7HeYTU15iNjM0
+https://t.me/+lCR7HeYTU15iNjM0
+A18
+
+⚡️ اگر میخوای با آنالیز های رضا کینگ کونگ پول دربیاری توی این جام حتما عضو کانال شو ✅
+</div>
+
+## Dirty_Kids — post 391430
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391430_1780960126.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391429
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391429_1780960127.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روح‌و و روان ما؛ جایی در تاریخ جا ماند! (با تشکر از واتزاور)
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391428
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391428_1780960127.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیکتاتور ها و تروریستها قبر ندارن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391427
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391427_1780960127.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دهنتونو گاییدم کی به شماها میگه تولید محتوا کنید؟ همونم گاییدم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391426
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391426_1780960129.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فیلم وایرال شده از دو تا رفیقِ پیرمرد تو بندر گناوه که همدیگرو تاب میدن و کیف میکنن.
+
++ بفرست برای اونکه توی پیری هم قراره اینطوری باهم کیف کنین.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391425
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+پس از برقراری صلح در خاورمیانه، من با خواهران منصوریان صحبت کردم. اونها منو شگفت زده کردند. خواهران بزرگ و قوی، که روزی ۴۷۰ تا شنا میرن و پیت‌هگست رو با یک دست بلند میکنند. اونها رو وزیر دفاع میکنم. شایدم نکنم. نمیدونم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391424
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ببین ما کجا زندگی می‌کنیم که قطع نشدن اینترنت عجیب‌تر از جنگ شدنه
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391423
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391423_1780960129.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی؛ همون بلایی که سر صدام اومد سر جمهوری اسلامی میاد
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 126420
+
+<div align="center">
+  <a href="telegram/content/alonews_126420_1780960131.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ دربارهٔ ایران:
+«ما الان داریم مذاکره می‌کنیم، و آنها می‌خواهند یک توافق بسیار خوب انجام دهند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126419
+
+<div align="center">
+  <a href="telegram/content/alonews_126419_1780960131.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: آمریکا ظرف دو هفته آینده «پیروزی کامل» بر ایران را اعلام خواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126418
+
+<div align="center">
+  <a href="telegram/content/alonews_126418_1780960132.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈لشکر ۸۲ هوابرد ارتش ایالات متحده در اوایل آوریل به طور مخفیانه به اسرائیل اعزام شدند، به عنوان بخشی از برنامه‌ریزی مشترک اضطراری بین اسرائیل و ایالات متحده که از فوریه تکمیل شده است، برای تصرف جزیره خارگ تحت کنترل ایران در خلیج فارس و ایجاد قلمروی ساحلی در داخل ایران، طبق دستوری که کن کلیپنشتاین دیده است.
+
+
+🔴این دستور که در ۷ آوریل ۲۰۲۶ صادر شده، به چتربازان از گردان دوم، هنگ ۵۰۱ پیاده‌نظام، لشکر ۸۲ هوابرد - گردان معروف «جرونیمو!» - دستور داده است که به طور «ماموریت موقت» به اسرائیل اعزام شوند، در حرکتی که پیش از این توسط پنتاگون گزارش نشده بود. وقتی درباره تعداد نیروهای اعزام شده به اسرائیل و مأموریت آنها سؤال شد، پنتاگون سوالات را به فرماندهی مرکزی ایالات متحده (سنتکام) ارجاع داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126417
+
+<div align="center">
+  <a href="telegram/content/alonews_126417_1780960132.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈در هیئت‌ها چه میگذرد؟
+
+
+🔴کُفرخوانی در هیئت‌ها توسط مداح‌ها برای ریتم بهتر و جذب یوزر!
+
+
+🔴سالهاست که هیئت‌ها از یک مکان مذهبی به یک مکان جهت فستیوال موزیک جاز و راک با ماسک مذهبی تبدیل شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 126416
+
+<div align="center">
+  <a href="telegram/content/alonews_126416_1780960134.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: فکر نمی‌کنم نتانیاهو دوباره به جنگ با ایران برگردد، چون اوضاع خوب پیش می‌رود و ایران دارد کاری را که باید انجام دهد، انجام می‌دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 01:14
 ---
 
