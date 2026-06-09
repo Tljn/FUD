@@ -7,6 +7,360 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/19 05:41
+---
+
+## VahidOOnLine — post 244459
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244459_1780971066.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، در گفتگو با شبکه «فاکس نیوز» با تاکید بر تقدم منافع واشنگتن در قبال تحولات خاورمیانه اعلام کرد: «ایالات متحده و اسرائیل منافع مشترک زیادی دارند، اما موقعیت‌هایی نیز وجود دارد که این منافع از هم جدا می‌شوند. موضع ترامپ در این‌باره بسیار شفاف است و هدف اصلی او در قبال ایران، اطمینان از عدم دستیابی این کشور به سلاح هسته‌ای است.» ونس با اشاره به تحولات یک سال‌و‌نیم گذشته افزود: «ما به لطف رویدادهای اخیر، فضا و بستر لازم را ایجاد کرده‌ایم و رئیس‌جمهور بر این باور است، و من هم فکر می‌کنم او درست می‌گوید، که می‌توانیم به یک توافق هسته‌ای بلندمدت با تهران دست یابیم.» معاون رئیس‌جمهوری آمریکا در پایان با اشاره به موضع احتمالی تل‌آویو خاطرنشان کرد: «اسرائیل ممکن است از این توافق خوشش بیاید یا نیاید، اما از نظر ما این اقدام در راستای تامین منافع عالی ایالات متحده است. ما به تلاش‌های خود در این مسیر ادامه می‌دهیم، زیرا رئیس‌جمهور برای همین کار انتخاب شده و این تنها راه برای خدمت شایسته به مردم آمریکا است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244458
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244458_1780971067.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق اطلاعات رسیده به ایران‌اینترنشنال، آمنه بیرقداری کِرهرودی، زندانی سیاسی۶۱ ساله اهل فریمان، در زندان دچار حمله عصبی شده است و شرایط سلامتی او وخیم است. همسر آمنه بیرقداری پس از آخرین بازداشت او در اردیبهشت ۱۴۰۵، دچار سکته مغزی شد و به کما رفت که این وضعیت فشار روانی بر این زندانی را تشدید کرده است.
+آمنه بیرقداری ۶۱ ساله و مادر چهار فرزند است و همسرش علی انبایی فریمانی نیز معلم بازنشسته و مجروح شیمیایی جنگ ایران و عراق ساله است.
+این زندانی سیاسی به چهار سال حبس تعلیقی و یک سال حبس تعزیری محکوم شده که هشت ماه آن اجرایی است. او از سال ۸۸ سابقه فعالیت سیاسی دارد و پیش از این در سال ۱۳۹۶ به اتهام اخلال در امنیت ملی و تشویش اذهان عمومی بازداشت و ۲۱۰ روز در زندان وکیل‌آباد مشهد در حبس بود.
+در شب ۱۷ دی‌ماه ۱۴۰۳ ماموران انتظامی و اطلاعات سپاه با حکم دادستان به خانه آمنه بیرقداری در فریمان یورش بردند و او را به اتهام لیدری اعتراضات با خشونت و ضرب‌وشتم به همراه پسرش، ایمان انبایی فریمانی (مبتلا به سرطان مغر استخوان) و یک دخترش بازداشت شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244457
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تصاویر اختصاصی رسیده به ایندیپندنت فارسی بامداد سه‌شنبه ۱۹ خرداد نشان می‌دهد هم‌زمان با آغاز مسابقه فینال لیگ بسکتبال ان‌بی‌ای(NBA)، خیابان‌های مرکزی منهتن و ۹ خیابان منتهی به ورزشگاه مدیسن اسکوئر گاردن به طور کامل مسدود شده‌اند.
+
+پلیس نیویورک و سرویس مخفی آمریکا تدابیر امنیتی گسترده‌ای را در اطراف ورزشگاه اجرا کرده‌اند. این مسابقه از آن جهت تاریخی است که نیویورک نیکس پس از ۲۷ سال بار دیگر به فینال ان‌بی‌ای راه یافته و برای پایان دادن به ۵۳ سال انتظار برای قهرمانی تلاش می‌کند.
+
+
+دونالد ترامپ با حضور در ورزشگاه مدیسن اسکوئر گاردن برای تماشای بازی سوم فینال ان‌بی‌ای، به نخستین رئیس‌جمهور مستقر آمریکا تبدیل شد که از نزدیک یک مسابقه فینال این رقابت‌ها را تماشا می‌کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244456
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244456_1780971068.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ تصاویر منتشرشده در شبکه‌های اجتماعی، لحظه تکان خوردن شدید یک ساختمان ۳۶ طبقه را در جریان زمین‌لرزه‌ای به بزرگی ۷.۸ در جنوب فیلیپین نشان می‌دهند. مقام‌های این کشور اعلام کردند این زمین‌لرزه دست‌کم ۳۵ کشته برجا گذاشته و سونامی‌های کوچکی را در مناطق جنوبی فیلیپین ایجاد کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244455
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244455_1780971069.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، پس از سپری کردن تعطیلات آخر هفته در باشگاه گلف خود در بدمینسترِ نیوجرسی، با اسکورت کاروان سرویس مخفی، وارد ورزشگاه «مدیسن اسکوئر گاردن» در منهتن نیویورک شد. بر اساس گزارش خبرنگاران همراه رئیس‌جمهوری، ترامپ با حضور در بازی سوم این رقابت حساس، رسما به نخستین رئیس‌جمهور مستقر در تاریخ آمریکا تبدیل می‌شود که یک مسابقه نهایی از رقابت‌های بسکتبال ان‌بی‌ای (NBA) را از نزدیک تماشا می‌کند. رویدادی تاریخی که در کنار حضور او در مسابقه سال گذشته «سوپر بول» در نیواورلئان، رکورد بی‌سابقه دیگری را از حضور یک رئیس‌جمهور در بزرگ‌ترین رویدادهای ورزشی ایالات متحده به ثبت می‌رساند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244454
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244454_1780971072.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ العربیه انگلیسی بامداد سه‌شنبه ۱۹ خرداد به نقل از مقام‌های آمریکایی گزارش داد ارتش آمریکا در دفاع از اسرائیل در برابر حمله موشکی اخیر جمهوری اسلامی مشارکت داشته و برای رهگیری بخشی از موشک‌های بالستیک شلیک‌شده از سوی تهران اقدام کرده است.
+
+این مقام‌ها گفتند ارزیابی‌های اولیه نشان می‌دهد نیروهای آمریکایی موفق شده‌اند چندین موشک بالستیک را رهگیری کنند. به گفته آنان، هم تجهیزات زمینی و هم سامانه‌های دریایی آمریکا در این عملیات مشارکت داشته‌اند.
+
+بر اساس این گزارش، ارتش اسرائیل اعلام کرده است جمهوری اسلامی حدود ۳۰ موشک بالستیک به سوی اسرائیل شلیک کرده و حوثی‌های یمن نیز دو موشک دیگر به سمت اسرائیل پرتاب کرده‌اند.
+
+العربیه به نقل از مقام‌های آمریکایی افزود صدها نیروی نظامی آمریکا در اسرائیل حضور دارند و بخشی از آن‌ها در عملیات دفاع هوایی و موشکی مشارکت می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، در پی بالا گرفتن تنش‌های سیاسی میان تهران و واشنگتن، کاروان تیم ملی فوتبال ایران در میان تدابیر ویژه امنیتی و اسکورت گارد ملی مکزیک، روز دوشنبه، هتل محل اقامت خود در شهر تیخوانای مکزیک را به مقصد استادیوم «کالینته» ترک کرد. درحالی‌که فدراسیون فوتبال ایران در آخرین لحظات به دلیل ابهامات امنیتی و برای به حداقل رساندن حضور بازیکنان در خاک آمریکا، مجبور به انتخاب مکزیک به عنوان محل اردوی اصلی خود شد، واشنگتن با وجود صدور دیرهنگام ویزای بازیکنان، از ورود ۱۵ نفر از اعضای کاروان ۷۰ نفره ایران از جمله «کادر اداری کلیدی» ممانعت به عمل آورد. اقدامی که اعتراض شدید فدراسیون فوتبال جمهوری اسلامی را در پی داشت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244452
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244452_1780971072.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ابراهیم عزیزی، رئیس کمیسیون امنیت ملی و سیاست خارجی مجلس، در گفتگو با سی‌ان‌ان گفت در مذاکرات میان تهران و واشنگتن هیچ گفتگویی درباره اورانیوم، مواد غنی‌سازی‌شده، فرآیند غنی‌سازی و مسائل هسته‌ای در جریان نیست.
+
+اظهارات رئیس کمیسیون امنیت ملی مجلس در حالی مطرح می‌شود که مقام‌های آمریکایی و جمهوری اسلامی در هفته‌های اخیر بارها درباره روند مذاکرات و موضوعات مورد بحث میان دو طرف مواضع متفاوتی مطرح کرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342747
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342747_1780971072.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump chats with NBA Commissioner Adam Silver during Game 3 of the NBA Finals at Madison Square Garden.
+
+Also in attendance was Nassau County Executive Bruce Blakeman, who is currently running for governor of New York as a Republican challenger to Gov. Kathy Hochul.
+</div>
+
+## FoxNewsTwitter — post 342746
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342746_1780971074.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"American elite culture was forming me to be kind of a bad person."
+
+Vice President JD Vance says it wasn't politics that brought him back to faith — it was the need to be a good husband and father.
+
+Speaking with Jesse Watters ahead of the release of his new book Communion: Finding My Way Back to Faith, Vance said the more he thought about raising children and building a family with his wife Usha, the more he was drawn to Catholicism and away from a culture focused on "prestige" instead of what truly matters. |@JesseBWatters
+</div>
+
+## FoxNewsTwitter — post 342745
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342745_1780971077.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump was spotted chatting with New York Knicks and Madison Square Garden owner James Dolan in his suite during Game 3 of the NBA Finals.
+
+Trump, who became the first sitting U.S. president to attend an NBA Finals game, is taking in the action alongside family members and top administration officials.
+</div>
+
+## FoxNewsTwitter — post 342741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump is making history at Madison Square Garden.
+
+Trump is attending Game 3 of the NBA Finals between the Knicks and Spurs, becoming the first sitting U.S. president to attend an NBA Finals game.
+
+The president was joined by Interior Secretary Doug Burgum, EPA Administrator Lee Zeldin, Transportation Secretary Sean Duffy, Kai Trump, and Jared Kushner as the Knicks host their first Finals game in New York in decades.
+</div>
+
+## FoxNewsTwitter — post 342740
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342740_1780971079.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"USA! USA! USA!"
+
+Chants erupted throughout Madison Square Garden during Game 3 of the NBA Finals with President Trump in attendance.
+</div>
+
+## FoxNewsTwitter — post 342739
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342739_1780971080.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump arrives at Madison Square Garden for Game 3 of the NBA Finals.
+
+The president was seen entering his suite ahead of the Knicks-Spurs matchup alongside EPA Administrator Lee Zeldin, Transportation Secretary Sean Duffy and granddaughter Kai Trump.
+
+With the Knicks looking to take a commanding 3-0 series lead, the atmosphere inside MSG is electric as celebrities, cabinet officials, and die-hard fans pack the arena for one of the biggest nights in New York sports in decades.
+</div>
+
+## FoxNewsTwitter — post 342738
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342738_1780971083.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+VP Vance slams Gov. Tim Walz over rampant fraud in his state: "Clearly people weren't taking fraud seriously ... We're gonna prosecute it, we have to." https://twitter.com/JesseBWatters/status/2064139945405497564#m
+</div>
+
+## FoxNewsTwitter — post 342737
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342737_1780971085.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Spencer Pratt will miss the Los Angeles mayoral runoff election after city council member Nithya Raman surpasses him for second place behind current Mayor Karen Bass, according to the Associated Press. | @JesseBWatters
+</div>
+
+## FoxNewsTwitter — post 342736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING NEWS: AP projects Nithya Raman will advance in LA mayor's race. She will face incumbent Mayor Karen Bass in the general election.
+</div>
+
+## IranIntlTV — post 341269
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341269_1780971087.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق اطلاعات رسیده به ایران‌اینترنشنال، آمنه بیرقداری کِرهرودی، زندانی سیاسی۶۱ ساله اهل فریمان، در زندان دچار حمله عصبی شده و شرایط سلامتی او وخیم است. همسر آمنه بیرقداری پس از آخرین بازداشت او در اردیبهشت ۱۴۰۵، دچار سکته مغزی شد و به کما رفت که این وضعیت فشار روانی بر این زندانی را تشدید کرده است.
+آمنه بیرقداری ۶۱ ساله و مادر چهار فرزند است و همسرش علی انبایی فریمانی نیز معلم بازنشسته و مجروح شیمیایی جنگ ایران و عراق ساله است.
+این زندانی سیاسی به چهار سال حبس تعلیقی و یک سال حبس تعزیری محکوم شده که هشت ماه آن اجرایی است. او از سال ۸۸ سابقه فعالیت سیاسی دارد و پیش از این در سال ۱۳۹۶ به اتهام اخلال در امنیت ملی و تشویش اذهان عمومی بازداشت و ۲۱۰ روز در زندان وکیل‌آباد مشهد در حبس بود.
+در شب ۱۷ دی‌ماه ۱۴۰۳ ماموران انتظامی و اطلاعات سپاه با حکم دادستان به خانه آمنه بیرقداری در فریمان یورش بردند و او را به اتهام لیدری اعتراضات با خشونت و ضرب‌وشتم به همراه پسرش، ایمان انبایی فریمانی (مبتلا به سرطان مغر استخوان) و یک دخترش بازداشت کردند.
+دختر آمنه بیرقداری همان شب آزاد شد اما او و پسرش ایمان به بازداشتگاه اطلاعات سپاه در مشهد شدند منتقل و تحت شکنجه‌ روحی و جسمی قرار گرفتند. این مادر و پسر پس از مدتی به زندان وکیل‌آباد مشهد منتقل شدند، اما به مدت ۷۰ روز اجازه ملاقات یا تماس تلفنی با خانواده را نداشتند.
+در اوایل سال ۱۴۰۴، آمنه بیرقداری با وثیقه ۴ میلیارد تومانی و مدتی بعد پسرش با وثیقه مشابه و پرداخت ۱۰۰ میلیون تومان پول نقد آزاد شدند، اما «دادستان قناد» به هر دو هشدار داده بود اگر از فریمان خارج نشوند، وثیقه آن‌ها لغو می‌شود.
+در ۱۲ اردیبهشت ۱۴۰۵، دادستان قناد پس از اینکه متوجه شد آمنه بیرقداری از فریمان خارج نشده است، او را بازداشت کرد. همسرش علی انبایی فریمانی پس از بازداشت آمنه دچار سکته مغزی شد و از آن زمان در کما به سر می‌برد و در بیمارستان قائم مشهد بستری است.
+پس از به کما رفتن علی انبایی فریمانی، به آمنه بیرقداری تنها سه روز مرخصی از زندان داده شد و این زندانی پس از بازگشت به حبس به دلیل فشارهای عصبی در وضعیت وخیمی به سر می‌برد.
+همچنین بیماری سرطان استخوان ایمان انبایی، پسر آمنه که با قید وثیقه آزاد است، پس از تجربه شکنجه و تداوم فشارهای امنیتی تشدید شده است و همه این‌ها در حالی است که این خانواده بدون حکم رسمی و صرفا با فشار دادستان قناد، تحت نظارت امنیتی و در حصر خانگی هستند.
+
+
+https://iranintl.com/202606096573
+</div>
+
+## FarsiVOA — post 220087
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ می‌گوید آمریکا ممکن است ظرف دو هفته «پیروزی کامل» خود را بر جمهوری اسلامی اعلام کند
+
+▪️رئیس جمهوری آمریکا، دونالد ترامپ، عصر دوشنبه ۱۸ خرداد پیش‌بینی کرد که ایالات متحده می‌تواند ظرف دو هفته آینده «پیروزی کامل» بر جمهوری اسلامی ایران را اعلام کند و گفت مذاکره‌کنندگان ایرانی «حاضرند همه چیز را به ما بدهند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158851.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220086
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سفیر اسرائيل در آمریکا: لبنان ربطی به جمهوری اسلامی ندارد و دولت بیروت نیز با اسرائيل در این‌ مورد هم‌نظر است
+
+▪️سفیر اسرائیل در آمریکا، یخیل لایتر روز دوشنبه ۱۸ خرداد در گفت‌وگویی با شبکه فاکس‌نیوز گفت جمهوری اسلامی طی ۴۷ سال گذشته خواستار نابودی اسرائیل بوده و در این مسیر تلاش کرده است، اما به این هدف دست نیافته است و بر عکس، ایالات متحده و اسرائيل توانسته‌اند توانایی‌های نظامی جمهوری اسلامی را کاهش دهند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8158850.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220085
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تلاش آمریکا برای برقراری صلح و ثبات در لبنان در میانە جنگ افروزی جمهوری اسلامی و حزب‌الله
+@FarsiVOA
+</div>
+
+## BBCPersian — post 283232
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اولین پرواز در فرودگاه امام خمینی تهران به زمین نشست
+
+رسانه‌های ایران گزارش دادند که فرودگاه بین‌المللی تهران باز شد و اولین پرواز حامل حجاج از عربستان در اولین ساعات بامداد سه‌شنبه ۱۹ خرداد ماه در این فرودگاه به زمین نشست.
+
+در پی حمله موشکی ایران به اسرائیل و حملات هوایی و موشکی اسرائیل به چند شهر ایران در نیمه شب یکشنبه کلیه پروازها از مبدا و به مقصد فرودگاه امام خمینی تهران لغو شده بود.
+
+جواد صالحی،‌ معاون بهره‌برداری فرودگاه امام خمینی روز دوشنبه از برقرار شدن پروازها خبر داد و گفت که نخستین پرواز حجاج در فرودگاه امام به زمین نشست.
+
+https://bbc.in/4xiA1HR
+@BBCPersian
+</div>
+
+## BBCPersian — post 283231
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283231_1780971087.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+دونالد ترامپ، رئيس‌جمهور آمريکا، پيش‌بينی کرده است که ايالات متحده طی دو هفته آينده بتواند «پيروزی کامل» بر ايران را اعلام کند و مدعی شد مذاکره‌کنندگان ايرانی «آماده‌اند همه چيز را به ما بدهند».
+
+به گزارش سی‌بی‌اس - شریک کاری بی‌بی‌سی در آمریکا - آقای ترامپ شامگاه دوشنبه در يک گردهم‌آيی تلفنی برای حمايت از ليندسی گراهام، سناتور جمهوری‌خواه کارولينای جنوبی، و پاملا اوت، نامزد فرمانداری اين ايالت، گفت: «شما طی دو هفته آينده واقعا شاهد پيروزی خواهيد بود، زمانی که ما پيروزی کامل را اعلام کنيم. اين يک پيروزی کامل خواهد بود، خيلی زود اتفاق می‌افتد و قيمت نفت به شدت کاهش خواهد يافت.»
+
+رئیس‌جمهور آمریکا در ماه‌های اخير بارها پيش‌بينی‌های مشابهی درباره پايان سريع درگيری ميان آمريکا و ايران مطرح کرده است.
+
+اظهارات تازه ترامپ در حالی مطرح می‌شود که در روزهای اخير نشانه‌های متناقضی از روند مذاکرات و همزمان از ادامه تنش‌های نظامی ميان ايران، اسرائيل و متحدان آن‌ها مشاهده شده است.
+
+📷Al Bello/Getty Images
+
+پوشش زنده بی‌بی‌سی فارسی را ⬇️دنبال کنید:
+https://bbc.in/4xiA1HR
+@BBCPersian
+</div>
+
+## BBCPersian — post 283224
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیش از ۴۰۰ نفر از علاقه‌مندان چارلی چاپلین،‌ که با کلاه سیاه و سبیل خاص او و عصایی در دست سعی کرده بودند خود را شبیه این هنرمند فقید و اسطوره‌ سینمای کمدی و صامت کنند،‌ در موزه چاپلین در سوئیس گردهم آمدند، اما نتوانستند رکورد قبلی را بشکنند.
+
+رکورد قبلی مربوط به حضور ۶۶۲ نفر به شکل چارلی چاپلین در سال ۲۰۱۷ بود که در محل همین موزه ثبت شده بود.
+
+چارلی چاپلین به همراه همسرچهارمش، اونا و هشت فرزندشان تا زمان مرگش در سال ۱۹۷۷ در این خانه زندگی می‌کرد. او در دهه ۱۹۵۰ پس از آنکه به ظن داشتن گرایش‌های کمونیستی از ورود به ایالات متحده منع شد، به سوئیس نقل مکان کرد.
+
+شرکت‌کنندگان گفتند که این برنامه یادآور اندیشه‌های انساندوستانه‌ای است که چاپلین در فیلم‌های ماندگار خود مانند «دیکتاتور بزرگ»،‌ «پسربچه» و «عصرجدید» سعی در ترویج آنها را داشت.
+
+یکی از شرکت‌کنندگان گفت: «او از عشق، احترام و ارزش‌های زیبا دفاع می‌کرد و همه دور هم جمع شدیم برای گرامیداشت یاد چارلی چاپلین.»
+
+
+📷EPA/Shutterstock
+@BBCPersian
+</div>
+
+## BBCPersian — post 283223
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283223_1780971088.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رئیس مجلس شورای اسلامی ایران در پیامی صوتی که روز دوشنبه منتشر شد به حملات نظامی یکشنبه شب اشاره کرده و آن را تلویحا ضروری و موفقیت‌آمیز ارزیابی کرده است.
+
+آقای قالیباف در این پیام صوتی که خبرگزاری ایرنا متن آن را منتشر کرده گفته است: «اگر دیپلماسی را صرفا گفت و گو در اتاق های دربسته و لبخندهای دیپلماتیک بدانیم، از همان ابتدا شکست می‌خوریم و اگر صرفا به عملیات‌های نظامی و جنگ تکیه کنیم نمی‌توانیم از حقوق خود به طور کامل دفاع کنیم.»
+
+آقای قالیباف که سرپرستی هیئت مذاکره‌کننده ایران با آمریکا را بر عهده دارد،‌ گفت که از نظر او: «ماجرای لبنان نشان می‌دهد میدان دیپلماسی کنار میدان نظامی می‌تواند اسرائیل و دشمنان را کنار بزند. نه دیپلماسی مانع عملیات نظامی است و نه عملیات نظامی مانع دیپلماسی است.»
+
+او گفت: «یک بار با تهدید به حمله و قطع مذاکره، جلوی حمله اسرائیل به بیروت را می‌گیریم و بار دیگر با حمله نشان می‌دهیم ترسی از قطع مذاکرات نداریم و نتیجه این می‌شود که آنها مجبور می‌شوند عقب‌نشینی کنند و ما حق خود را تثبیت می‌کنیم.»
+
+📷Hamed Malekpour - ICANA News Agency via Getty Images
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/19 03:42
 ---
 
