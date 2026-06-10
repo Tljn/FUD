@@ -7,6 +7,1747 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/20 03:50
+---
+
+## VahidOOnLine — post 244601
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244601_1781050845.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تسنیم، خبرگزاری وابسته به سپاه پاسداران، بامداد چهارشنبه، تصاویری از عبور یک پهپاد «شاهد» را در آسمان عراق منتشر کرد.
+ارتش ایالات متحده با انتشار بیانیه‌ای رسمی اعلام کرد که در پاسخ به سرنگونی هلیکوپتر آپاچی آمریکا، حملاتی را به جنوب ایران انجام داده است. رسانه‌های داخلی از حملات به قشم، سیریک، جاسک، کوه مبارکه، بندرعباس و میناب در جنوب ایران خبر دادند. «سی‌ان‌ان» نیز گزارش داد که سپاه حملات موشکی و پهپادی خود را به سمت اهداف ایالات متحده در منطقه آغاز کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244600
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244600_1781050846.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک جانسون، رییس مجلس نمایندگان آمریکا، گفت پیشاپیش از دور جدید حملات آمریکا به جمهوری اسلامی با خبر شده بود. او این حمله‌ها را «متناسب و محدود» توصیف کرد و گفت این عملیات سامانه‌های راداری، موشکی و مراکز فرماندهی و کنترل را هدف گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244599
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244599_1781050847.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رضا دالمن، دانشجوی کارشناسی ارشد مهندسی کامپیوتر دانشگاه صنعتی شریف، با حکم شورای انضباطی این دانشگاه به اخراج و محرومیت از تحصیل در تمامی دانشگاه‌های کشور به مدت چهار سال محکوم شد.
+به گزارش خبرگزاری دانشجو، این حکم پس از تایید در شورای تجدیدنظر دانشگاه برای اجرا به وزارت علوم ارسال شده است. بر اساس این حکم، دالمن که ورودی سال ۱۴۰۳ مقطع کارشناسی ارشد مهندسی کامپیوتر است، از دانشگاه اخراج و از ادامه تحصیل در همه دانشگاه‌های کشور به مدت چهار سال محروم شده است.
+دادبان پیش‌تر گزارش داده بود که رضا دالمن، دانشجوی ۲۴ ساله دانشگاه صنعتی شریف، شب سال نو ۱۴۰۵ به اتهام آویختن عروسک موش به درخت بازداشت شده بود. او ۲۸ اسفندماه ۱۴۰۴ بازداشت و حدود یک ماه بعد با تودیع وثیقه آزاد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244598
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244598_1781050847.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش نیویورک‌تایمز در تازه‌ترین نشانه از نقش روزافزون سامانه‌های بدون سرنشین در جنگ‌های مدرن، یک شناور بدون سرنشین هدایت‌پذیر از راه دور (شهپاد) توانست دو خدمه هلیکوپتر تهاجمی آپاچی آمریکا را که روز دوشنبه در نزدیکی تنگه هرمز از سوی ایران سرنگون شد، نجات دهد.
+کاپیتان تیم هاوکینز، سخنگوی سنتکام، روز سه‌شنبه گفت این نخستین عملیات نجات آمریکا بوده که با استفاده از یک شناور سطحی خودران انجام شده است؛ شناوری که از راه دور توسط یک عامل انسانی هدایت می‌شد.
+هاوکینز در پیامی متنی اعلام کرد: «شناور دریایی که در عملیات نجات خدمه آپاچی در سواحل عمان مشارکت داشت، یک شناور سطحی بدون سرنشین از نوع کورسیر متعلق به نیروی دریایی آمریکا بود که توسط گروه عملیاتی ۵۹ ناوگان پنجم آمریکا اداره می‌شود. این گروه از اواخر ماه مارس استقرار این شناورهای بدون سرنشین هدایت‌پذیر از راه دور را در منطقه آغاز کرده است.»
+شناور کورسیر که توسط شرکت «سارونیک» ساخته شده، حدود ۷.۳ متر طول دارد، با سوخت دیزل کار می‌کند و می‌تواند با سرعتی تا ۳۵ گره دریایی حرکت کند. این شناور قادر است تا حدود ۴۵۰ کیلوگرم بار حمل کند و برد عملیاتی آن بیش از هزار مایل دریایی است.
+به گفته هاوکینز، کورسیر به دلیل «نزدیکی به محل حادثه و قابلیت‌های عملیاتی» برای این ماموریت انتخاب شد. این شناور خلبان و افسر تسلیحات آپاچی را به نقطه‌ای دیگر منتقل کرد و سپس یک هلیکوپتر آن‌ها را برای تکمیل عملیات نجات تحویل گرفت.
+نیویورک‌تایمز می‌نویسد،
+نیروی دریایی آمریکا سابقه طولانی در استفاده از شناورهای بدون سرنشین هدایت‌پذیر از راه دور دارد.
+فرماندهی نیروهای دریایی آمریکا در منطقه در سال ۲۰۲۲ اعلام کرده بود که شناورهای سطحی بدون سرنشین را در اطراف بحرین، محل استقرار ستاد این فرماندهی، بیش از ۲۵ هزار ساعت به‌کار گرفته است. گروه عملیاتی ۵۹ نیز در ژانویه ۲۰۲۴ واحد جدیدی را برای توسعه سامانه‌های بدون سرنشین راه‌اندازی کرد.
+شرکت «سارونیک» قراردادی به ارزش ۳۹۲ میلیون دلار با نیروی دریایی آمریکا برای تولید شناورهای سطحی خودران دارد. این شرکت که مقر آن در شهر آستین ایالت تگزاس است، کمتر از چهار سال پیش و در سپتامبر ۲۰۲۲ تاسیس شد و اکنون بیش از ۱۳۰۰ کارمند دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244597
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244597_1781050848.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری مهر به نقل از منابع محلی و ساکنان روستاهای اطراف، از شنیده شدن مجدد صدای چندین انفجار در محدوده شهرستان جاسک خبر داد. پیش‌تر حملات نظامی به بندر جاسک و کوه مبارک توسط منابع آگاه تایید شده بود و این حادثه، دومین موج از صداهای انفجار در این منطقه از آغازین ساعات بامداد چهارشنبه به شمار می‌رود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244596
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244596_1781050849.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا به العربیه گفت که فکر می‌کند آمریکا به توافق با ایران خیلی نزدیک است و این توافق می‌تواند هفته دیگر انجام شود یا ماه‌های دیگر. او گفت این توافق برای اقتصاد آمریکا خوب است و برنامه هسته‌ای ایران را نیز برای طولانی‌ مدت مدیریت می‌کند. او در پاسخ به مجری که از او پرسید آیا توافق قبل از انتخابات میان‌دوره‌ای آمریکا (نوامبر) ممکن است، گفت: کاملا.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244595
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244595_1781050849.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پولیتیکو به نقل از یک مقام کاخ سفید گزارش داد دونالد ترامپ، رییس‌جمهوری آمریکا، معتقد است با وجود موج جدید حملات تلافی‌جویانه آمریکا به اهدافی در جنوب ایران، توافق با جمهوری اسلامی نزدیک است.
+ارتش آمریکا در بامداد چهارشنبه اعلام کرد در پاسخ به اقدام جمهوری اسلامی در سرنگون کردن یک بالگرد آمریکایی، دور جدیدی از حمله‌ها را علیه حکومت ایران انجام داده است. رسانه‌های آمریکایی به نقل از یک مقام ایالات‌متحده گزارش دادند در این حمله‌ها سامانه‌های پدافند هوایی و راداری جمهوری اسلامی از جمله اهداف بوده‌اند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244594
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244594_1781050850.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، در واکنش به حملات نظامی ایالات متحده، با انتشار پیامی در اکس نوشت: «ایالات متحده تصمیم گرفت عزم و اراده ما را آزمایش کند، اما نیروهای مسلح قدرتمند ما هیچ حمله یا تهدیدی را بی‌پاسخ نخواهند گذاشت.» وزیر خارجه جمهوری اسلامی گفت: «اگر می‌خواهید در امان باشید، منطقه ما را ترک کنید. تاریخ خلیج فارس فصل‌های بسیاری درباره سرنوشت شوم بیگانگان دارد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244593
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پس از حملات موشکی روز یکشنبه ایران به اسرائیل و پاسخ متقابل اسرائیل به نقاط مختلف ایران، مصطفی خوش‌چشم، کارشناس صداوسیما، در برنامه‌ای در تاریخ دوشنبه ۱۸ خردادماه گفت آمریکا خردخرد به رادارها و دکل‌ها در جزایر جنوبی ایران حمله می‌کند؛ «این‌ها پیش‌درآمد جنگ است». او با اشاره به حملات موشکی روز یکشنبه ایران به اسرائیل و پاسخ متقابل اسرائیل به نقاط مختلف ایران، تاکید کرد که واشنگتن اکنون در میان لایه مذاکرات، دو جزیره راهبردی سیریک و قشم را در دو دهانه تنگه هرمز هدف قرار داده و به رادارها، دکل‌های مخابراتی و سیستم‌های پدافندی ضربه می‌زند. این کارشناس هشدار داد که ترامپ می‌خواهد زیر خط تنش و بدون دادن هزینه، آستانه تحمل ایران را بسنجد تا در نهایت با کور کردن پدافند کشور، برگ برنده تهران در کنترل منطقه را از بین ببرد و با باز کردن کامل تنگه هرمز، مسیر را برای عبور آزادانه ناوگان بزرگ کشتی‌ها هموار کند.
+تنش‌های نظامی در منطقه پس از حملات موشکی و تبادل آتش میان ایران و اسرائیل افزایش یافت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14255
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+
+۳۹۰ بوست پرمیوم هاااا
+</div>
+
+## WithYashar — post 14254
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۴ انفجار‌شدید بندر عباس
+@withyashar
+</div>
+
+## WithYashar — post 14253
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون انفجار سنگین سیریک و اطراف را لرزاند
+@withyashar
+</div>
+
+## WithYashar — post 14252
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات جدید به بندر عباس و سیریک
+@withyashar
+</div>
+
+## WithYashar — post 14251
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش انفجار در قشم
+@withyashar
+</div>
+
+## WithYashar — post 14250
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 12 اسرائیل: در موج دوم حمله‌ها به ایران، آمریکا داره پدافندهای هوایی و رادارها رو هم هدف حمله قرار میده.
+@withyashar
+</div>
+
+## WithYashar — post 14249
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14249_1781050850.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز : بر اساس اعلام مقامات نیروی دریایی آمریکا، نزدیک به ۲۰ هزار ملوان و تفنگدار دریایی آمریکایی در حال حاضر در دریا و مستقر بر روی دو ناو هواپیمابر «یواس‌اس آبراهام لینکلن» و «یواس‌اس جرج اچ. دابلیو. بوش» هستند؛ به‌همراه ۱۸ ناوشکن مجهز به موشک‌های هدایت‌شونده، یگان اعزامی سی‌ویکم تفنگداران دریایی، و بیش از دوازده اسکادران هوایی.
+این تجهیزات و نیروها در مناطق مختلفی از جمله شرق مدیترانه، دریای سرخ، شمال دریای عرب و دریای عرب پراکنده شده‌اند؛ جایی که نیروهای آمریکایی در حال کمک به دفاع از اسرائیل، مقابله با تهدیدات حوثی‌ها، انجام عملیات مرتبط با ایران، و حمایت از امنیت دریانوردی در اطراف تنگه هرمز هستند.
+این نیروی دریایی بخشی از حدود ۵۰ هزار نیروی نظامی آمریکاست که در حال حاضر در سراسر خاورمیانه مستقر هستند.
+@withyashar
+</div>
+
+## WithYashar — post 14248
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو دقیقه پیش سه انفجار از اسکله جاسک @withyashar
+</div>
+
+## mwarmonitor — post 10582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حمله مجدد آمریکا به جزیره قشم
+</div>
+
+## mwarmonitor — post 10581
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10581_1781050851.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️اکنون در حال فعالیت بر فراز عربستان سعودی:
+
+✈️دو فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا و یک فروند تانکر A330 MRTT متعلق به نیروی هوایی سلطنتی عربستان سعودی.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10580
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10580_1781050851.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هدف قرار دادن یک پهپاد در آسمان شهر جم در استان بوشهر
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به گفته یک مقام آمریکایی، دور سوم حملات اکنون در حال انجام است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فعال‌سازی سامانه‌های پدافند هوایی در بندرعباس
+</div>
+
+## mwarmonitor — post 10577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمله دوباره آمریکایی به سیریک
+</div>
+
+## mwarmonitor — post 10576
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴موج دوم حملات آمریکا به ایران در حال انجام است، یک مقام ارشد آمریکایی به کانال ۱۲ اسرائیل گفته است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10575
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صدای انفجار و فعال‌سازی سامانه‌های پدافند هوایی در جاسک
+</div>
+
+## FoxNewsTwitter — post 342782
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342782_1781050852.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Trump-backed Republican Steve Hilton has advanced in the California governor's race, the Associated Press projects.
+
+Hilton will run against former President Biden's Health and Human Services Secretary, Xavier Becerra.
+</div>
+
+## FoxNewsTwitter — post 342781
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342781_1781050853.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: Just three days before the first U.S. Men's World Cup match, hospitality workers at the Los Angeles stadium have reached a tentative agreement to avoid a strike, FOX News’ @BillMelugin_ reports ahead of kickoff.
+</div>
+
+## FoxNewsTwitter — post 342780
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342780_1781050856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @SpecialReport: 🚨BREAKING: Direct military engagement has resumed in the Middle East tonight. Following a brief exchange that brought down an American chopper, CENTCOM is executing what the White House calls "proportional" strikes on Iranian ports. While President Trump signals he still wants a peace deal more than a widespread war, top allies warn that Tehran is simply playing for time. @pdoocy has the exclusive diplomatic updates live from the White House Lawn.
+</div>
+
+## pm_afshaa — post 93197
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بی بی دلتنگتم😭
+</div>
+
+## pm_afshaa — post 93196
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار مجدد در قشم شنیده شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93195
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلم برات تنگ شده بی بی برگرد بیا بدون تو حال نمیده تهران شباش💔
+</div>
+
+## pm_afshaa — post 93194
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلم برات تنگ شده بی بی برگرد بیا
+بدون تو حال نمیده تهران شباش💔
+</div>
+
+## pm_afshaa — post 93193
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93193_1781050856.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسمون لرستان
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93192
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار مجدد در بندرعباس
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93191
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمالا سایت موشکی جم هدف قرار گرفته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93190
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از اصفهان موشک بلند شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93189
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93189_1781050858.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند جم در حال مقابله با پهپاد هاست
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93187
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93187_1781050858.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از آسمان جم :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93186
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93186_1781050859.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویر منتسب به قشم همین الان :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اخبار جنگ به صورت اختصاصی از
+کانال «اخبار اوین » دنبال کنید 
+👑
+
+@Evin_khabar
+@Evin_khabar
+@Evin_khabar
+
+به جای کانالای حکومتی از کانالای مردمی حمایت کنید 
+👑
+</div>
+
+## pm_afshaa — post 93183
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93183_1781050860.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## pm_afshaa — post 93182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به آکسیوس:
+دور سوم حملات اکنون در حال انجامه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در بوشهر
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93180
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93180_1781050861.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93179
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در جم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93178
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93178_1781050861.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارش‌ها، صدای انفجار از محدوده پالایشگاه ستاره خلیج فارس در بندرعباس شنیده شده.
+
+پالایشگاه ستاره خلیج فارس بزرگ‌ترین پالایشگاه میعانات گازی کشور محسوب میشه و حدود 35 تا 40 درصد بنزین مصرفی کشور رو تولید میکنه.
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93177
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه:اسرائیل در بخشی از حملات شرکت دارد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103656
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 بندرعباس ۰۳:۲۴ صدای دوتا انفجار اومد
+
+
+📝 شهر جم ساعت ۰۳:۳۲ چهارشنبه ۲۰خرداد صدای انفجار
+
+
+📝 ساعت ٣:٣٣ سوزا قشم صدا اومد زدن
+
+@mamlekate
+</div>
+
+## VahidOnline — post 76121
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی تایید نشده:‌
+
+از جم شلیک کردن ساعت ۳:۳۳
+نصفش تو هوا منفجر شد،بقیه‌اش هم نمیدونم کجا قراره فرود بیاد.
+بعد از انتشار پست: وحید جان نزدن،تو آسمون منفجر شد،صدای اون بود.
+
+سلام وحید جان شهرستان جم رو همین الان ۳ و نیم صبح زدن، یه صدایی اومد ولی چون پنجره‌ بسته است لرزشش خیلی بیشتر بود
+
+ساعت ۳:۳۴ شهر جم رو زدن
+اول فکردیم موشک بلند شد
+ولی بعدش خورد زمین ترکید
+
+سلام فک کنم جم رو زدن یه صدای انفجاری اومد الان 3:35
+
+توی جم این پدافند بود فعال شد اون صدای انفجار هم پهپاد زدن باهاش
+
+قشم: دوباره یه لرزش دیگه ۳:۳۹
+احتمالا بندرعباسه ما داریم حس می‌کنیم
+
+وحید هنوز صدای انفجار قشم داره حس میشه
+همین
+الان پشت سر هم
+
+سلام وقت بخیر ۳:۳۸ بندر عباس پایگاه هوایی رو زدن
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76120
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76120_1781050861.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک جانسون، رییس مجلس نمایندگان آمریکا، گفت پیشاپیش از دور جدید حملات آمریکا به جمهوری اسلامی با خبر شده بود. او این حمله‌ها را «متناسب و محدود» توصیف کرد و گفت این عملیات سامانه‌های راداری، موشکی و مراکز فرماندهی و کنترل را هدف گرفته است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76119
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌‌های دریافتی تایید نشده:
+
+سلام وحید جان، ۰۳:۱۸ و ۰۳:۱۹ دوتا صدای انفجار اومد بندرعباس
+الانم دوتا وحشتناک تر🤯
+
+همین الان بندرعباس صدا اومد ۳:۲۱
+
+سلام وحید همین الان دوتا انفجار شدید بندرعباس
+
+وحید بندرعباس انفجار شدید
+
+همين الان بندرعباس صدا اومد ٣:٢٢ دقيقه
+
+درود بندر ۳.۲۳ انفجار پیاپی + ۳.۲۲
+و مجدد ۳.۲۴ بندرعباس
+
+دوتا صدای وحشتناک ۳:۲۳
+همین الان بندرعباس
+
+
+سلام وحید سیریک سمت روستایی طاهرویی صدای انفجار شدیدی اومدم فکر کنم نیرو دریایی سپاه رو زدن
+
+سلا وحید جان، همین الان بندرعباس صدای دوتا انفجار پشت سر هم اومد، ترسناک بود
+
+صدای انفجار بندرعباس همین الان دوبار صدا اومد
+صدای نسبتا شدید و خطرناک
+
+وحید ساعت ۳:۲۴ بندرعباس صدای دو تا انفجار
+
+بندرعباس ۴ انفجار
+
+قشم ساعت ۳:۲۳ بامداد ۲۰ خرداد
+در محدوده طولا یه لرزش نسبتا شدید احساس شد ولی صدای انفجار خاصی نیومد، شاید زلزله شاید هم انفجارات حمله‌های اخیر بوده که لرزشش رو حس کردیم، خونه کامل لرزید
+
+سلام وحید جان همین حالا قشم ۲ تا صدای انفجار اومد ، دومی نزدیکتر یا شدید تر بود
+
+بندر دوتا انفجار خیلی شدید پشت سرهم اومد سمت پارک جنگلی
+
+ساعت ۳:۲۳ بامداد بندرعباس یه چیزی منفجر شد
+
+سلام سمت پایگاه هوایی بندرعباس رو میزنن
+
+#قشم، 03:23، 20 خرداد صدای بلند انفجار شنیده شد. (شاید صدای انفجار بندرعباس بوده)
+
+سلام بندعباس صدای انفجار الان چهارشنبه ۳:۲۴
+
+نزديك پایگاه هوایی بندرعباس خونه ماست به فاصله پنج دقیقه چهار انفجار بزرگ صدا اومد
+
+اقا وحید بندر خیلی صدا انفجار میاد
+
+سلام وحید جان بندرعباس 3:24 دوبار زدن صدای خیلی زیادی اومد همراه با لرزش
+
+وحید جان درود
+ساعت 3:24 دقیقه بامداد چهارشنبه 4 انفجار شدید سمت فرودگاه و پایگاه هوایی بندرعباس
+
+۳:۲۳ دقیقه ۴ ۵ تا پشت هم زدن بندر رو
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76118
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76118_1781050862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر به نقل از منابع محلی و ساکنان روستاهای اطراف، از شنیده شدن مجدد صدای چندین انفجار در محدوده شهرستان جاسک خبر داد. پیش‌تر حملات نظامی به بندر جاسک و کوه مبارک توسط منابع آگاه تایید شده بود و این حادثه، دومین موج از صداهای انفجار در این منطقه از آغازین ساعات بامداد چهارشنبه به شمار می‌رود.
+@VahidOOnLine
+من هم حدود ساعت ۲:۳۰ چند پیام از جاسک دریافت کرده بودم.
+خبرنگار آکسیوس هم به نقل از مقام آمریکایی گفته یک موج حمله دیگه انجام شده.
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87832
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87832_1781050862.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصاویر انهدام یک شیء بر فراز آسمان شهر جم، بوشهر
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87831
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87831_1781050863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+
+یک مقام ارشد آمریکایی به اکسیوس: موج سوم حملات در ایران آغاز شده است
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی قبل موج دوم حملات به بندرعباس
+
+صدای چندین انفجار در بندرعباس شنیده شده است
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341424
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341424_1781050863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک جانسون، رییس مجلس نمایندگان آمریکا، گفت پیشاپیش از دور جدید حملات آمریکا به جمهوری اسلامی با خبر شده بود. او این حمله‌ها را «متناسب و محدود» توصیف کرد و گفت این عملیات سامانه‌های راداری، موشکی و مراکز فرماندهی و کنترل را هدف گرفته است.
+https://iranintl.com/202606096156
+</div>
+
+## IranIntlTV — post 341423
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341423_1781050864.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها از تشدید اختلافات تاکتیکی میان دونالد ترامپ و بنیامین نتانیاهو حکایت دارد؛ اختلافاتی که حتی به گفت‌وگویی تند میان دو طرف انجامیده است. با این حال، رسانه‌های اسرائیلی گزارش داده‌اند پس از رایزنی‌های مارکو روبیو، آمریکا در نهایت با حمله اسرائیل به ایران همراهی کرده است.
+
+سمیرا قرایی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 341422
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341422_1781050865.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سمیرا، مادر جاویدنام سودا اکرمی‌فرد: ما آگاهانه رفتیم بیرون...
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/YTeRZTbJT3s
+@iranintltv
+</div>
+
+## IranIntlTV — post 341421
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341421_1781050867.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سجاد از شیراز: بچه‌های میناب رو کی کشت؟ هلیکوپتری رو هم که زدند، نوش جون جمهوری اسلامی!
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/YTeRZTbJT3s
+@iranintltv
+</div>
+
+## IranIntlTV — post 341420
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341420_1781050868.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی؛ استاد عادی‌سازی بحراناز «چرا گران شد؟» تا «چقدر گران شد؟»
+
+در جمهوری اسلامی، بسیاری از بحران‌ها به‌جای حل شدن، به وضعیت عادی تبدیل شده‌اند. امروز کمتر کسی می‌پرسد چرا تورم وجود دارد؛ سؤال این است که قیمت‌ها چقدر گران‌تر شده‌اند. کمتر کسی از قطعی برق، فیلترینگ یا کمبودها تعجب می‌کند؛ مردم فقط یاد گرفته‌اند چگونه با آن‌ها کنار بیایند.
+
+از گرانی گوشت و مسکن گرفته تا خاموشی‌ها، مهاجرت و محدودیت‌های اینترنت، بسیاری از مشکلاتی که روزی بحران تلقی می‌شدند، امروز به بخشی از زندگی روزمره تبدیل شده‌اند.
+
+کامبیز حسینی در این مونولوگ از «برنامه» به پدیده عادی‌سازی بحران در جمهوری اسلامی و پیامدهای آن برای جامعه ایران می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/YTeRZTbJT3s
+@iranintltv
+</div>
+
+## IranIntlTV — post 341419
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341419_1781050870.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پولیتیکو به نقل از یک مقام کاخ سفید گزارش داد دونالد ترامپ، رییس‌جمهوری آمریکا، معتقد است با وجود موج جدید حملات تلافی‌جویانه آمریکا به اهدافی در جنوب ایران، توافق با جمهوری اسلامی نزدیک است.
+ارتش آمریکا در بامداد چهارشنبه اعلام کرد در پاسخ به اقدام جمهوری اسلامی در سرنگون کردن یک بالگرد آمریکایی، دور جدیدی از حمله‌ها را علیه حکومت ایران انجام داده است. رسانه‌های آمریکایی به نقل از یک مقام ایالات‌متحده گزارش دادند در این حمله‌ها سامانه‌های پدافند هوایی و راداری جمهوری اسلامی از جمله اهداف بوده‌اند.
+
+https://iranintl.com/202606097878
+</div>
+
+## IranIntlTV — post 341418
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341418_1781050870.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آزاد از شیراز: برای پیدا کردن سیگنال اینترنت، گوشه‌ و کنار خانه را گشتم
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/YTeRZTbJT3s
+@iranintltv
+</div>
+
+## IranIntlTV — post 341417
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شایان از رضوانشهر: در راه انزلی، گیر ایست بازرسی افتادم. نقاب می‌زنند و مردم را می‌ترسانند
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/YTeRZTbJT3s
+@iranintltv
+</div>
+
+## IranIntlTV — post 341416
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341416_1781050872.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شایان از رضوانشهر: در راه انزلی، گیر ایست بازرسی افتادم. نقاب می‌زنند و مردم را می‌ترسانند
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/YTeRZTbJT3s
+@iranintltv
+</div>
+
+## Shin_Persian — post 6818
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6818_1781050873.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:19:29 UTC
+
+Unverified videos from Jam, Bushehr Province, #Iran
+(Media: Not mine)
+
+فارسی
+
+ویدیوهای تأیید نشده از جم، استان بوشهر، #Iran
+(رسانه: متعلق به من نیست)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6817
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6817_1781050874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:15:57 UTC
+
+Several more blasts in Qeshm island, Hormozgan Province, #Iran
+
+فارسی
+
+چندین انفجار دیگر در جزیره قشم، استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6816
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6816_1781050875.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:13:56 UTC
+
+3rd BM spotted over Shahin Shahr just now
+Isfahan Province, #Iran
+(0013Z)
+
+فارسی
+
+همین الان سومین موشک بالستیک بر فراز شاهین‌شهر دیده شد
+استان اصفهان، #Iran
+(۰۰۱۳Z (۰۳:۴۳ به وقت تهران))
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:12:51 UTC
+
+2 were spotted by the eyewitness.
+
+فارسی
+
+۲ نفر توسط شاهد عینی رویت شدند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6814
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:12:10 UTC
+
+BM launch from Shahin Shahr
+Isfahan Province, #Iran
+
+فارسی
+
+شلیک موشک بالستیک از شاهین‌شهر
+استان اصفهان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:10:19 UTC
+
+0010Z
+Blast heard in Qeshm island just now
+Hormozgan Province, #Iran
+
+فارسی
+
+۰۰۱۰ زولو (۰۳:۴۰ به وقت تهران)
+هم‌اکنون صدای انفجاری در جزیره قشم شنیده شد
+استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6812
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:09:44 UTC
+
+At 0001Z, a blast was heard in Jam, Bushehr Province, #Iran
+(Jam has an infamous missile city as well)
+
+فارسی
+
+در ساعت ۰۰۰۱ زولو (۰۳:۳۱ به وقت تهران)، صدای انفجاری در جم، استان بوشهر، #Iran شنیده شد.
+(جم یک شهر موشکی بدنام نیز دارد)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6811
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 00:02:51 UTC
+
+State-Owned Mehr News:
+
+Explosions were heard in Qeshm and Bandar Abbas
+Hormozgan Province, #Iran
+
+فارسی
+
+خبرگزاری دولتی مهر:
+
+صدای انفجارها در قشم و بندرعباس شنیده شد.
+استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6810
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6810_1781050875.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 23:59:53 UTC
+
+Several blasts felt in Qeshm between 2351Z to 2355Z
+(Presumably from Bandar Abbas' side)
+
+فارسی
+
+چندین انفجار بین ساعت ۲۳۵۱ زولو (۰۳:۲۱ به وقت تهران) تا ۲۳۵۵ زولو (۰۳:۲۵ به وقت تهران) در قشم احساس شد
+(احتمالاً از سمت بندرعباس)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6809
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 23:53:37 UTC
+
+Blast in Bandar Abbas, Hormozgan Province, #Iran
+
+فارسی
+
+انفجار در بندرعباس، استان هرمزگان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6808
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6808_1781050876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 23:52:57 UTC
+
+Inb4 some telegram channel watermark it this way
+
+فارسی
+
+پیش از آنکه برخی کانال‌های تلگرامی به این شکل روی آن واترمارک بزنند
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6805
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 23:43:44 UTC
+
+IRGC trucks hiding in Pouneh tunnel, Lorestan Province, #Iran
+
+فارسی
+
+کامیون‌های سپاه پاسداران انقلاب اسلامی (IRGC) پنهان شده در تونل پونه، استان لرستان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6804
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 09 Jun 2026 23:17:07 UTC
+
+2nd attack on Jask, Hormozgan Province, #Iran
+
+فارسی
+
+دومین حمله به جاسک، استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازه زمانی ۰۳:۰۰ الی ۰۳:۳۰ صبح چهارشنبه؛ چند انفجار مهیب در بندرعباس شنیده شد.
+
+علی‌رغم دور بودن محل انفجارها از مرکز شهر، شدّت و صدای انفجارها بسیار زیاد است و در کل مناطق شنیده می‌شود.
+
+همزمان با بندرعباس، چندین نقطه‌ی دیگر در جنوب هرمزگان هدف اصابت موشک قرار گرفت.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220191
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220191_1781050876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️باراک راوید، خبرنگار آکسیوس به نقل از یک مقام آمریکایی گفت که اکنون «موج سوم» حملات آمریکا علیه جمهوری اسلامی آغاز شده‌است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220190
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220190_1781050876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️فاکس‌نیوز به نقل از سایت‌های رصد پروازها می‌گوید که دست‌کم هشت هواپیمای سوخت‌رسان هم‌زمان با عملیات نظامی آمریکا علیه جمهوری اسلامی مشغول پرواز در منطقه هستند. به‌نظر می‌رسد آن‌ها مشغول پشتیبانی از حملات سنتکام به مواضع جمهوری اسلامی هستند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220189
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220189_1781050877.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری‌های حکومتی در ایران دقایقی پیش خبر دادند که یک بار دیگر صدای انفجارها در شهرستان جاسک واقع در استان هرمزگان گزارش شد. ایالات متحده ساعاتی پیش اعلام کرد که حملات خود به مواضع رژیم را در واکنش به سرنگون کردن یک هلی‌کوپتر آمریکایی،‌ آغاز کرده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220188
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️محکومیت جهانی تیراندازی طالبان به معترضان در هرات افغانستان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220187
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سی‌بی‌اس از قول «مقامات آگاه» می‌گوید هلی‌کوپتر آپاچی آمریکا مورد اصابت یک پهپاد شاهد قرار گرفته بود
+
+▪️شبکه آمریکایی سی‌بی‌اس به نقل از «دو منبع آگاه» گزارش داد که یک پهپاد مسلح ایرانی موسوم به «شاهد» به هلی‌کوپتر آپاچی آمریکایی که روز دوشنبه در دریا در سواحل عمان سقوط کرد، اصابت کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159073.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220186
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️فرش ایرانی فقط یک اثر تزئینی نیست؛ روایتِ هزار سال هنر، هویت و حافظه‌ی فرهنگی ایران است. همزمان با روز فرش ایرانی، نگاهی داریم به هنری که هنوز در خانه‌ها، کارگاه‌ها و موزه‌های جهان زنده مانده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بحران معیشت در ایران؛ افزایش تورم و بی‌تاثیر بودن کالابرگ و یارانه؛ گفت‌وگو با معصومه طاهرخانی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220184
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تشکل «دانشجویان پیشرو» همزمان با بازگشت دسترسی به اینترنت پس از سه ماه محدودیت، با انتقاد از سیاست‌های حکومت بر تداوم فعالیت‌های مدنی و ادامه مسیر «زن، زندگی، آزادی» تأکید کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220183
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220183_1781050877.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سرکوب در ایران؛ احضار سینماگران منتقد به دادسرای فرهنگ و رسانه؛ گفت‌وگو با محمود امیری‌مقدم
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دادگاهی در آمریکا «حاجی نجیب‌الله» یک فرمانده پیشین طالبان را به ۴۲ سال زندان محکوم کرد
+
+▪️دادگاهی در نیویورک یک فرمانده پیشین طالبان را به جرم گروگان‌گیری و حمایت مالی از اقدامات تروریستی منجر به مرگ، به ۴۲ سال زندان محکوم شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159064.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️محکومیت سه وکیل دادگستری در شیراز به سه سال زندان
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125746
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125746_1781050878.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 عراقچی از نیروهای آمریکایی خواست برای در امان ماندن منطقه را ترک کنند
+
+عباس عراقچی، وزیر خارجه ایران در پیامی در شبکه ایکس به نیروهای آمریکایی هشدار داد که برای در امان ماندن منطقه را ترک کنند.
+
+این در حالی است که شبکه خبری الجزیره بامداد چهارشنبه ۱۰ ژوئن (۲۰ خرداد) به نقل از پایگاه اکسیوس از آغاز موج دوم حملات آمریکا علیه سیستم‌های پدافندی و راداری ایران خبر داده است.
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125745
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125745_1781050878.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 الجزیره: آغاز موج دوم حملات آمریکا علیه سیستم‌های پدافندی و راداری ایران
+
+شبکه خبری الجزیره بامداد چهارشنبه ۱۰ ژوئن (۲۰ خرداد) به نقل از پایگاه اکسیوس از آغاز موج دوم حملات آمریکا علیه سیستم‌های پدافندی و راداری ایران خبر داد.
+
+این در حالیست که گزارش‌هایی از موج دوم حملات هوایی آمریکا منتشر شده اما سنتکام هنوز اطلاعیه جدیدی در این‌باره منتشر نکرده است.
+
+خبرگزاری صداوسیما نیز گزارش کرد، "لحظاتی پیش مجددا صدای انفجار در محدوده شهرستان جاسک در استان هرمزگان شنیده شده است".
+
+به گزارش خبرگزاری مهر، "بامداد چهارشنبه صدای انفجارهایی در محدوده شهرستان قشم از سوی منابع محلی و ساکنان بندر سیریک و روستاهای اطراف گزارش شده است. هنوز ماهیت این صداها به طور دقیق مشخص نیست".
+
+پیش‌تر حملات به بندر جاسک تایید شده بود. پایگاه خبری اکسیوس شامگاه سه‌شنبه به نقل از یک مقام آمریکایی گزارش داد، حملات تلافی‌جویانه ارتش آمریکا چندین سامانه پدافند هوایی و راداری ایران را در اطراف تنگه هرمز هدف قرار داده است.
+
+در همین حال خبرگزاری‌های داخلی ایران با انتشار تصاویری از مشاهده پهپادهای انتحاری ایران در آسمان عراق خبر می‌دهند.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16412
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کماکان بمباران بندر عباس، قشم و سیریک ادامه دارد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16411
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16411_1781050879.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک فروند هواپیمای P-8 پوسایدن از بحرین برخواسته و در حال گشت زنی در شرق عربستان است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16410
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفینگ اختصاصی پرشین ترند 🔥
+شاید با بعضی از اینترنت ها کار نکنه، با اینترنت های دیگه تست کنید. ❤️
+
+vless://d77d61ce-0792-4b11-9471-850a9487559a@static.94.219.109.65.clients.your-server.de:443?security=none&encryption=mlkem768x25519plus.native.0rtt.JQDRhQQ04dCuFPeVL0bl5uIfoZQdq9NwaAZMUU6yowk&headerType=none&type=tcp#PersianTrend%F0%9F%94%A5-1.00TB%F0%9F%93%8A
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16409
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16409_1781050879.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برخی منابع خبر از وقوع انفجار در نزدیکی پایگاه دریایی بندر سیریک میدهند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16408
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16408_1781050880.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه سخنگوی قرارگاه خاتم الانبیا به زودی
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16407
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16407_1781050880.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید به نقل از چند منبع امریکایی، هدف دور جدید حملات آمریکا را سیستم های راداری و پدافندی اعلام کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16406
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز به نقل از یک مقام آمریکایی مدعی ادامه حملات آمریکا به برخی مناطق جنوبی ایران شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: دقایقی پیش، صدای انفجارهایی مجدد در محدوده شهرستان جاسک از سوی منابع محلی و ساکنان و روستاهای اطراف گزارش شده است. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: دقایقی پیش، صدای انفجارهایی مجدد در محدوده شهرستان جاسک از سوی منابع محلی و ساکنان و روستاهای اطراف گزارش شده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22032
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمله آمریکا به جم @IranianMinds
+</div>
+
+## IranianMinds — post 22031
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از لرستان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22030
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک از اصفهان و خوزستان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22029
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22029_1781050880.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات آمریکا به قشم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22028
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمله آمریکا به جم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22027
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال ۱۲ اسرائیل :
+
+موج‌ سوم حملات آمریکا به جنوب ایران آغاز شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22026
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بندر عباسو‌ بد شخم زدن امشب
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22025
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22025_1781050881.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوری ناو‌ آبراهام رئیسی برای مقابله با ناو های آمریکایی به سمت تنگه هرمز‌ حرکت کرد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22024
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار مجدد در سیریک
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22023
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شدید داره میزنه بندرعباسو آمریکا
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دو انفجار سنگین در بندرعباس
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22021
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات شدید آمریکا به بندرعباس
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22020
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری فارس :
+
+اسرائیل از شرایط الان سواستفاده کرده و رفته به بیروت حمله کرده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22019
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انفجار مهیب در سیریک
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22018
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش جمهوری اسلامی :
+
+تمام پایگاه های آمریکایی رو تخلیه کنید آبگرمکن هامونو داریم آماده میکنیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22017
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فعالیت جنگنده های آمریکا در جنوب عراق
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22016
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارش انفجار در اطراف بندرعباس
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22015
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال ۱۲ اسرائیل :
+
+امریکا حملات جدیدی رو الان در‌ جنوب ایران انجام داد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22014
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری مهر :
+
+چند انفجار جدید در جاسک رخ داد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻شنیده شدن مجدد صداهای انفجار در جاسک
+
+خبرگزاری صداوسیما گزارش کرده که لحظاتی پیش مجددا صدای انفجار در محدوده شهرستان جاسک در استان هرمزگان شنیده شده است.
+
+پیش‌تر حملات به بندر جاسک و کوه مبارک تایید شده بود و این دومین موج از صداهای انفجار از آغازین ساعات بامداد چهارشنبه ۲۰ خرداد ماه است.
+
+گزارش‌هایی از موج دوم حملات هوایی آمریکا منتشر شده اما سنتکام که مدیریت جنگ با ایران را در منطقه در دست دارد هنوز اطلاعیه جدیدی در این باره منتشر نکرده است.
+
+در همین حال خبرگزاری‌های رسمی در ایران با انتشار تصاویر ویدیویی مشابهی از مشاهده پهپادهای انتحاری ایران در آسمان عراق خبر می‌دهند.
+
+خبرگزاری فارس نزدیک به سپاه پاسداران به همراه انتشار این تصاویر نوشته: «پهپادها در آسمان عراق درحال رفتن به‌سمت اهداف خود هستند.»
+
+https://bbc.in/3Q6UZcc
+@BBCPersian
+</div>
+
+## BBCPersian — post 283282
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رئیس مجلس نمایندگان آمریکا: حمله محدود و متناسب بود
+
+مایک جانسون، رئیس مجلس نمایندگان کنگره آمریکا به شبکه فاکس نیوز گفته هنگام آغاز عملیات نظامی ارتش این کشور در واکنش به ساقط شدن یک بالگرد آپاچی آمریکا، در اتاق بحران کاخ سفید حضور داشته و شاهد مدیریت این عملیات بوده است.
+
+آقای جانسون گفته از نظر او این عملیات «محدود و متناسب» بوده و طی آن رادارها و مقرهای فرماندهی و موشکی هدف قرار گرفته است.
+
+https://bbc.in/3Q6UZcc
+@BBCPersian
+</div>
+
+## BBCPersian — post 283281
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ایران می‌گوید دو مخزن آب در سیریک هدف قرار گرفته است
+
+خبرگزاری های رسمی ایران می‌گویند در جریان حملات بامداد چهارشنبه آمریکا به هیچ بندر تجاری در جزیره قشم آسیب وارد نشده اما دو مخزن آب در سیریک هدف قرار گرفته است.
+
+فرماندار شهرستان میناب در جنوب ایران گفته است: «تا این لحظه حمله‌ای به شهر (میناب) گزارش نشده است.»
+
+خبرگزاری مهر بر همین اساس نوشته است انفجارهای شنیده شده در یک ساعت گذشته «مربوط به نوار ساحلی و نه خود شهرستان (میناب) بوده است.»
+
+
+https://bbc.in/3Q6UZcc
+@BBCPersian
+</div>
+
+## BBCPersian — post 283279
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی حملات تلافی‌جویانه آمریکا به مناطقی در جنوب ایران،‌ عباس عراقچی، وزیر خارجه ایران در پیامی در شبکه ایکس بار دیگر از نیروهای آمریکایی خواست که برای در امان ماندن منطقه را ترک کنند.
+
+او در پیام خود نوشت: «به رغم شکست‌هایش در میدان نبرد، ایالات متحده تصمیم گرفت عزم ما را بیازماید. نیروهای مسلح قدرتمند ما هیچ حمله یا تهدیدی را بی‌پاسخ نخواهند گذاشت. اگر می‌خواهید در امان باشید،‌ منطقه ما را ترک کنید.»
+
+او افزود: «تاریخ خلیج فارس فصل‌های زیادی در مورد سرنوشت شوم بیگانگان متجاوز دارد.»
+
+او پیش از حملات هم در پیامی در شبکه ایکس هشدار داده بود که تا زمانی که نیروهای آمریکایی در منطقه هستند خطر آنها را تهدید می‌کند.
+
+📷EPA/Shutterstock
+
+از لینک ⬇️ تازه‌ترین تحولات را در سایت بی‌بی‌سی فارسی دنبال کنید.
+https://bbc.in/3Q6UZcc
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391550
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391550_1781050881.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥فقط با ورشکست کردن سایت های شرط بندی امشب با جوجه ی قشنگم کنار برج خلیفه ام
+🔥 https://t.me/+lCR7HeYTU15iNjM0 https://t.me/+lCR7HeYTU15iNjM0 A19 
+💯حال کردم به همتون پول دراوردن رو یاد بدم من قرار نیست از تو پولی بگیرم و همه چیز رایگانه
+💸
+</div>
+
+## Dirty_Kids — post 391549
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391549_1781050882.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥فقط با ورشکست کردن سایت های شرط بندی امشب با جوجه ی قشنگم کنار برج خلیفه ام
+🔥
+
+https://t.me/+lCR7HeYTU15iNjM0
+https://t.me/+lCR7HeYTU15iNjM0
+A19
+
+💯حال کردم به همتون پول دراوردن رو یاد بدم
+من قرار نیست از تو پولی بگیرم و همه چیز رایگانه
+💸
+</div>
+
+## Dirty_Kids — post 391548
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391548_1781050882.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391547
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391547_1781050882.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عاصم منیر امشب:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391546
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391546_1781050883.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس‌نیوز میگه اسرائیل از حمله آمریکا به جنوب سوءاستفاده کرده و داره ضاحیه رو میزنه.😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂
+خوب که چی؟ الان تو میخوای چه گوهی بخوری؟
+
+دارن ایران رو میزنه به فکر لبنانن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391545
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صابرین‌نیوز، وابسته به سازمان اطلاعات سپاه، هم‌اکنون از وقوع انفجارهای تازه در قشم و بندرعباس ‌و همچنین حملات پهپادی در همدان خبر داده است.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391544
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما خبر داد که دقایقی قبل بازهم چند انفجار جدید در بندر جاسک رخ داده است. همزمان آکسیوس و کانال ۱۲ اسرائیل به نقل از مقام ارشد آمریکایی اعلام کردند که «موج دوم حملات به سامانه‌های پدافندی و راداری ایران در حال انجام است.»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391543
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس: موج دوم حملات آمریکا به جنوب ایران آغاز شده.
+</div>
+
+## Dirty_Kids — post 391542
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏به خاطر جام جهانی آتش‌بس داد، جنگ جهانی شد! 👀
+
+از توجه شما به این موضوع سپاسگزارم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391541
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391541_1781050883.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امشب چه خبره، موزیک جدید و رسمی تتلو منتشر شد.
+
+به اسم رفتم که رفتم.
+
+
+🎥 لینک یوتیوب
+
+
+✈️ دانلود از تلگرام
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/20 02:43
 ---
 
