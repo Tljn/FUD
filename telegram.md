@@ -7,6 +7,2718 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 03:43
+---
+
+## VahidOOnLine — post 244835
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244835_1781136800.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ستاد فرماندهی مرکزی آمریکا (سنتکام) بامداد پنج‌شنبه ۲۱ خردادماه با انتشار بیانیه‌ای ادعای سپاه پاسداران درباره بسته شدن تنگه هرمز را تکذیب کرد.
+سنتکام اعلام کرد کشتی‌های تجاری همچنان در حال عبور و مرور از تنگه هرمز هستند. این نهاد همچنین گزارش‌های رسانه‌های ایرانی درباره هدف قرار گرفتن یک ناو جنگی آمریکا در تنگه هرمز را رد کرد و گفت هیچ‌یک از ناوهای جنگی ایالات متحده مورد اصابت قرار نگرفته‌اند.
+پیش از این قرارگاه خاتم الانبیاء در بیانیه‌ای تنگه هرمز را کاملا بسته اعلام کرد و تهدید کرد که هرگونه تردد مورد اصابت قرار خواهد گرفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یسرائیل کاتز، وزیر دفاع اسرائیل، چهارشنبه ۲۰ خردادماه گفت نباید تصور کرد جنگ به پایان رسیده است و «کارزار علیه حکومت ایران هنوز تا پایان فاصله زیادی دارد.» او افزود ارتش اسرائیل برای حمله به حکومت ایران با «قدرت بسیار زیاد» آماده است و در صورت حمله حکومت ایران به اسرائیل، حکومت ایران «ضربه سنگینی» دریافت خواهد کرد.
+
+کاتز این اظهارات را در مراسم اهدای جوایز وزارت دفاع اسرائیل بیان کرد. او همچنین گفت خاورمیانه در حال تغییر است و ارتش اسرائیل توانایی اجرای عملیات گسترده را حفظ کرده است.
+
+وزیر دفاع اسرائیل در بخش دیگری از سخنانش از عملیات ارتش این کشور علیه حزب‌الله در لبنان سخن گفت و اظهار داشت نیروهای اسرائیلی یک محله مسیحی‌نشین در شهر صور را تخلیه کرده و اعضای حزب‌الله را در آن منطقه هدف قرار داده‌اند. به گفته او، ساکنان این محله اکنون در حال بازگشت به خانه‌های خود هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244833
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244833_1781136801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ارتش آمریکا، سنتکام، در واکنش به ادعای سپاه پاسداران درباره بستن تنگه هرمز اعلام کرد گزارش‌ها مبنی بر مسدود شدن این گذرگاه راهبردی صحت ندارند.
+
+به گفته سنتکام، کشتی‌های تجاری هم‌اکنون هم از تنگه هرمز وارد و خارج می‌شوند و عبور دریایی ادامه دارد.
+
+همزمان تنش‌ها میان نیروهای آمریکایی و حکومت ایران در آب‌های منطقه همچنان ادامه دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244832
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244832_1781136801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یک مقام ارشد آمریکایی به وال استریت ژورنال گفت نیروهای نظامی ایالات متحده در حال هدف قرار دادن سامانه‌های پدافند هوایی و سایت‌های راداری در نزدیکی تنگه هرمز هستند.
+این مقام افزود هیچ‌یک از زیرساخت‌ها در این حملات هدف قرار نگرفته‌اند.
+رسانه‌های داخل ایران نیز گزارش دادند که در مناطق مختلف حاشیه تنگه هرمز، از جمله بندرعباس، جزیره قشم و سیریک، انفجارهایی رخ داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244831
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244831_1781136801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما به نقل از یک مقام ارشد جمهوری اسلامی اعلام کرد اظهارات ترامپ درباره تماس او با مقامات ایرانی دروغ است.
+این مقام افزود: این اظهارات پوششی برای فرار از جنگ علیه جمهوری اسلامی است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244830
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244830_1781136801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ صداوسیما بامداد پنجشنبه ۲۱ خردادماه به نقل از یک مقام ارشد گزارش فاکس‌نیوز مبنی بر اینکه مقامات تهران با دونالد ترامپ تماس گرفته و از او خواسته‌اند حمله‌ها متوقف شود را تکذیب کرد و آن را «کذب محض» خواند.
+این واکنش پس از آن مطرح شد که فاکس‌نیوز به نقل از دونالد ترامپ، رئیس‌جمهوری آمریکا، گزارش داد او به‌طور مستقیم با مقام‌های جمهوری اسلامی گفت‌وگو کرده و آنها از ترامپ خواسته‌اند حملات آمریکا متوقف شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244829
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244829_1781136801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فاکس‌نیوز به نقل از ترامپ گزارش داد که از ایران با او تماس گرفته‌اند و خواستار توقف حمله‌ها شده‌اند. خبرنگار فاکس گفت که رئیس‌جموری آمریکا به او گفته است که حمله‌ها به زودی متوقف خواهد شد. پیش‌تر اکسیوس گزارش داده بود که احتمالا حمله‌ها شدید اما کوتاه‌مدت خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244828
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244828_1781136802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در گفت‌وگو با شبکه فاکس‌نیوز اعلام کرد جنگنده‌های آمریکایی هم اکنون در آسمان ایران در حال عملیات هستند.
+
+او افزود مقام‌های جمهوری اسلامی از او خواسته‌اند بمباران‌ها متوقف شود و گفت به طور مستقیم با مقام‌های ایرانی گفت‌وگو کرده است.
+
+ترامپ تاکید کرد حملات هوایی به زودی متوقف خواهد شد، اما احتمال انجام حملات بیشتر علیه ایران را رد نکرد. او همچنین گفت اسرائیل در حملات جاری آمریکا علیه اهدافی در ایران نقشی نداشته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244827
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244827_1781136802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فاکس‌نیوز به نقل از دونال ترامپ گزارش داد که اگر تهران توافق را امضا نکند، کارزار عملیات نظامی ادامه پیدا می‌کند و فرداشب با بمباران شدیدتری روبرو خواهد شد. ترامپ گفته است که ۴۹ موشک تاماهاوک و جنگنده‌ها در آسمان ایران این پیام را به مقامات تهران ارسال می‌کند که یا جنگ از سرگرفته می‌شود و در میدان نبرد ضربه‌های سنگین‌تری را متحمل می‌شوند یا اینکه توافقی را که مذاکره‌کنندگان آمریکایی ارایه کرده‌اند،‌امضا می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244826
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244826_1781136802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ترامپ مستقیما با مقامات ارشد حکومت ایران گفتگو کرده است؛ مقامات تهران از ترامپ خواستند حملات را متوقف کند
+فاکس‌نیوز به نقل از دونالد ترامپ، رئیس‌جمهوری آمریکا گزارش داد که او به‌طور مستقیم با مقامات جمهوری اسلامی گفتگو کرده است و آنها از ترامپ خواسته‌اند که حمله‌ها را متوقف کند
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244825
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244825_1781136803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه وال‌استریت ژورنال چهارشنبه شنبه شب به وقت واشینگتن به نقل از یک مقام ارشد آمریکایی گزارش داد هیچ سایت زیرساختی در ایران مورد اصابت قرار نگرفته است.
+
+براساس این گزارش، نیروهای نظامی ایالات متحده به سامانه‌های پدافند هوایی و سایت‌های راداری در نزدیکی تنگه هرمز حمله کرده‌اند.
+
+بر اساس این گزارش، انفجارهای متعددی در امتداد تنگه هرمز از جمله در بندرعباس، جزیره قشم و سیریک و چندین نقطه جنوبی ایران شنیده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244824
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244824_1781136803.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های داخلی گزارش دادند دو کشتی که قصد «عبور غیرقانونی» از تنگه هرمز را داشتند، هدف قرار گرفته‌اند.
+این رسانه‌ها جزئیاتی درباره هویت کشتی‌ها یا میزان خسارات احتمالی منتشر نکرده‌اند و تاکنون مقام‌های رسمی دیگر نیز توضیحی در این‌باره ارائه نداده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244823
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244823_1781136804.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️نیروی دریایی سپاه در بیانیه‌ای اعلام کرد که تنگه هرمز تا اطلاع ثانوی بسته خواهد بود. در این بیانیه آمده است: «هشدار می‌دهیم هیچ شناوری از لنگرگاه خود در خلیج فارس و دریای عمان حرکت نداشته باشد. نزدیک شدن به تنگه هرمز به‌منزله همکاری با دشمن تلقی می شود.» پیش‌تر قرارگاه خاتم نیز هشدار داده بود که به سمت هر کشتی که از تنگه هرمز عبور کند، شلیک خواهد شد. همزمان تسنیم از مورد اصابت قرار گرفتن دو کشتی در تنگه هرمز خبر داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244822
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244822_1781136804.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دقایقی پس از بیانیه قرارگاه خاتم که در آن تنگه هرمز کاملا بسته اعلام شده و هشدار داده شده بود که به هر شناوری که قصد عبور داشته باشد شلیک می‌شود، تسنیم از مورد اصابت قرار گرفتن دو کشتی در تنگه هرمز خبر داد. در گزارش این رسانه وابسته به سپاه آمده است که کشتی‌های «متخلف» قصد داشتند «به‌طور غیرقانونی» از تنگه هرمز عبور کنند. هنوز مقامات رسمی و سنتکام در این زمینه اظهارنظر نکرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244821
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244821_1781136805.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری تسنیم وابسته به سپاه پاسداران بامداد پنجشنبه ۲۱ خرداد به نقل از مقام‌های محلی و استانی گزارش داد که هیچ انفجاری در عسلویه یا مجتمع گازی پارس جنوبی رخ نداده است.
+
+اسکندر پاسالار، فرماندار عسلویه، با رد گزارش‌های منتشرشده در برخی شبکه‌های اجتماعی گفت: «در عسلویه هیچ انفجاری نداشتیم و شهر و منطقه اقتصادی عسلویه در آرامش کامل است.»
+
+تسنیم نیز اعلام کرد خبرهایی که از ساعاتی پیش درباره بمباران یک کارخانه پتروشیمی در عسلویه به نقل از این خبرگزاری منتشر شده، در هیچ‌یک از خروجی‌های رسمی این رسانه منتشر نشده و صحت ندارد.
+
+معاون سیاسی، امنیتی و اجتماعی استاندار بوشهر نیز با رد این گزارش‌ها گفت تاکنون هیچ انفجاری در مجتمع گازی عسلویه رخ نداده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244820
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244820_1781136805.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️قرارگاه خاتم در بیانیه‌ای که تسنیم منتشر کرده تنگه هرمز را کاملا بسته اعلام کرد و تهدید کرد که هرگونه تردد مورد اصابت قرار خواهد گرفت. در این بیانیه آمده است که این ممنوعیت شامل کشتی‌های تجاری و نتفکش‌ها است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244819
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244819_1781136805.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرارگاه مرکزی خاتم‌الانبیا اعلام کرد در پی آنچه «ادامه شرارت‌های آمریکا» و آغاز حملات ارتش این کشور به برخی مناطق جنوبی استان هرمزگان خوانده، تنگه هرمز از این لحظه به دلیل «ناامنی در منطقه» برای تردد هر نوع شناور، اعم از نفتکش و تجاری، بسته است و هرگونه عبور هدف قرار خواهد گرفت.
+
+قرارگاه خاتم‌الانبیا اظهارات مقام‌های آمریکا درباره عبور کشتی از تنگه هرمز را تکذیب کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244818
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244818_1781136806.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️قرارگاه خاتم در بیانیه‌ای که تسنیم منتشر کرده تنگه هرمز را کاملا بسته اعلام کرد و تهدید کرد که هرگونه تردد مورد اصابت قرار خواهد گرفت. در این بیانیه آمده است که این ممنوعیت شامل کشتی‌های تجاری و نتفکش‌ها است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244817
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ پیت هگست، وزیر جنگ آمریکا، چهارشنبه عصر به وقت واشینگتن در گفت‌وگو با خبرنگاران در مقر فرماندهی مرکزی ایالات متحده (سنتکام) در شهر تمپا ایالت فلوریدا، در پاسخ به سوالی درباره توانایی آمریکا برای شناسایی و هدف قرار دادن رهبران ارشد جمهوری اسلامی و سپاه پاسداران در صورت شکست مذاکرات، گفت سنتکام از فرصت آتش‌بس برای تکمیل اطلاعات و به‌روزرسانی فهرست اهداف استفاده کرده است.
+
+هگست افزود توانایی آمریکا در هدف‌گیری، شناسایی اهداف، رصد تحرکات و نفوذ به شبکه‌ها نسبت به زمان آغاز عملیات «خشم حماسی» به شکل قابل توجهی افزایش یافته است.
+
+وزیر جنگ آمریکا همچنین گفت جمهوری اسلامی در حال حاضر از توانایی محدودی برای تولید موشک و پهپاد برخوردار است و هرگونه تجهیزات و تسلیحاتی که در اختیار داشته باشد، در صورت لزوم دوباره هدف حملات آمریکا قرار خواهد گرفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244816
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244816_1781136806.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احسان جهانیان، معاون سیاسی امنیتی و اجتماعی استاندار بوشهر، به صداوسیما گفت: تاکنون هیچ انفجاری در مجتمع گازی عسلویه رخ نداده است. پیش‌تر گزارش‌هایی از هدف قرار گرفتن یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه منتشر شده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14464
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : این آتش بس، بیشترین آتش‌بسِ نقض‌شده تو تاریخ جهان بود. @withyashar
+</div>
+
+## WithYashar — post 14463
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ :
+این آتش بس، بیشترین آتش‌بسِ نقض‌شده تو تاریخ جهان بود.
+@withyashar
+</div>
+
+## WithYashar — post 14462
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام : رسانه ی جمهوری اسلامی درباره هدف قرار دادن کشی آمریکایی هم کذبه و هیچ کشتی هدف قرار نگرفته.
+
+@withyashar
+</div>
+
+## WithYashar — post 14461
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: ادعای سپاه پاسداران مبنی بر بستن تنگه هرمز کذب است!
+
+حقیقت: کشتی‌های تجاری امشب به عبور و مرور در تنگه هرمز ادامه می‌دهند.
+@withyashar
+</div>
+
+## WithYashar — post 14460
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: حملات امشب به پایان رسیده.
+@withyashar
+</div>
+
+## WithYashar — post 14459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: نیروهای آمریکایی ۴۹ موشک تاماهاوک به سمت ایران شلیک کردند
+@withyashar
+</div>
+
+## WithYashar — post 14458
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: اگر ایران توافقنامه رو امضا نکنه، فرداشب به بمباران آنها برمیگردیم.
+@withyashar
+</div>
+
+## WithYashar — post 14457
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14457_1781136807.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## WithYashar — post 14456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فاکس : ایرانی‌ها ازم خواستن بمباران رو متوقف کنم
+
+مستقیم با مقام‌های ایرانی صحبت کردم
+جنگنده‌های آمریکا در حال پرواز روی آسمون ایران هستن
+@withyashar
+</div>
+
+## WithYashar — post 14455
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: بمباران به زودی تموم میشه!
+@withyashar
+</div>
+
+## WithYashar — post 14454
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاکستان: به آمریکا اعلام کردیم که دیگر دست از تلاش برای میانجیگری برمی‌داریم
+@withyashar
+</div>
+
+## WithYashar — post 14453
+
+
+
+
+## WithYashar — post 14452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوافضای ۳پا: پاسداران برای یک عملیات تاریخی آماده شده اند!
+@withyashar
+</div>
+
+## WithYashar — post 14451
+
+
+
+
+## WithYashar — post 14450
+
+
+
+
+## WithYashar — post 14449
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشات اولیه از حملات هواپیمای جنگی A-10 آمریکا به قایق های تندرو سپاه در جزیره لارک
+@withyashar
+</div>
+
+## WithYashar — post 14448
+
+<div align="center">
+  <a href="https://t.me/withyashar/14448" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱 @withyashar
+
+
+📱 https://instagram.com/yashar
+</div>
+
+## WithYashar — post 14447
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقامات آمریکایی به وال استریت ژورنال گفتند که ترامپ دیپلماسی با ایران را رها نکرده است، اگرچه صبر او به طور فزاینده‌ای کاهش یافته است.
+
+حتی پس از تأیید حملات جدید در اوایل این هفته، ترامپ به دستیارانش دستور داد پیامی را از طریق واسطه‌های قطری به تهران منتقل کنند که این حملات پاسخی به حادثه پهپاد است که تقریباً خدمه آپاچی را کشت، نه آغاز جنگ تمام‌عیار.
+@withyashar
+</div>
+
+## WithYashar — post 14446
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرارگاه خاتم الانبیا: تنگه هرمز از این لحظه برای تمام شناور ها بسته اعلام میشه و هیچ شناوری حق عبور نداره
+@withyashar
+</div>
+
+## WithYashar — post 14445
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خارجه یمن: نسبت به ادامه تجاوز آمریکا به ایران هشدار می‌دهیم
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342831
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342831_1781136809.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Democrats' defensive disaster leads to two runs for Republicans after a hit by Rep. Bill Huizenga that didn't leave the infield in the annual Congressional Baseball Game for Charity.
+
+Republican and Democratic lawmakers took the field in one of Washington's longest-running traditions, with the GOP looking to extend a multi-year winning streak.
+
+The matchup has raised millions for charity over the years and offers a rare moment where political rivals compete side-by-side outside the halls of Congress.
+</div>
+
+## FoxNewsTwitter — post 342830
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342830_1781136810.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @TreyYingst: Spoke with President Trump tonight as he oversaw the U.S. military strikes against Iran from the Situation Room.
+
+The President told me he spoke directly with Iranian officials tonight who asked him to stop bombing.
+
+49 Tomahawk missiles had been fired by the United States at the time we spoke, along with bombing from fighter jets. Closest target to Tehran was approximately 40 miles outside of the city.
+
+Trump added that the bombing will stop shortly, but that if they don't sign the agreement, "we'll bomb the shit out of them."
+
+President Trump called this "the most violated ceasefire in the history of the world."
+
+Vice President JD Vance told me the United States is dealing with both moderate and more extreme voices in Iran as part of the negotiation process.
+
+More updates to follow on @FoxNews.
+</div>
+
+## FoxNewsTwitter — post 342829
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342829_1781136811.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Annual Congressional Baseball Game for Charity at Nationals Park https://twitter.com/i/broadcasts/1oKMvvrRMznGQ
+</div>
+
+## pm_afshaa — post 93528
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93528_1781136811.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم: حمله ایران به برخی پایگاه‌های آمریکایی در منطقه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93527
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93527_1781136812.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش‌ها از چند انفجار سنگین دیگر همراه با لرزش زمین در آبیک قزوین حکایت داره. محدوده انفجارها در کوه است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93526
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند انفجار در کرج
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93525
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93525_1781136812.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: 🚫 ادعا: سپاه پاسداران مدعی شده که تنگه هرمز بسته است. ✅ واقعیت: کشتی های تجاری امشب به تردد و خروج از تنگه هرمز ادامه خواهند داد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز گسترده ریز پرنده ها در اسمون خرم اباد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93523
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جالبه سپاه موشکاش تو کونش رفته صداش در نیومده
+</div>
+
+## pm_afshaa — post 93522
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93522_1781136813.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به فاکس نیوز: ایرانی‌ها ازم خواستن بمباران رو متوقف کنم. مستقیم با مقام‌های ایرانی صحبت کردم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93521
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93521_1781136813.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام:
+
+🚫 ادعا: سپاه پاسداران مدعی شده که تنگه هرمز بسته است.
+
+✅ واقعیت: کشتی های تجاری امشب به تردد و خروج از تنگه هرمز ادامه خواهند داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93520
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93520_1781136814.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: این آتش بس نقض شده ترین آتش بس در تاریخ جهان بود😂
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93519
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93519_1781136814.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ گفته توافق امضا نکنید فرداشبم دوباره حمله می‌کنیم.
+</div>
+
+## pm_afshaa — post 93518
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93518_1781136815.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: حملات امشب به پایان رسیده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93517
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93517_1781136815.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: حملات امشب به پایان رسیده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93516
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93516_1781136816.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به فاکس نیوز:
+49 موشک تاماهاوک برای هدف قرار دادن اهداف داخل ایران استفاده شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93515
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93515_1781136816.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وال‌استریت ژورنال به نقل از یک مقام ارشد آمریکایی:
+
+نیروهای آمریکا سامانه‌های پدافند هوایی و سایت‌های راداری در نزدیکی تنگه هرمز رو هدف قرار دادن و در حمله‌ها هیچ زیرساختی مورد اصابت قرار نگرفت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93514
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93514_1781136817.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: حملات به‌زودی پایان خواهد یافت. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93513
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93513_1781136817.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به فاکس نیوز: ایرانی‌ها ازم خواستن بمباران رو متوقف کنم. مستقیم با مقام‌های ایرانی صحبت کردم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93512
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93512_1781136818.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ به فاکس نیوز:
+ایرانی‌ها ازم خواستن بمباران رو متوقف کنم. مستقیم با مقام‌های ایرانی صحبت کردم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93511
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93511_1781136818.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: جنگنده‌های آمریکا در ایران پرواز میکنن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93510
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93510_1781136819.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴والا نیوز عبری:
+اسرائیل خودش رو برای احتمال شلیک موشک از سوی ایران، آماده میکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93509
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93509_1781136819.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای جنگنده‌های آمریکایی برفراز قشم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103670
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103670_1781136820.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش فاکس نیوز، ‎ترامپ گفته است که به درخواست سران جمهوری اسلامی، بمباران‌ها متوقف خواهد شد؛ اما اگر توافقی امضا نشود، حملات از سر گرفته خواهند شد
+
+@mamlekate
+</div>
+
+## mamlekate — post 103669
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 اندیمشک شدیدا صدای جنگنده میاد . ساعت دو بامداد پنجشنبه ۲۱ خرداد
+
+
+📝 ساعت ۰۲:۱۵ دقیقه صدای ممتد عبور جنگنده. ما از شهر بافت، استان کرمان شنیدیم صدا رو، لشکرکشی بود
+
+
+📝 کرمانشاه ساعت۲:۳۰ دوتا صدای انفجار مهیب از دور آمد
+پنجشنبه۲۱ خرداد
+
+
+📝 ۲:۳۶ بندرعباس مجدد صدای انفجار اومد
+
+@mamlekate_pm
+</div>
+
+## VahidOnline — post 76179
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی از حوالی شرق استان البرز و غرب استان قزوین
+
+من سمت ساوجبلاغ کرجم
+ده دقیقه صدای موشک اومد
+الان صدای پنج انفجار اومد ۳:۳۲
+
+
+سلام همین الان ساعت ۳:۳۳صبح اطراف هشتگرد صدای اتفجار و موج میاد
+
+سلام ۶ بار سمت نظرآباد البرز رو زدن
+ساعت ۳.۳۴
+۲۱ خرداد
+
+ساعت۳:۳۰
+شهر جدید هشتگرد
+۶/۷ تا انفجار پشت هم
+اما خیلی دوره
+نمیدونم کرجه یا تهران
+
+
+ابیک قزوین ساعت ۳:۳۴
+بامداد ۲۱ خرداد
+صدای و موج انفجار اومد، به نظر میاد از سمت کرج یا هشتگرد باشه
+۵-۶ تا بود حداقل
+
+۳:۳۰ صدای ۵ تا انفجاد اومد از اطراف هشتگرد بود فکر کنم قشنگ شنیدم
+
+
+سلام وحید نظراباد از دور صدا ۷.۸ تا موشک پشت هم اومد در های خونه لرزید
+
+هشتگرد ۵ صدای انفجار از طرف اشتهارد
+
+سلام وحید جان ساعت ۳.۳۳ صدای ۱۰ تا انفجار شدید اومد من نظرآبادم ولی صدا از دور بود
+
+پشت هم موشک داره میاد با نور انفجار و صدای مهیب
+محدوده نظر اباد هشتگرد
+از پشت بوم کاملا مشخصه
+
+سلاممم کرج هشتگرد 4تا صدای انفجار شدید اومد
+دوتاش خیلی بزرگ بود بطوری ک کل خانواده از خواب پریدن
+قشنگ کل خونه لرزید
+
+۵ ۶ تا صدای انفجار هشتگرد جدید ساعت ۳:۲۰
+
+سلام وحید جان
+۶ بار صدای انفجار مهیب اطراف اشتهارد شنیدیم‌ از حدود ساعت ۳:۲۰ تا ۳:۳۵
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76178
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76178_1781136821.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما به نقل از یک مقام ارشد جمهوری اسلامی اعلام کرد اظهارات ترامپ درباره تماس او با مقامات ایرانی دروغ است.
+این مقام افزود: این اظهارات پوششی برای فرار از جنگ علیه جمهوری اسلامی است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76177
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76177_1781136821.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست‌‌‌های اکانت فرماندهی مرکزی ایالات متحده، سنتکام
+ترجمه ماشین:
+
+🚫 ادعا: سپاه پاسداران انقلاب اسلامی ایران مدعی شده است که تنگه هرمز بسته شده است.
+✅ واقعیت: کشتی‌های تجاری امشب همچنان در حال عبور و مرور به داخل و خارج از تنگه هرمز هستند.
+CENTCOM
+🚫 ادعا: منابع رسانه‌ای ایران مدعی‌اند که ایران به یک ناو جنگی آمریکا در تنگه هرمز حمله کرده است. نادرست است.
+✅ واقعیت: هیچ ناو جنگی آمریکایی هدف قرار نگرفته است.
+CENTCOM
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76176
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76176_1781136822.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☄️ ترامپ: مقامات ایرانی در تماس مستقیم خواستند بمباران متوقف شود
+
+پست خبرنگار فاکس‌نیوز، ترجمه ماشین:
+امشب با پرزیدنت ترامپ صحبت کردم؛ در حالی که او از اتاق وضعیت، حملات نظامی آمریکا علیه ایران را زیر نظر داشت.
+
+رئیس‌جمهور به من گفت که امشب مستقیماً با مقام‌های ایرانی صحبت کرده است؛ مقام‌هایی که از او خواسته‌اند بمباران را متوقف کند.
+
+در زمان گفت‌وگوی ما، ایالات متحده ۴۹ موشک تاماهاوک شلیک کرده بود و جنگنده‌ها نیز در حال بمباران بودند.
+نزدیک‌ترین هدف به تهران حدود ۴۰ مایل [۶۴ کیلومتر] بیرون از شهر بود.
+
+ترامپ افزود که بمباران به‌زودی متوقف خواهد شد، اما اگر آن‌ها توافق را امضا نکنند، «تا سر حد نابودی بمبارانشان می‌کنیم.»
+
+پرزیدنت ترامپ این را «نقض‌شده‌ترین آتش‌بس در تاریخ جهان» خواند.
+
+جی‌دی ونس، معاون رئیس‌جمهور، به من گفت که ایالات متحده در روند مذاکرات، هم با صداهای میانه‌رو و هم با صداهای تندروتر در ایران سروکار دارد.
+
+به‌روزرسانی‌های بیشتر در فاکس‌نیوز منتشر خواهد شد.
+TreyYingst
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76174
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76174_1781136822.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دقایقی پس از بیانیه قرارگاه خاتم که در آن تنگه هرمز کاملا بسته اعلام شده و هشدار داده شده بود که به هر شناوری که قصد عبور داشته باشد شلیک می‌شود، تسنیم از مورد اصابت قرار گرفتن دو کشتی در تنگه هرمز خبر داد. در گزارش این رسانه وابسته به سپاه آمده است که کشتی‌های «متخلف» قصد داشتند «به‌طور غیرقانونی» از تنگه هرمز عبور کنند. هنوز مقامات رسمی و سنتکام در این زمینه اظهارنظر نکرده‌اند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76173
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76173_1781136822.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️روزنامه وال‌استریت ژورنال پنج‌شنبه شب به وقت واشنگتن به نقل از یک مقام ارشد آمریکایی گزارش داد که هیچ سایت زیرساختی در ایران مورد اصابت قرار نگرفته است و نیروهای نظامی ایالات متحده در حال حمله به پدافند هوایی و سایت‌های راداری در نزدیکی تنگه هرمز بودند. انفجارهایی در امتداد تنگه هرمز، از جمله بندرعباس، جزیره قشم و سیریک گزارش شده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76172
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+قشم ۲:۳۵ صدا و لرزشش حس شد
+
+۲:۳۵ دقیقه بندرعباس دوباره صدای انفجار اومد
+
+سلام بندرعباس دوباره زدن ۲:۳۷
+[احتمالا منظورشون اینه که صدا شنیدند!]
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76171
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76171_1781136822.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه: هرگونه تردد شناورها از تنگه هرمز مورد اصابت قرار خواهد گرفت
+
+منابع حکومتی:
+قرارگاه مرکزی حضرت خاتم‌الانبیا(ص): از این لحظه به دلیل ناامنی در منطقه، تنگه هرمز برای تردد هر نوع شناور اعم از نفتکش و تجاری بسته اعلام می گردد و هرگونه تردد مورد اصابت قرار خواهد گرفت
+
+در ادامه شرارت های آمریکای جنایتکار و با توجه به آغاز حملات ارتش متجاوز آن کشور به برخی از مناطق جنوب در استان هرمزگان، از این لحظه به دلیل ناامنی در منطقه، تنگه هرمز برای تردد هر نوع شناور اعم از نفتکش و تجاری بسته اعلام می گردد و هرگونه تردد مورد اصابت قرار خواهد گرفت.
+
+ادعای آمریکا مبنی بر عبور کشتی از تنگه یاد شده تکذیب می شود.
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87910
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ساعت ۰۳:۳۲ چند انفجار در محدوده «آبیک قزوین» شنیده شد.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87909
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87909_1781136823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز-ترامپ می‌گوید اگر ایران با توافق موافقت نکند، فردا مجدد «ایران را بمباران خواهیم کرد».
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87908
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری
+۲:۳۵ دقیقه بندرعباس و قشم صدای انفجار اومد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87907
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴نیروی دریایی سپاه: دو کشتی که قصد عبور از تنگه هرمز را داشتند، مورد اصابت قرار گرفتند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87906
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-پدافند کرمانشاه در تنگ کنشت فعال شد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87905
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-پدافند هوایی در رباط کریم تهران فعال شد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87904
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87904_1781136823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زیرنویس شبکه خبر
+
+تنگه هرمز به صورت کامل مسدود شد
+
+[باید ببینیم ترامپ چه میکند]
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری-قرارگاه خاتم
+
+تنگه هرمز برای تمام کشتی ها بسته شد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341604
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341604_1781136823.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ارتش آمریکا، سنتکام، در واکنش به ادعای سپاه پاسداران درباره بستن تنگه هرمز اعلام کرد گزارش‌ها مبنی بر مسدود شدن این گذرگاه راهبردی صحت ندارند.
+
+به گفته سنتکام، کشتی‌های تجاری هم‌اکنون هم از تنگه هرمز وارد و خارج می‌شوند و عبور دریایی ادامه دارد.
+
+همزمان تنش‌ها میان نیروهای آمریکایی و حکومت ایران در آب‌های منطقه همچنان ادامه دارد.
+</div>
+
+## IranIntlTV — post 341603
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341603_1781136824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما به نقل از یک مقام ارشد جمهوری اسلامی اعلام کرد اظهارات ترامپ درباره تماس او با مقامات ایرانی دروغ است.
+این مقام افزود: این اظهارات پوششی برای فرار از جنگ علیه جمهوری اسلامی است.
+</div>
+
+## IranIntlTV — post 341602
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341602_1781136824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در گفت‌وگو با شبکه فاکس‌نیوز اعلام کرد جنگنده‌های آمریکایی هم اکنون در آسمان ایران در حال عملیات هستند.
+
+او افزود مقام‌های جمهوری اسلامی از او خواسته‌اند بمباران‌ها متوقف شود و گفت به طور مستقیم با مقام‌های ایرانی گفت‌وگو کرده است.
+
+ترامپ تاکید کرد حملات هوایی به زودی متوقف خواهد شد، اما احتمال انجام حملات بیشتر علیه ایران را رد نکرد. او همچنین گفت اسرائیل در حملات جاری آمریکا علیه اهدافی در ایران نقشی نداشته است.
+</div>
+
+## IranIntlTV — post 341601
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341601_1781136824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه وال‌استریت ژورنال چهارشنبه شنبه شب به وقت واشینگتن به نقل از یک مقام ارشد آمریکایی گزارش داد هیچ سایت زیرساختی در ایران مورد اصابت قرار نگرفته است.
+
+براساس این گزارش، نیروهای نظامی ایالات متحده به سامانه‌های پدافند هوایی و سایت‌های راداری در نزدیکی تنگه هرمز حمله کرده‌اند.
+
+بر اساس این گزارش، انفجارهای متعددی در امتداد تنگه هرمز از جمله در بندرعباس، جزیره قشم و سیریک و چندین نقطه جنوبی ایران شنیده شده است.
+https://iranintl.com/202606108966
+</div>
+
+## IranIntlTV — post 341600
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341600_1781136824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های داخلی گزارش دادند دو کشتی که قصد «عبور غیرقانونی» از تنگه هرمز را داشتند، هدف قرار گرفته‌اند.
+این رسانه‌ها جزئیاتی درباره هویت کشتی‌ها یا میزان خسارات احتمالی منتشر نکرده‌اند و تاکنون مقام‌های رسمی دیگر نیز توضیحی در این‌باره ارائه نداده‌اند.
+</div>
+
+## IranIntlTV — post 341599
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341599_1781136824.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرارگاه مرکزی خاتم‌الانبیا اعلام کرد در پی آنچه «ادامه شرارت‌های آمریکا» و آغاز حملات ارتش این کشور به برخی مناطق جنوبی استان هرمزگان خوانده، تنگه هرمز از این لحظه به دلیل «ناامنی در منطقه» برای تردد هر نوع شناور، اعم از نفتکش و تجاری، بسته است و هرگونه عبور هدف قرار خواهد گرفت.
+
+قرارگاه خاتم‌الانبیا اظهارات مقام‌های آمریکا درباره عبور کشتی از تنگه هرمز را تکذیب کرد.
+https://iranintl.com/202606105271
+</div>
+
+## IranIntlTV — post 341598
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341598_1781136825.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احسان جهانیان، معاون سیاسی امنیتی و اجتماعی استاندار بوشهر، به صداوسیما گفت: تاکنون هیچ انفجاری در مجتمع گازی عسلویه رخ نداده است. پیش‌تر گزارش‌هایی از هدف قرار گرفتن یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه منتشر شده بود.
+https://iranintl.com/202606103101
+</div>
+
+## Shin_Persian — post 6916
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 00:12:10 UTC
+
+Islamic Regime's army claim they've targeted the U.S. 5th Fleet in Bahrain by drones.
+
+ترجمه خودکار فارسی
+
+ارتش رژیم اسلامی ادعا می‌کند که ناوگان پنجم ایالات متحده در بحرین را توسط پهپادها هدف قرار داده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6915
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 00:04:16 UTC
+
+.@IliaHashemicom Reports 3 explosions near Abyek, Qazvin Province, #Iran
+
+ترجمه خودکار فارسی
+
+.@IliaHashemicom گزارش داد ۳ انفجار در نزدیکی آبیک، استان قزوین، #Iran رخ داده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6914
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Trey Yingst ✓ @TreyYingst
+Wed, 10 Jun 2026 23:35:33 UTC
+
+Spoke with President Trump tonight as he oversaw the U.S. military strikes against Iran from the Situation Room.
+
+The President told me he spoke directly with Iranian officials tonight who asked him to stop bombing.
+
+49 Tomahawk missiles had been fired by the United States at the time we spoke, along with bombing from fighter jets. Closest target to Tehran was approximately 40 miles outside of the city.
+
+Trump added that the bombing will stop shortly, but that if they don't sign the agreement, "we'll bomb the shit out of them."
+
+President Trump called this "the most violated ceasefire in the history of the world."
+
+Vice President JD Vance told me the United States is dealing with both moderate and more extreme voices in Iran as part of the negotiation process.
+
+More updates to follow on @FoxNews.
+
+ترجمه خودکار فارسی
+
+امشب با پررئیس‌جمهور ترامپ در حالی که از اتاق وضعیت (Situation Room) بر حملات نظامی ایالات متحده علیه ایران نظارت می‌کرد، صحبت کردم.
+
+رئیس‌جمهور به من گفت که امشب مستقیماً با مقامات ایرانی صحبت کرده و آن‌ها از او خواسته‌اند که بمباران را متوقف کند.
+
+تا زمان گفتگوی ما، ۴۹ موشک تاماهاوک توسط ایالات متحده شلیک شده بود و هواپیماهای جنگنده نیز مشغول بمباران بودند. نزدیک‌ترین هدف به تهران در فاصله تقریبی ۴۰ مایلی خارج از شهر بود.
+
+ترامپ افزود که بمباران به زودی متوقف خواهد شد، اما اگر آن‌ها توافق‌نامه را امضا نکنند، «دهن‌شان را با بمب صاف خواهیم کرد.»
+
+رئیس‌جمهور ترامپ این وضعیت را «نقض‌شده‌ترین آتش‌بس در تاریخ جهان» نامید.
+
+معاون رئیس‌جمهور، جی‌دی ونس، به من گفت که ایالات متحده در فرآیند مذاکره با هر دو طیف صداهای میانه‎رو و تندرو در ایران سر و کار دارد.
+
+به‌روزرسانی‌های بیشتر در @FoxNews منتشر خواهد شد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6913
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6913_1781136825.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 23:42:25 UTC
+
+Following Iranian media reports that Iran attacked a U.S. warship in the Strait of Hormuz, U.S. Central Command says the claims are false and no U.S. warships have been struck.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2064855691173490777
+
+ترجمه خودکار فارسی
+
+در پی گزارش‌های رسانه‌های ایرانی مبنی بر حمله ایران به یک کشتی جنگی ایالات متحده در تنگه هرمز، ستاد فرماندهی مرکزی ایالات متحده (سنتکام/CENTCOM) اعلام کرد که این ادعاها کذب است و هیچ کشتی جنگی آمریکایی مورد اصابت قرار نگرفته است.
+
+منبع: @CENTCOM
+https://x.com/CENTCOM/status/2064855691173490777
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6912
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 23:40:38 UTC
+
+Jet activity over Fardis, Alborz Province, #Iran
+
+ترجمه خودکار فارسی
+
+فعالیت جت‌ها بر فراز فردیس، استان البرز، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Aaron Rupar ✓ @atrupar Wed, 10 Jun 2026 23:25:23 UTC Fox correspondent: "I asked the president what will happen if the Iranians don't sign an agreement that was put forward by American negotiators. President Trump said, 'We'll bomb the s**t…
+</div>
+
+## Shin_Persian — post 6910
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6910_1781136826.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Aaron Rupar ✓ @atrupar
+Wed, 10 Jun 2026 23:25:23 UTC
+
+Fox correspondent: "I asked the president what will happen if the Iranians don't sign an agreement that was put forward by American negotiators. President Trump said, 'We'll bomb the s**t out of them tomorrow night.'"
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+خبرنگار فاکس: «من از رئیس‌جمهور پرسیدم که اگر ایرانی‌ها توافقی را که توسط مذاکره‌کنندگان آمریکایی ارائه شده است امضا نکنند، چه خواهد شد. پرزیدنت ترامپ گفت، "فردا شب دهنشون رو با بمب صاف می‌کنیم."»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6909
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6909_1781136828.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 23:36:05 UTC
+
+Following IRGC claims that the Strait of Hormuz is closed, U.S. Central Command says commercial ships are continuing to transit the waterway tonight.
+
+Source: @CENTCOM
+https://x.com/CENTCOM/status/2064854099418390919
+
+ترجمه خودکار فارسی
+
+در پی ادعاهای سپاه پاسداران (IRGC) مبنی بر بسته بودن تنگه هرمز، فرماندهی مرکزی ایالات متحده (سنتکام/CENTCOM) اعلام کرد که کشتی‌های تجاری امشب همچنان در حال عبور از این آبراه هستند.
+
+منبع: @CENTCOM
+https://x.com/CENTCOM/status/2064854099418390919
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6908
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6908_1781136828.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Aaron Rupar ✓ @atrupar
+Wed, 10 Jun 2026 23:25:23 UTC
+
+Fox correspondent: "I asked the president what will happen if the Iranians don't sign an agreement that was put forward by American negotiators. President Trump said, 'We'll bomb the s**t out of them tomorrow night.'"
+
+ترجمه خودکار فارسی
+
+خبرنگار فاکس: «از رئیس‌جمهور پرسیدم اگر ایرانی‌ها توافقی را که توسط مذاکره‌کنندگان آمریکایی ارائه شده امضا نکنند، چه خواهد شد. پرزیدنت ترامپ گفت: "فردا شب حسابی بمبارانشان می‌کنیم."»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6907
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 23:27:55 UTC
+
+State-owned Mehr News reports that a position in Dashtestan County highlands was targeted says the origin of strike is unclear
+
+ترجمه خودکار فارسی
+
+خبرگزاری دولتی مهر گزارش می‌دهد که موضعی در ارتفاعات شهرستان دشتستان مورد هدف قرار گرفته است و می‌گوید منشأ این حمله نامشخص است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6906
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6906_1781136830.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 23:26:11 UTC
+
+Scam messages are evolving greatly. This is way cooler than the Nigerian prince emails.
+
+ترجمه خودکار فارسی
+
+پیام‌های کلاهبرداری به شدت در حال تکامل هستند. این بسیار جذاب‌تر از ایمیل‌های شاهزاده نیجریه‌ای است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6905
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 23:18:04 UTC
+
+Blasts in Bandar Abbas, Hormozgan Province, #Iran
+
+ترجمه خودکار فارسی
+
+انفجارها در بندرعباس، استان هرمزگان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6904
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 22:59:35 UTC
+
+Regime's IRIB: AA activity in Robat Karim, Tehran Province, #Iran
+
+ترجمه خودکار فارسی
+
+صدا و سیمای رژیم: فعالیت پدافند هوایی (AA) در رباط‌کریم، استان تهران، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 22:47:59 UTC
+
+Intense jet activity over western Tehran
+#Tehran Province, #Iran
+
+ترجمه خودکار فارسی
+
+فعالیت شدید جنگنده‌ها بر فراز غرب تهران
+#Tehran Province, #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6902
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 22:46:19 UTC
+
+State-owned Mehr News:
+"The Americans have so far conducted attacks on seven coastal points."
+
+ترجمه خودکار فارسی
+
+خبرگزاری دولتی مهر:
+«آمریکایی‌ها تاکنون به هفت نقطه ساحلی حمله کرده‌اند.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6901
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 10 Jun 2026 22:44:31 UTC
+
+IRGC Khatam Al Anbya terror HQ:
+
+"Effective immediately, due to insecurity in the region, the Strait of Hormuz is declared closed for the passage of all types of vessels, including oil tankers and commercial ships. Any transit will be targeted.
+
+Following the malicious actions of America and in light of the commencement of attacks by its aggressor military on some southern areas in Hormozgan province, effective immediately, due to insecurity in the region, the Strait of Hormuz is declared closed for the passage of all types of vessels, including oil tankers and commercial ships. Any transit will be targeted.
+
+The American claim regarding the passage of ships through the aforementioned strait is denied."
+
+ترجمه خودکار فارسی
+
+قرارگاه تروریستی خاتم‌الانبیاء سپاه پاسداران انقلاب اسلامی (IRGC):
+
+«با اثرگذاری فوری، به دلیل ناامنی در منطقه، تنگه هرمز برای تردد تمامی انواع شناورها، از جمله نفتکش‌ها و کشتی‌های تجاری، بسته اعلام می‌شود. هرگونه عبوری مورد هدف قرار خواهد گرفت.
+
+در پی اقدامات شرورانه آمریکا و با توجه به آغاز حملات ارتش متجاوز آن به برخی مناطق جنوبی در استان هرمزگان، با اثرگذاری فوری، به دلیل ناامنی در منطقه، تنگه هرمز برای تردد تمامی انواع شناورها، از جمله نفتکش‌ها و کشتی‌های تجاری، بسته اعلام می‌شود. هرگونه عبوری مورد هدف قرار خواهد گرفت.
+
+ادعای آمریکا در خصوص عبور کشتی‌ها از تنگه مذکور تکذیب می‌شود.»
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4473
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۳:۳۲ صبح پنجشنبه؛ تعداد ۳ انفجار در محدوده آبیک قزوین شنیده شد. @iliaen
+</div>
+
+## Iliaen — post 4472
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۳:۳۲ صبح پنجشنبه؛ تعداد ۳ انفجار در محدوده آبیک قزوین شنیده شد.
+
+@iliaen
+</div>
+
+## Iliaen — post 4471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت حدود ۰۲:۱۵ صبح پنجشنبه؛ چند قایق تندرو در نزدیکی جزیره لارَک هدف قرار گرفته شدند.
+
+براساس توصیف شاهدان، شلیک به صورت رگبار از آسمان به سطح دریا بود (احتمالاً توسط هواپیمای A-10)
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220323
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220323_1781136830.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس‌جمهوری آمریکا به فاکس‌نیوز گفت که آتش‌بس با جمهوری اسلامی بیش از هر آتش‌بس دیگری در جهان نقض شده است. او افزود که مقامات جمهوری اسلامی زبان «زور» می‌فهمند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220322
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️طالبان و پاکستان؛ دو روایت از حملات مرزی اخیر پاکستان به بخش‌هایی از افغانستان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220321
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220321_1781136830.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرنگار فاکس‌نیوز می‌گوید که دونالد ترامپ، رئیس‌جمهوری آمریکا به این سوال که اگر جمهوری اسلامی با شما توافق نکند چه اتفاقی می‌افتد؟ پاسخ داد که فردا شب هم شدید بمباران خواهند شد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220320
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220320_1781136831.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرنگار فاکس‌نیوز دقایقی قبل گزارش داد که رئيس جمهوری آمریکا، دونالد ترامپ، همراه با جی‌دی ونس، دامادش جرد کوشنر، و استیو ویتکاف، در «اتاق وضعیت» کاخ سفید حضور داشت. آقای ترامپ به فاکس‌نیوز گفت ۴۹ موشک تاماهاک برای زدن اهدافی در ایران استفاده شد. آقای ترامپ گفت برخی از این اهداف فقط حدود ۶۰ کیلومتر با پایتخت، تهران، فاصله داشتند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220319
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220319_1781136831.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ستاد فرماندهی مرکزی آمریکا، سنتکام، ادعای تازه سپاه پاسداران را که «تنگه هرمز بسته است» رد کرد و گفت «حقیقت» این است که «کشتی‌های تجاری امشب همچنان به ورود و خروج از تنگه هرمز ادامه می‌دهند.»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220318
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220318_1781136831.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سنتکام ادعای منابع رسانه‌ای در ایران را که می‌گویند جمهوری اسلامی به یک «ناو جنگی آمریکایی در تنگه هرمز» حمله کرده است نادرست خواند و گفت هیچ ناو جنگی آمریکایی مورد حمله قرار نگرفته است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220317
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پاسخ سخنگوی دولت اقلیم کردستان به صدای آمریکا در مورد حملات جمهوری اسلامی به احزاب کرد ایرانی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220316
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220316_1781136831.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️به گزارش جنیفر گریفین، خبرنگار حوزه دفاعی فاکس‌نیوز، یک مقام آمریکایی با وجود ادعاهای جمهوری اسلامی، هرگونه درگیری دریایی بین نیروی دریایی آمریکا و سپاه پاسداران را تکذیب کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220315
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220315_1781136831.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️به گزارش رویترز آقای ترامپ به فاکس نیوز گفته است که «به‌طور مستقیم» با مقامات جمهوری اسلامی صحبت کرد و افزود ایرانی‌ها از من خواستند بمباران را متوقف کنم. آقای ترامپ گفت جت‌های جنگنده آمریکایی بر فراز آسمان ایران در حال پرواز هستند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220314
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220314_1781136831.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رویترز به نقل از فاکس‌نیوز گزارش داد که دونالد ترامپ، رئیس جمهوری آمریکا گزینه حملات بیشتر به جمهوری اسلامی را محفوظ نگه داشته است. این خبرگزاری می‌گوید آقای ترامپ به فاکس نیوز گفت بمباران به زودی متوقف خواهد شد. سنتکام روز چهارشنبه از آغاز دور دیگری از حملات دفاعی به جمهروی اسلامی خبر داد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️طرح قانون جدید بریتانیا برای مقابله با عوامل نیابتی دولت‌های متخاصم از جمله جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220312
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220312_1781136832.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کانال تلگرامی وحید‌آنلاین از شنیده شدن صدای انفجار در بندر عباس در حوالی ساعات ۲:۳۰ بامداد خبر داده است. همچنین این کانال گزارش‌هایی مردمی از «صدا و لرزش» در جزیره قشم را منتشر کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220311
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220311_1781136832.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️روزنامه وال‌استریت ژورنال پنج‌شنبه شب به وقت واشنگتن به نقل از یک مقام ارشد آمریکایی گزارش داد که هیچ سایت زیرساختی در ایران مورد اصابت قرار نگرفته است و نیروهای نظامی ایالات متحده در حال حمله به پدافند هوایی و سایت‌های راداری در نزدیکی تنگه هرمز بودند. انفجارهایی در امتداد تنگه هرمز، از جمله بندرعباس، جزیره قشم و سیریک گزارش شده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220310
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220310_1781136832.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از منافع جمهوری اسلامی از دامن زدن به تنش در منطقه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220309
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220309_1781136833.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سپاه پاسداران، در بیانیه‌ای که اوایل پنج‌شنبه ۲۱ خرداد صادر کرد گفت «از این لحظه» به هر نوع شناوری اعم از نفتکش و کشتی تجاری که از تنگه هرمز عبور کند، حمله خواهد کرد. سپاه در فهرست سازمان‌های تروریستی چندین کشور قرار دارد.
+نیروی دریایی همچنین مدعی حمله به دو کشتی که قصد عبور از تنگه هرمز را داشتند، شد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220308
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220308_1781136833.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اتحاد بی سابقه کشورهای غربی در مقابل رفتارهای جمهوری اسلامی؛ گفت‌وگو با درویش رنجبر
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220307
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220307_1781136834.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حامد آیینه وند در برنامه تفسیر خبر: تشدید تنش می‌تواند به قحطی در ایران منجر شود
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125798
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125798_1781136834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سپاه پاسداران هرگونه تماس با آمریکا را تکذیب کرد
+
+بلافاصله پس از مصاحبه ترامپ با شبکه فاکس نیوز که در آن گفت در "تماس مستقیم" با مقامات ایران است و آنها از او خواسته‌اند تا بمباران را متوقف کند، کانال تلگرامی اخبار سپاه پاسداران این خبر را تکذیب کرد.
+
+روابط عمومی سپاه پاسداراندر بیانیه‌ای نوشت: «ادعای ترامپ در مورد تماس مقامات ایرانی با وی قویا تکذیب می‌شود و پوششی برای فرار از جنگ است.»
+
+کانال صابرین نیوز نیز از قول یک منبع آگاه خبر داد: «ما به حملات امشب آمریکا پاسخ نظامی خواهیم داد.»
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125797
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125797_1781136835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سی‌ان‌ان: هیأت قطری همچنان در تهران است
+
+شبکه خبری سی‌ان‌ان به نقل از یک منبع دیپلماتیک مطلع نوشت هیأت قطری که صبح چهارشنبه ۱۰ ژوئن (۲۰ خرداد) برای دیدار با مذاکره‌کنندگان ایرانی به تهران سفر کرده بود، هم‌زمان با آغاز دور تازه‌ای از حملات آمریکا علیه ایران، همچنان در این کشور حضور دارد.
+
+این منبع پیش‌تر به این شبکه گفته بود که مذاکره‌کنندگان "پس از مشورت با آمریکا" به ایران رفته‌اند تا با طرف ایرانی دیدار کرده و "برای پر کردن شکاف‌های باقی‌مانده" تلاش کنند.
+
+رسانهٔ دولتی صداوسیمای جمهوری اسلامی (IRIB) گزارش داد که این سفر شامل گفت‌وگو دربارهٔ روابط دو کشور و همچنین تبادل نظر دربارهٔ آخرین تحولات در روندی دیپلماتیک خواهد بود که آن را تلاشی برای پایان دادن به "جنگ تحمیلی آمریکا" علیه ایران توصیف کرده است.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125796
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125796_1781136835.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ترامپ: حملات علیه ایران به زودی متوقف خواهد شد
+
+ساعتی پس از آغاز حملات امریکا به ایران، دونالد ترامپ، رییس جمهور ایالات متحده، در مصاحبه با شبکه فاکس نیوز گفت این حملات به زودی متوقف خواهند شد اما احتمال انجام حملات بیشتر علیه ایران را باز گذاشت.
+
+او همچنین گفت در حال "گفت‌و‌گوی مستقیم" با مقامات جمهوری اسلامی ایران است و گفت ایرانی‌ها از او خواسته‌اند حملات را متوقف کند.
+
+ترامپ تاکید کرد که اسرائیل در حملات علیه ایران دخالت نداشته است.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125795
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125795_1781136836.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 نورنیوز از فعالیت پدافند هوایی در تهران خبر داد
+
+کانال تلگرامی نور نیوز وابسته به شورای عالی امنیت ملی ایران، خبر داد که "آتشبارهای پدافند هوایی" در رباط کریم تهران برای مقابله با "اهداف متخاصم" فعال شده‌اند.
+
+سایت تابناک نیز این خبر را منتشر کرده است.
+
+تا کنون خبر تاییدشده‌ای از حمله به تهران منتشر نشده است.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125794
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125794_1781136836.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 قرارگاه خاتم‌الانبیا: تنگه هرمز برای تردد هرنوع شناور بسته است
+
+ساعتی پس از آغاز حملات امریکا به اهدافی در داخل ایران، قرارگاه مرکزی خاتم‌الانبیای سپاه پاسداران در بیانیه‌ای اعلام کرد تنگه هرمز به روی هر نوع شناور اعم از نفتکش و تجاری بسته است.
+
+در این بیانیه با تایید حملات آمریکا به "برخی از مناطق جنوب در استان هرمزگان" آمده است: «از این لحظه به دلیل ناامنی در منطقه، تنگه هرمز برای تردد هر نوع شناور اعم از نفتکش و تجاری بسته اعلام می‌گردد و هرگونه تردد مورد اصابت قرار خواهد گرفت.»
+
+این قرارگاه سپاه ادعای امریکا درباره عبور کشتی از تنگه هرمز را نیز تکذیب کرد.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125793
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125793_1781136837.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 خبرهای متناقض از حمله به پارس جنوبی و عسلویه
+
+در حالی که خبرگزاری دانشجو وابسته به بسیج دانشجویی از بمباران یک کارخانه پتروشیمی متعلق به مجتمع گاز پارس جنوبی در عسلویه خبر می‌دهد، خبرگزاری تسنیم وابسته به سپاه پاسداران این خبر را تکذیب کرده است.
+
+معاون استاندار بوشهر نیز هرگونه انفجار در مجتمع گازی عسلویه را تکذیب کرد.
+
+تسنیم همچنین فعالیت هرگونه پدافند در شیراز را نیز تکذیب کرد.
+
+در عین حال خبرگزاری اکسیوس به نقل از یک مقام آمریکایی گزارش داد تمامی اهدافی که در حملات اخیر مورد هدف قرار گرفته‌اند، در جنوب ایران واقع شده‌اند. این مقام آمریکایی گفت سامانه‌های پدافند هوایی، رادارها و واحدهای فرماندهی و کنترل پهپادها از جمله اهداف این حملات بوده‌اند.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سنتکام: حملات دفاعی علیه چندین هدف در داخل ایران را آغاز کردیم
+
+فرماندهی مرکزی ایالات متحده آمریکا (سنتکام) در شبکه ایکس اعلام کرد از ساعت ۵:۱۵ عصر به وقت شرق آمریکا (بعد از نیمه شب ایران)، به دستور فرمانده کل نیروهای مسلح [دونالد ترامپ]، "حملات دفاعی" بیشتری را علیه چندین هدف در داخل ایران آغاز کرده است.
+
+به نوشته سنتکام، این حملات در پاسخ به آنچه "تجاوز بی‌دلیل و ادامه‌دار ایران" توصیف شده، انجام می‌شود.
+
+آخرین گزارش‌ها در رسانه‌های دولتی ایران حاکی از وقوع موج جدیدی از انفجارها در جنوب ایران، نزدیک تنگه هرمز است.
+
+بر اساس گزارش صداوسیمای جمهوری اسلامی (IRIB)، یک انفجار در بندرعباس ثبت شده است.
+
+همچنین در شهرهای میناب و سیریک و نیز در جزیره قشم نیز وقوع انفجار گزارش شده است.
+
+ساعاتی پیش از شروع این حملات وزیر دفاع آمریکا، پیت هگست، گفته بود که فرماندهی مرکزی ارتش آمریکا امشب حملاتی را علیه ایران آغاز خواهد کرد.
+
+او در جمع خبرنگاران گفت: «فرماندهی مرکزی امشب شب شلوغی خواهد داشت، چون رئیس‌ جمهور ترامپ گفته که ما ایران را به‌شدت هدف قرار خواهیم داد و همین کار را هم خواهیم کرد.»
+
+هگست گفت نیروهای آمریکایی به "تأسیسات کلیدی" در ایران حمله خواهند کرد، زیرا ایران برای پایان دادن به جنگ به توافقی با آمریکا نرسیده است.
+
+پیش‌تر، رئیس‌جمهور آمریکا نیز گفته بود که حملات علیه ایران ادامه خواهد داشت.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16651
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16651_1781136837.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برزیل یک - ج.ا صفر 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16650
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16650_1781136838.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16649
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16649_1781136838.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام همچنین خبر هدف قرار گرفتن ناوشکن های خود در تنگه هرمز توسط ایران را تکذیب کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: کشتی‌های تجاری امشب همچنان به تردد خود در تنگه هرمز ادامه می‌دهند. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16647
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16647_1781136839.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: کشتی‌های تجاری امشب همچنان به تردد خود در تنگه هرمز ادامه می‌دهند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16646
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ یادتون باشه، هروقت اسرائیل و نتانیاهو وارد صحنه بشن اون موقع داستان تازه شروع خواهد شد. 🙌🏻
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16645
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون بازی والیبال تیم حکومتی جمهوری اسلامی با برزیل 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16644
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مقام آمریکایی به وال استریت ژورنال:
+هیچ تاسیسات حیاتی ایرانی ای در حملات جاری آسیب ندیده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16643
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مهر: ♦️شنیده شدن صدای فعالیت پدافند در محدوده شرق بندرعباس 🔹دقایقی پیش، صدای فعالیت پدافند در شرق بندرعباس از سوی ساکنان محلی گزارش شده است. 🔹برخی منابع، خبر از انفجار مجدد در این محدوده داده بودند اما بررسی‌های خبرنگار مهر نشان می‌دهد انفجار جدیدی در…
+</div>
+
+## Persian_Trend_Official — post 16642
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️ ترامپ:
+آتش‌بس با ایران، نقض‌شده‌ترین و ناقض‌ترین آتش‌بس در تاریخ جهان بود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16641
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مهر:
+
+♦️شنیده شدن صدای فعالیت پدافند در محدوده شرق بندرعباس
+
+🔹دقایقی پیش، صدای فعالیت پدافند در شرق بندرعباس از سوی ساکنان محلی گزارش شده است.
+
+🔹برخی منابع، خبر از انفجار مجدد در این محدوده داده بودند اما بررسی‌های خبرنگار مهر نشان می‌دهد انفجار جدیدی در بندرعباس رخ نداده است اما پدافند شرق بندرعباس برای رهگیری اهداف متخاصم فعال شده است‌.
+
+🔹از اولین ساعات بامداد پنجشنبه استان هرمزگان، خط ساحلی خلیج‌فارس و تنگه هرمز صحنه درگیری‌هایی میان نیروهای مسلح کشورمان و تروریست‌های آمریکایی بوده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16640
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ خبرگزاری صدا و سیما به نقل از یک مقام ارشد:
+
+ادعای ترامپ در باره تماس مقامات ایرانی با وی کذب محض است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16639
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16639_1781136839.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️ ترامپ:
+به ایرانی‌ها اطلاع دادم که بمباران‌های فعلی به زودی پایان خواهد یافت.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16638
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️ ترامپ: اگر آنها توافق نکنند، دوباره فردا آنها را به شدت بمباران خواهیم کرد. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16637
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16637_1781136840.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️ ترامپ:
+اگر آنها توافق نکنند، دوباره فردا آنها را به شدت بمباران خواهیم کرد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16636
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16636_1781136840.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 دونالد ترامپ، رئیس جمهور آمریکا اعلام کرد که بمباران ایران به زودی متوقف خواهد شد و گفت که مقامات ایرانی از او خواسته‌اند حملات را متوقف کند و ادعا می‌کند که مستقیماً با مقامات ایرانی صحبت کرده است. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین…
+</div>
+
+## Persian_Trend_Official — post 16635
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مهر:
+
+♦️یک منطقه در ارتفاعات دشتی مورد هدف قرار گرفت
+
+معاون سیاسی و امنیتی استاندار بوشهر:
+🔹یک منطقه در ارتفاعات در شهرستان دشتی مورد هدف قرار گرفته است.
+
+🔹به دلیل سخت گذر بودن منطقه هنوز منشا آن مشخص نیست.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16634
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️ ترامپ:
+جنگنده‌های ما بر فراز ایران در حال پرواز هستند و در حال حاضر در حال نابودی سیستم‌های راداری و پدافند هوایی در جنوب غربی کشور هستند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16633
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ترامپ:
+نیروهای آمریکایی ۴۹ موشک تاماهاوک شلیک کردند که به اهدافی در عمق خاک ایران اصابت کردند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16632
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16632_1781136840.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد دفاعی آمریکا به فاکس نیوز گفت که میدان گازی پارس جنوبی در عسلویه، جنوب ایران، هدف قرار نگرفته است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22245
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22245_1781136841.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما :
+
+ترامپ دوباره عقب نشینی کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22244
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22244_1781136841.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📢توم میخوای از مسابقات جام جهانی فوتبال پول دربیاری؟
+🥇
+
+
+✅کانال ورسوس بت کارش تحلیل و پیش بینی مسابقات جام جهانی به صورت حرفه ای
+🍑
+
+
+⚠️توم میتونی از پیش بینی جام جهانی خیلی راحت پول دربیاری فقط کافیه با کانال ورسوس بت همراه شی
+📣
+
+
+🌐ادرس عضویت کانالشون:e20
+👇
+
+🔪https://t.me/+vEPd1hF2Y38yMWI0
+
+🔪https://t.me/+vEPd1hF2Y38yMWI0
+</div>
+
+## IranianMinds — post 22243
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22243_1781136842.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پست محمد مرندی:
+
+هیچ مقامی با دلقک در کاخ سفید تماس نگرفته است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22242
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سنتکام :
+
+اخبار رسانه ی جمهوری اسلامی درباره هدف قرار دادن کشی آمریکایی هم کذبه و هیچ کشتی هدف قرار نگرفته.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22241
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک مقام آمریکایی به فاکس‌ نیوز : حملات نظامی آمریکا علیه اهدافی در ایران همچنان ادامه دارد. @IranianMinds
+</div>
+
+## IranianMinds — post 22240
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22240_1781136842.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام:
+
+کشتی‌های تجاری امشب همچنان در حال تردد و عبور از تنگه هرمز هستند و ادعای سپاه برای هدف قرار دادن اونا کذبه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ به فاکس نیوز:
+
+امشب ضربات سنگینی به تهران وارد کردیم و مقام‌های ارشد ایرانی شخصاً از من خواستند که بمباران‌ها را متوقف کنم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22238
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وال استریت ژورنال:
+
+یک مقام آمریکایی گفت در حملات آمریکا به ایران به هیچ تاسیسات زیرساختی آسیبی وارد نشد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22237
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+آتش بس با ایران نقض شده ترین آتش بس در تاریخ جهان بود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22236
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ : مقامات ایرانی باهام تماس گرفتن و ازم‌ خواستن حملات رو متوقف کنم و امشب همینکارو‌ خواهیم کرد ، ولی توافق نکنن فردا شب دوباره برمیگردیم! @IranianMinds
+</div>
+
+## IranianMinds — post 22235
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+مقامات ایرانی باهام تماس گرفتن و ازم‌ خواستن حملات رو متوقف کنم و امشب همینکارو‌ خواهیم کرد ، ولی توافق نکنن فردا شب دوباره برمیگردیم!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22234
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرنگار فاکس نیوز:
+
+از رئیس‌جمهور پرسیدم اگر ایرانی‌ها توافق پیشنهادی مذاکره‌کنندگان آمریکایی را امضا نکنند، چه اتفاقی خواهد افتاد؟
+
+ترامپ پاسخ داد:
+
+فردا شب دوباره اونارو بمباران خواهیم کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22233
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ به فاکس نیوز:
+
+جنگنده‌های ما در آسمان ایران در حال پرواز هستند و هم‌اکنون سامانه‌های راداری و پدافند هوایی در جنوب غربی کشور را منهدم می‌کنند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22232
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ به فاکس نیوز:
+
+نیروهای آمریکایی ۴۹ موشک تاماهاوک شلیک کردند که اهدافی را در عمق ایران مورد اصابت قرار داد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22231
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+اسرائیلی‌ها در این حملات ایران دخالتی ندارند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22230
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+توقف حملات می‌تواند در چارچوب پیشرفت مذاکرات و تحولات دیپلماتیک صورت بگیرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22229
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+همین الان جنگنده های ما دارن تو اسمون ایران پرواز میکنن ، و مقام های ایرانی با من تماس گرفتن و ازم خواستن حملات رو متوقف کنم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22227
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+من مستقیماً با مقام‌های ایرانی حرف زدم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22226
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+بمباران ها بزودی متوقف میشن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22225
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک مقام آمریکایی به فاکس‌ نیوز :
+
+حملات نظامی آمریکا علیه اهدافی در ایران همچنان ادامه دارد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283372
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نیروی دریایی سپاه: هیچ شناوری از لنگرگاه‌ها حرکت نکند
+
+همزمان با انتشار اطلاعیه «بسته شدن کامل تنگه هرمز» از سوی قرارگاه خاتم الانبیاء در ایران، نیروی دریایی سپاه پاسداران هم هشدار داده است که «هیچ شناوری» نباید در خلیج فارس و دریای عمان از لنگرگاه‌ها جدا شود.
+
+در اطلاعیه بامداد پنجشنبه نیروی دریایی سپاه پاسداران آمده: «در پی نقض مکرر شرایط آتش‌بس توسط دشمن آمریکایی، تنگه هرمز تا اطلاع‌ثانوی مسدود می‌شود. هشدار می‌دهیم هیچ شناوری از لنگرگاه خود در خلیج‌فارس و دریای عمان حرکت نداشته باشد. نزدیک شدن به تنگه هرمز به‌منزله همکاری با دشمن تلقی می‌شود.»
+
+به گزارش خبرگزاری فارس، نیروی دریایی سپاه مدعی هدف قرار دادن دو کشتی در تنگه هرمز شده که «قصد عبور غیرقانونی» از این تنگه را داشته‌اند.
+
+https://bbc.in/4fIJPot
+@BBCPersian
+</div>
+
+## BBCPersian — post 283371
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سی‌ان‌ان: حملات جدید آمریکا در حالیست که هیئت مذاکره کننده قطری هنوز در تهران است
+
+شبکه تلویزیونی سی‌ان‌ان به نقل از یک منبع آگاه گزارش کرده است که موج جدید حملات آمریکا علیه اهدافی در ایران در حالیست که هنوز یک هئیت قطری در تهران است.
+
+پیش‌تر به گزارش رسانه‌های ایران یک هیئت بلندپایه از قطر ظهر روز چهارشنبه برای گفتگو با مقامات ایران وارد تهران شد.
+
+به گزارش روزنامه دولتی ایران، این هیئت برای گفتگو و تبادل نظر درباره روابط دوجانبه و تحولات منطقه‌ای، به تهران سفر کرده است.
+
+بر اساس این گزارش «در جریان این سفر، این هیئت علاوه بر بحث در مورد روابط دوجانبه و تحولات منطقه، در باره آخرین تحولات مرتبط با روند دیپلماتیک برای خاتمه جنگ بین آمریکا و ایران هم بحث و رایزنی می‌کند.»
+https://bbc.in/4fIJPot
+@BBCPersian
+</div>
+
+## BBCPersian — post 283370
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283370_1781136842.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+قرارگاه خاتم الانبیاء که مدیریت جنگ در ایران را بر عهده دارد ساعتی بعد از دور جدید حملات آمریکا با صدور اطلاعیه‌ای اعلام کرد: «از این لحظه به دلیل ناامنی در منطقه، تنگه هرمز برای تردد هر نوع شناور اعم از نفتکش و تجاری بسته اعلام می‌گردد.»
+
+این قرارگاه تهدید کرده است که هرگونه ترددی «مورد اصابت» قرار خواهد گرفت.
+
+همچنین در این اطلاعیه آمده که «ادعای آمریکا مبنی بر عبور کشتی از تنگه یاد شده تکذیب می‌شود».
+
+به نظر می‌رسد این واکنشی به ادعای عصر چهارشنبه دونالد ترامپ است که گفته بود آمریکا طی یک عملیات توانسته ده‌ها میلیون بشکه نفت را از تنگه هرمز عبور دهد.
+
+📷Reuters
+https://bbc.in/4fIJPot
+@BBCPersian
+</div>
+
+## BBCPersian — post 283369
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻هگست پیش از آغاز دومین شب حملات آمریکا: تأسیسات کلیدی ایران هدف قرار می‌گیرد
+
+پیت هگست، وزیر دفاع آمریکا، ساعتی پیش از آغاز عملیات آمریکا علیه اهدافی در ایران در اظهاراتی گفته بود که نیروهای این کشور در منطقۀ امشب «ضربات سختی به ایران وارد خواهند کرد و تأسیسات کلیدی این کشور را هدف قرار خواهند داد.»
+
+آقای هگست در مقر فرماندهی سنتکام در تامپا در فلوریدا سخن می‌گفت.
+
+پیش از او نیز دونالد ترامپ، رئیس جمهور آمریکا، در سخنانی تند و در جمع خبرنگاران در کاخ سفید با اشاره به حمله دیشب (سه‌شنبه) این کشور به اهدافی در ایران گفت: «ما دیروز ضربت سختی به آن‌ها وارد کردیم و امروز هم دوباره ضربت سختی خواهیم زد. اگر متوجه نشده‌اید یا تلویزیون را روشن نکرده‌اید، این را بدانید. خواهیم دید که در مورد توافق چه اتفاقی می‌افتد. ما واقعا بسیار به دستیابی به یک توافق نزدیک بودیم.»
+
+اظهارات رئیس جمهور آمریکا که تلویحا حملات دیشب و امشب را مرتبط با «تعلل» در مذاکرات با ایران دانسته در تناقض با اظهارات قبلی اوست که ساقط شدن یک بالگرد آپاچی در دریای عمان را علت حملات جدید عنوان کرده بود.
+
+آمریکا ایران را مسئول هدف قرار گرفتن این بالگرد آپاچی معرفی کرده اما تهران هنوز رسما هدف قرار دادن آن را بر عهده نگرفته است.
+https://bbc.in/4fIJPot
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش چند انفجار شدید در غرب البرز
+
+حداقل ۵ انفجار در مجموع در نزدیکی آبیک گزارش شده است. آبیک در غرب تهران قرار دارد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391659
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار کرج ساعت ۳:۳۰ منم شنیدم
+</div>
+
+## Dirty_Kids — post 391658
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۳:۳۲ صبح پنجشنبه؛ تعداد ۳ انفجار در محدوده آبیک قزوین شنیده شد. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۳:۳۲ صبح پنجشنبه؛ تعداد ۳ انفجار در محدوده آبیک قزوین شنیده شد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391655
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تری یینگست خبرنگار فاکس‌نیوز با ترامپ مصاحبه کرده: «ترامپ در حال حاضر به‌همراه معاونش جی‌دی ونس و فرستاده‌های ویژه کوشنر و ویتکاف، توی اتاق وضعیت حضور داره. ترامپ اطلاعات جدیدی درباره اتفاقاتی که همین الان داره می‌افته به ما داد. یک کمپین بمباران علیه رژیم…
+</div>
+
+## Dirty_Kids — post 391654
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391654_1781136843.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تری یینگست خبرنگار فاکس‌نیوز با ترامپ مصاحبه کرده:
+
+«ترامپ در حال حاضر به‌همراه معاونش جی‌دی ونس و فرستاده‌های ویژه کوشنر و ویتکاف، توی اتاق وضعیت حضور داره.
+ترامپ اطلاعات جدیدی درباره اتفاقاتی که همین الان داره می‌افته به ما داد.
+یک کمپین بمباران علیه رژیم روافض در حال انجامه.
+
+
+ترامپ به فاکس نیوز گفت که از ۴۹ موشک تاماهاک برای زدن اهدافی در داخل ایران استفاده شده که فاصله بعضی از این اهداف تا تهران پایتخت ایران حتی به ۴۰ مایلی [حدود ۶۴ کیلومتری] هم می‌رسه.
+
+ترامپ گفت که جنگنده‌های آمریکایی هم بر فراز آسمان ایران در حال عملیات هستن و سیستم‌های راداری و پدافند هوایی رو در بخش جنوب غربی کشور، یعنی نزدیک خلیج فارس، نابود کردن.
+
+همه این اتفاقات در حالی داره می‌افته که شیعه‌سانان دارن تلاش می‌کنن ایالات متحده رو مجبور کنن تا این حملات و بمباران‌ها رو متوقف کنه.
+
+ترامپ به من گفت که شیعه‌های رافضی‌ امشب باهاش تماس گرفته. به گفته فرمانده کل قوا، امشب در حالی که ترامپ در اتاق وضعیت نشسته بود، مقامات ارشد روافض و ترامپ مستقیم با هم صحبت کردن.
+
+ترامپ به من گفت که روافض قحبه‌ ازشون خواستن بمباران رو متوقف کنن. رئیس‌جمهور هم به من گفت:‌بمباران به‌زودی متوقف می‌شه.
+
+ازش پرسیدم اگه روافض‌ توافقی رو که توسط مذاکره‌کننده‌های آمریکایی ارائه شده امشب امضا نکنن چی می‌شه؟
+ترامپ گفت، نقل‌قول می‌کنم: فردا شب دهنشون رو می‌گاییم ‌و تا جا دارن بمبارانشون می‌کنیم.
+
+بنابراین رئیس‌جمهور گزینه نظامی رو روی میز نگه داشته، اونم برای زمانی که روافض‌ حاضر نشن این توافق از روی حسن نیت رو امضا کنن. توافقی که در نهایت تنگه گ‌ی هرمز رو باز نگه می‌داره و تضمین می‌کنه که اون‌ها نمی‌تونن برنامه هسته‌ای خودشون رو به سمت ساخت بمب اتمی پیش ببرن. این حرف آخر و اصلیه که ترامپ که بارها و بارها روش تأکید کرده. »
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان سردار رادان میره یه بیمارستان، شناسنامه‌شو می‌ذاره روی میز ایستگاه پرستاری میگه: یه اتاق رو به زایشگاه لطفا.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391651
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: آیا به حمله به نیروگاه‌ها و پل‌های ایران فکر می‌کنید؟ ترامپ: به تو نمیگم اما می‌تونم این کارو انجام بدم. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391650
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت حدود ۰۲:۱۵ صبح پنجشنبه؛ چند قایق تندرو در نزدیکی جزیره لارَک هدف قرار گرفته شدند.
+
+براساس توصیف شاهدان، شلیک به صورت رگبار از آسمان به سطح دریا بود (احتمالاً توسط هواپیمای A-10)
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به هر کشتی که از تنگه عبور کند شلیک می‌کنیم
+
+قرارگاه مرکزی خاتم‌الانبیای سپاه در بیانیه‌ای اعلام کرد: «در ادامه شرارت‌های آمریکای جنایتکار و با توجه به آغاز حملات ارتش متجاوز آن کشور به برخی از مناطق جنوب در استان هرمزگان، از این لحظه به دلیل ناامنی در منطقه، تنگه هرمز برای تردد هر نوع شناور، اعم از نفتکش و تجاری، بسته اعلام می‌گردد و هرگونه تردد مورد اصابت قرار خواهد گرفت. ادعای آمریکا مبنی بر عبور کشتی از تنگه هرمز نیز تکذیب می‌شود.»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بین دو تا موج حمله چقدر فاصله‌ست؟
+می‌شه رفت مسواک زد و برگشت یا نه؟
+</div>
+
+## Dirty_Kids — post 391647
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391647_1781136845.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه گفته که داشتن یک فروند F-16 آمریکا رو‌ می‌زدن که کیر شدن و نتوستن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391646
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ:‌ «ما به توافق نزدیک بودیم، اما ناگهان همه‌چیز کاملا تغییر کرد. اکنون ایران باید انتظار حملات سنگین‌تر و شدیدتری را نسبت به ۳ ماه گذشته داشته باشد.»
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391645
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391645_1781136845.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خدایا شکرت؛ دادستانی که گفته بود نتانیاهو ظالمه و فورا باید دستگیر بشه، خودش به جرم تجاوز برکنار و بازداشت شد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391644
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز اهداف بعدی نیروگاه ها و پل ها هستن
+</div>
+
+## alonews — post 127031
+
+<div align="center">
+  <a href="telegram/content/alonews_127031_1781136845.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی مرکزی ایالات متحده(سنتکام) : ادعا: سپاه پاسداران انقلاب اسلامی ایران مدعی شده است که تنگه هرمز بسته شده است. 
+🔴حقیقت: کشتی‌های تجاری امشب همچنان در حال تردد به داخل و خارج از تنگه هرمز هستند. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127030
+
+<div align="center">
+  <a href="telegram/content/alonews_127030_1781136845.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی مرکزی ایالات متحده(سنتکام) :
+ادعا: سپاه پاسداران انقلاب اسلامی ایران مدعی شده است که تنگه هرمز بسته شده است.
+
+
+🔴حقیقت: کشتی‌های تجاری امشب همچنان در حال تردد به داخل و خارج از تنگه هرمز هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127029
+
+<div align="center">
+  <a href="telegram/content/alonews_127029_1781136845.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما: ترامپ بازم دروغ گفت و عقب نشینی کرد و ما پیروز شدیم، الله اکبر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127028
+
+<div align="center">
+  <a href="telegram/content/alonews_127028_1781136845.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در گفتگو با فاکس نیوز:
+آتش‌بس با ایران، نقض‌شده‌ترین و ناقض‌ترین آتش‌بس در تاریخ جهان بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127027
+
+<div align="center">
+  <a href="telegram/content/alonews_127027_1781136846.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به فاکس نیوز:
+نیروهای آمریکایی ۴۹ موشک تاماهاوک شلیک کردند که به اهدافی در عمق خاک ایران اصابت کردند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127026
+
+<div align="center">
+  <a href="telegram/content/alonews_127026_1781136846.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اگر ایران توافقنامه رو امضا نکنه، فرداشب به بمباران آنها برمیگردیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127025
+
+<div align="center">
+  <a href="telegram/content/alonews_127025_1781136846.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به فاکس : ایرانی‌ها ازم خواستن بمباران رو متوقف کنم
+
+
+🔴مستقیم با مقام‌های ایرانی صحبت کردم
+
+🔴جنگنده‌های آمریکا در حال پرواز روی آسمون ایران هستن
+
+🔴حملات هوایی به زودی تموم میشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127024
+
+<div align="center">
+  <a href="telegram/content/alonews_127024_1781136846.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هنوز هیچ حمله ای به‌ مواضع آمریکا صورت نگرفته است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127023
+
+<div align="center">
+  <a href="telegram/content/alonews_127023_1781136846.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای جنگنده های آمریکایی برفراز قشم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127022
+
+<div align="center">
+  <a href="telegram/content/alonews_127022_1781136847.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انفجار مجدد در بندرعباس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127021
+
+<div align="center">
+  <a href="telegram/content/alonews_127021_1781136847.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/پاکستان: به آمریکا اعلام کردیم که دیگر دست از تلاش برای میانجیگری برمی‌داریم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127020
+
+<div align="center">
+  <a href="telegram/content/alonews_127020_1781136847.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گزارشات اولیه از حملات هواپیمای جنگی A-10(گراز وحشی) آمریکا به قایق های تندرو سپاه در جزیره لارک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127019
+
+<div align="center">
+  <a href="telegram/content/alonews_127019_1781136847.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمید رسایی:
+اینترنت رو قطع کنید تا دیر نشده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127018
+
+<div align="center">
+  <a href="telegram/content/alonews_127018_1781136847.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زیرنویس شبکه خبر
+
+
+🔴تنگه هرمز به صورت کامل مسدود شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127017
+
+<div align="center">
+  <a href="telegram/content/alonews_127017_1781136848.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مقامات آمریکایی به وال استریت ژورنال گفتند که ترامپ دیپلماسی با ایران را رها نکرده است، اگرچه صبر او به طور فزاینده‌ای کاهش یافته است.
+
+
+🔴حتی پس از تأیید حملات جدید در اوایل این هفته، ترامپ به دستیارانش دستور داد پیامی را از طریق واسطه‌های قطری به تهران منتقل کنند که این حملات پاسخی به حادثه پهپاد است که تقریباً خدمه آپاچی را کشت، نه آغاز جنگ تمام‌عیار.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127016
+
+<div align="center">
+  <a href="telegram/content/alonews_127016_1781136848.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیمت نفت آمریکا پس از حملات جدید نظامی آمریکا به جنوب ایران، به بالای ۹۲ دلار در هر بشکه رسید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127015
+
+<div align="center">
+  <a href="telegram/content/alonews_127015_1781136848.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈علی قلهکی خبرنگار :
+اگه آمریکا بخواد زیرساخت های مارو بزنه و بندازتمون توی بحران برق و بنزین ما هم کاری میکنیم که اسرائیل هم دچار این بحران بشه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127014
+
+<div align="center">
+  <a href="telegram/content/alonews_127014_1781136848.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ قرارگاه خاتم الانبیا: تنگه هرمز از این لحظه برای تمام شناور ها بسته اعلام میشه و هیچ شناوری حق عبور نداره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127013
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱لطفا توییتر الونیوز رو دنبال کنین 
+🔴پست های انگلیسی در رابطه با جنایت های حکومت به انگلیسی نوشته شده و افراد مهم منشن و هشتگ های مهم قرار داده شده. 
+🔴ریپست کنین. مهمترین کمک این روزها جلوگیری از پروپاگاندا حکومت علیه این قتل عام مردم هستش. خونشون نباید پایمال…
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 02:11
 ---
 
