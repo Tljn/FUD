@@ -7,6 +7,3402 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/21 15:42
+---
+
+## VahidOOnLine — post 244936
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244936_1781179939.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا طلایی‌نیک، سخنگوی وزارت دفاع جمهوری اسلامی، گفت هرگونه عبور از خطوط قرمز جمهوری اسلامی با «پاسخ قاطع، پشیمان‌کننده و تنبیهی سخت» مواجه خواهد شد.
+او افزود دشمنان جمهوری اسلامی باید بپذیرند راه‌حل مسائل منطقه تداوم «تجاوز و جنگ‌افروزی» نیست و ناگزیرند آتش‌بس و توقف اقدامات «خصمانه» را در همه جبهه‌ها بپذیرند.
+طلایی‌نیک با اشاره به دو جنگ اخیر گفت نیروهای مسلح در برابر تهدید و فشار عقب‌نشینی نخواهند کرد و در دفاع از «امنیت ملی، استقلال و تمامیت ارضی» با هیچ طرفی تعارف ندارند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244935
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مرکز فرماندهی ارتش آمریکا، سنتکام روز پنجشنبه ۲۱ خرداد اعلام کرد نفتکش ام‌/تی جلویر (M/T Jalveer) با پرچم گینه بیسائو را به دلیل تلاش برای انتقال نفت ایران و نقض محاصره دریایی این کشور، با دو موشک هلفایر، هدف قرار داده است.
+
+در بیانیه سنتکام آمده است: «نیروهای آمریکایی ساعت ۱۱:۲۰ شب به وقت شرق آمریکا در ۱۰ ژوئن/۲۱ خرداد، یک نفتکش را در خلیج عمان پس از آنکه این کشتی با تلاش برای انتقال نفت ایران، محاصره دریایی علیه ایران را نقض کرد، از کار انداختند. این سومین کشتی تجاری بود که این هفته توسط نیروهای آمریکایی از کار انداخته شد.»
+
+سنتکام در بیاینه خود آورده است «یک هواپیمای آمریکایی پس از آنکه خدمه بارها از دستورالعمل‌های نیروهای آمریکایی پیروی نکردند، دو موشک هلفایر به موتورخانه کشتی شلیک کرد.»
+
+مرکز فرماندهی آمریکا در همین بیانیه آورده است که کشتی‌های M/T Marivex و M/T Settebello با پرچم پالائو را در روزهای دوشنبه و سه‌شنبه از کار انداختند.
+
+هند روز پنجشنبه با انتقاد از آمریکا از هدف گرفتن سه کشنی مرتبط با این کشور خبر داد و اعلام کرد که سه خدمه یکی از این کشتی‌ها در پی حمله آمریکا کشته شده‌اند.
+
+سنتکام می‌گوید از زمان آغاز محاصره در ۲۴ فروردین، ۹ کشتی را از کار انداخته، ۱۳۵ کشتی را به مسیر دیگری هدایت کرده‌اند و به ۴۲ کشتی حامل کمک‌های بشردوستانه اجازه عبور داده‌ است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244934
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244934_1781179941.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در نشست ویژه دولت در نوف هگلیل گفت اسرائیل درگیر «نبردی مداوم برای جلیل» است و هر هفته صدها نفر از نیروهای حزب‌الله را هدف قرار می‌دهد.
+او افزود امنیت همچنان اولویت اصلی دولت است و اسرائیل با چالش پهپادها نیز روبه‌رو است و برای مقابله با آن اقدام می‌کند.
+نتانیاهو اعلام کرد دولت نزدیک به ۲۰ میلیارد شِکِل (واحد پول اسرائیل) برای مناطق واقع در شعاع ۹ کیلومتری مرز و یک میلیارد شِکِل برای بلندی‌های جولان اختصاص داده است.
+به گفته او، برنامه‌ای تازه برای توسعه اقتصادی و زیرساختی شهرهای شمالی اجرا می‌شود و امنیت به این منطقه بازگردانده خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244933
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244933_1781179942.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاظم غریب‌آبادی، معاون وزارت خارجه جمهوری اسلامی، در شبکه ایکس نوشت پیامدهای کامل حملات جدید آمریکا به اهدافی در خاک ایران متوجه واشینگتن و هر طرفی است که در آن «مشارکت، تسهیل یا مساعدت» کند.
+او این حملات را «تجاوز آشکار به حاکمیت، تمامیت ارضی و امنیت ملی جمهوری اسلامی» خواند و تاکید کرد نیروهای مسلح جمهوری اسلامی با «پاسخی قاطع، مقتدرانه و پشیمان‌کننده» از خاک کشور دفاع خواهند کرد.
+غریب‌آبادی همچنین اعلام کرد توصیف این حملات به‌عنوان دفاع از خود، آن‌گونه که در بیانیه سنتکام آمده، «هیچ اثر حقوقی ندارد».
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244932
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244932_1781179943.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاظم غریب‌آبادی، معاون وزارت خارجه جمهوری اسلامی، در شبکه ایکس نوشت پیامدهای کامل حملات جدید آمریکا به اهدافی در خاک ایران متوجه واشینگتن و هر طرفی است که در آن «مشارکت، تسهیل یا مساعدت» کند.
+او این حملات را «تجاوز آشکار به حاکمیت، تمامیت ارضی و امنیت ملی جمهوری اسلامی» خواند و تاکید کرد نیروهای مسلح جمهوری اسلامی با «پاسخی قاطع، مقتدرانه و پشیمان‌کننده» از خاک کشور دفاع خواهند کرد.
+غریب‌آبادی همچنین اعلام کرد توصیف این حملات به‌عنوان دفاع از خود، آن‌گونه که در بیانیه سنتکام آمده، «هیچ اثر حقوقی ندارد».
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244931
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244931_1781179943.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمد مخبر، مشاور مجتبی خامنه‌ای روز پنجشنبه ۲۱ خردادماه و ساعاتی پس از حملات «گسترده آمریکا» به جنوبِ و مرکز ایران و حومه تهران گفت: «ترامپ غیر از یاوه‌گویی چیزی بلد نیست و این هم هیچ تاثیری بر ما ندارد.»
+
+مخبر که در مراسم اولین سالگرد کشته شدن حسین سلامی، فرمانده کل پیشین سپاه شرکت کرده بود، در پاسخ به خبرنگاران گفت: «موضع ما در مذاکرات این است که یک سر سوزن از منافع نظام کوتاه نمی‌آییم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244930
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244930_1781179946.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از تصویب قطعنامه شورای حکام علیه برنامه هسته‌ای جمهوری اسلامی، میخائیل اولیانوف، نماینده روسیه در آژانس در گفت‌وگویی اختصاصی با ایران‌اینترنشنال این قطعنامه را «شرم‌آور» و «ریاکارانه» توصیف کرد و آمریکا و اسرائیل را مسئول تضعیف همکاری میان جمهوری اسلامی و آژانس دانست
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244922
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_244922_1781179949.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شب گذشته آمریکا اهدافی را عمدتا در نزدیکی تنگه هرمز هدف قرار داد. این حملات در میانه مذاکرات با جمهوری اسلامی انجام شد و به نظر می‌رسد هدف آن افزایش فشار بر تهران باشد. حالا پرسش اصلی این است که بحران تنگه هرمز به کجا خواهد انجامید؟
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244921
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244921_1781179949.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، در شبکه ایکس نوشت: «رییس‌جمهوری از تعادل خارج‌شده آمریکا تصور می‌کند بمب‌ها می‌توانند او را از باتلاقی که خود ساخته نجات دهند، اما موشک‌های جمهوری اسلامی او را بیش از پیش در همان باتلاق فرو خواهند برد.»
+او همچنین نوشت آمریکا در برابر انتخابی دشوار قرار دارد.
+رضایی افزود: «واشینگتن باید میان پذیرش شروط جمهوری اسلامی و از دست دادن آخرین بقایای اعتبار خود در جهان، یکی را انتخاب کند.»
+اظهارات رضایی در حالی مطرح شده است که مقام‌های جمهوری اسلامی بارها بر ادامه پاسخ به اقدامات نظامی آمریکا تاکید کرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پلیس نیویورک از نیمه‌شب چهارشنبه تا بامداد پنجشنبه ۲۱ خرداد و در پی به آشوب کشیده شدن جشن پیروزی هوادارن نیکس بر اسپرز در رقابت‌های پایانی لیگ بسکتبال حرفه‌ای آمریکا، چندین نفر را بازداشت کرد.
+
+ویدیوهای منتشر شده از این جشن در رسانه‌ها و شبکه‌های اجتماعی نشان می‌دهد که گروهی از «جوانان» خودروها و چراغ‌های راهنمایی و رانندگی را تخریب می‌کنند.
+
+نیکس شامگاه چهارشنبه و تنها ۱.۲ ثانیه پیش از پایان یک چهارم پایانی با امتیازی که او جی آنونوبی گرفت، بزرگ‌ترین «بازگشت» تاریخ ان‌بی‌ای را رقم زد و با نتیجه ۱۰۷ بر ۱۰۶ سن آنتونیو اسپرز را از پیش رو برداشتند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244919
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244919_1781179950.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت هرانا گزارش داد پوریا امینی، از بازداشت‌شدگان انقلاب ملی ایرانیان در دی‌ماه ۱۴۰۴، از سوی دادگاه انقلاب شهرستان گناباد بابت اتهام‌های «اجتماع و تبانی»، «توهین به رهبری» و «تبلیغ علیه نظام» به هشت سال حبس محکوم شده است.
+بر اساس این گزارش، امینی ۲۰ دی ۱۴۰۴ از سوی نیروهای امنیتی بازداشت شد و پس از حدود سه ماه، ۲۰ فروردین ۱۴۰۵ با تودیع وثیقه سه میلیارد تومانی از زندان گناباد آزاد شد. او فرزند هاشم امینی و از زندانیان سیاسی سابق ساکن مشهد است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244918
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244918_1781179951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، با استناد به اطلاع خبرنگار خود اعلام کرد گزارش‌های رسانه‌ای درباره رسیدن جمهوری اسلامی و آمریکا به متن نهایی تفاهم «خبرسازی» است و صحت ندارد.
+این در حالی است که پیش‌تر رویترز به نقل از یک مقام اروپایی و سه منبع ایرانی گزارش داد دو طرف در حال تبادل پیام درباره جزییات یک «یادداشت تفاهم» هستند و تلاش‌ها برای نهایی‌سازی چارچوب توافق اولیه شدت گرفته است و منابع ایرانی گفتند آمریکا و جمهوری اسلامی به «یک تفاهم سیاسی» دست یافته‌اند، اما برخی موضوعات همچنان نیازمند مذاکرات بیشتر است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 244917
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_244917_1781179952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رویترز و خبرگزاری فرانسه صبح پنجشنبه ۲۱ خرداد به نقل از منابع آگاه گزارش کردند که هیئت دیپلماتیک قطر که روز گذشته و «در هماهنگی با واشنگتن» به ایران سفر کرده بود، تهران را ترک کرد.
+
+شبکه سی‌ان‌ان پیش از این گزارش داده بود که مذاکرات میان این هیئت دیپلماتیک و مقام‌های تهران تا صبح پنجشنبه و در زمان حملات آمریکا، ادامه داشته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14504
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14504_1781179953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تحلیلگر ارشد جمهوری اسلامی آمریکا
+@withyashar
+</div>
+
+## WithYashar — post 14503
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام:نیروهای آمریکایی یک نفتکش را در خلیج عمان در ساعت ۱۱:۲۰ شب به وقت شرقی در ۱۰ ژوئن غیرفعال کردند، پس از آنکه این کشتی با تلاش برای حمل نفت ایران، تحریم علیه ایران را نقض کرد و این سومین کشتی تجاری است که این هفته توسط نیروهای آمریکایی غیرفعال شده است.
+
+فرماندهی مرکزی ایالات متحده (centcom) علیه نفتکش m/t jalveer که پرچم گینه بیسائو را داشت و تلاش می‌کرد نفت را از ایران از طریق خلیج عمان حمل کند، اقدام کرد.
+یک هواپیمای آمریکایی دو موشک هلفایر به اتاق موتور کشتی شلیک کرد پس از آنکه خدمه بارها از اطاعت دستورات نیروهای آمریکایی خودداری کردند.
+@withyashar
+</div>
+
+## WithYashar — post 14502
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع دیپلماتیک ارشد به «الحدث» گفت:
+پاکستان و قطر در ساعات گذشته تلاش‌های خود را برای پیشبرد توافق افزایش داده‌اند
+@withyashar
+</div>
+
+## WithYashar — post 14501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده شدن چهار صدای انفجار از تنگه هرمز در قشم🚨
+@withyashar
+</div>
+
+## WithYashar — post 14500
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر دفاع بریتانیا، جان هیلی، استعفا داد و اعلام کرد که نخست‌وزیر کی‌یر استارمر و وزارت خزانه‌داری منابع لازم برای دفاع را در برابر تهدیدهای فزاینده تأمین نکرده‌اند.
+او در نامه استعفای خود گفته است که «طرح سرمایه‌گذاری دفاعی» پیشنهادی «به‌طور قابل توجهی ناکافی است» و هشدار داده که این موضوع می‌تواند آمادگی نیروهای مسلح بریتانیا را کاهش داده و این کشور را «کمتر امن» کند.
+@withyashar
+</div>
+
+## WithYashar — post 14499
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما: انفجار در سیریک گزارش شده
+@withyashar
+</div>
+
+## WithYashar — post 14498
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسکو: آمریکا پیش از آنکه درخواست دسترسی بازرسان آژانس به تأسیسات هسته‌ای ایران را دنبال کند، باید تضمین دهد که به تهران هیچ حمله جدیدی نمی کند.
+@withyashar
+</div>
+
+## WithYashar — post 14497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه کویت: حملات مکرر ایران نشان دهنده رویکردی سیستماتیک و تهاجمی است که کویت نه آن را می‌پذیرد و نه تحمل می‌کند
+@withyashar
+</div>
+
+## WithYashar — post 14496
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: ادعای رسیدن به متن نهایی برای تفاهم بین ایران و آمریکا خبرسازی است
+@withyashar
+</div>
+
+## WithYashar — post 14495
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای رسانه بریتانیایی امواج:
+پیش‌نویس توافق نهایی تهیه شده است.
+متن آماده است. دیشب نهایی شد
+اگر تا امروز به صورت نهایی تایید شود، به صورت رسمی اعلام می شود
+@withyashar
+</div>
+
+## WithYashar — post 14494
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14494_1781179955.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران کوه ولنجک الان
+@withyashar
+</div>
+
+## WithYashar — post 14493
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: یک حملهٔ آمریکایی به یک کشتی باربری 150 تنی ایران، در خلیج عمان در اوایل امروز انجام شد، این کشتی حامل کالاهای ضروری را از خصب، عمان، به ایران حمل می‌کرد
+@withyashar
+</div>
+
+## WithYashar — post 14492
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14492_1781179956.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه وزارت خارجه در خصوص نقض آتش‌بس توسط آمریکا
+@withyashar
+</div>
+
+## WithYashar — post 14491
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای سی‌ان‌ان: یک منبع دیپلماتیک می‌گوید مذاکرات آمریکا و ایران همچنان در مسیر خود ادامه دارد
+
+یک منبع دیپلماتیک آگاه از موضوع گفت که مذاکرات برای دستیابی به توافق میان ایالات متحده و ایران، پس از گفت‌وگوهای شبانه، همچنان در مسیر خود قرار دارد.
+
+این مذاکرات با وجود تبادل حملات میان آمریکا و ایران در طول شب ادامه یافت؛ حملاتی که تهدید می‌کردند تلاش‌های دیپلماتیک را با پیچیدگی و دشواری مواجه کنند.
+@withyashar
+</div>
+
+## WithYashar — post 14490
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اردن: سامانه‌های دفاع هوایی دیشب 20 موشک شلیک شده از ایران به منطقه ال-ازرق را رهگیری کردن
+@withyashar
+</div>
+
+## WithYashar — post 14489
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14489_1781179957.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندسی گراهام،درباره ایران:
+
+اگه همین الان توافق نکنن، باید دست اسرائیل رو کاملاً باز بذاریم و خودمون هم از نیروی نظامی استفاده کنیم.
+امیدوارم اتفاقات امشب باعث تغییر رفتار بشه.
+اگه این فشارها باعث نشه که بیان پای میز مذاکره، باید استراتژی رو عوض کرد. باید با تمام قدرت وارد شد. کار رو یکسره کرد.
+بعد از اینکه تکلیف ایران مشخص شد، به مرور زمان مردم ایران می‌تونن کشورشون رو پس بگیرن و مسیر صلح بین عربستان و اسرائیل هموار بشه.
+همون افرادی که میگن زدن زیرساخت‌های ایران اشتباهه، باید بدونن که این‌ها اهداف نظامی مشروع محسوب میشن.
+@withyashar
+</div>
+
+## WithYashar — post 14488
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر دریانوردی هند: سه ملوان هندی دیروز در حمله ارتش آمریکا به یک نفتکش در‌ نزدیک تنگه هرمز کشته شدن
+@withyashar
+</div>
+
+## WithYashar — post 14487
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دولت لبنان ممنوعیت کامل فعالیت‌های سپاه جمهوری اسلامی (IRGC) در داخل خاک لبنان را اعمال کرده است. به نیروهای امنیتی دستور داده شده است که هر عضو سپاه را که در آنجا فعالیت می‌کند، تعقیب، دستگیر و اخراج کنن
+@withyashar
+</div>
+
+## mwarmonitor — post 10703
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک مقام دیپلماتیک ارشد به العربیه می‌گوید مذاکرات برای دستیابی به توافق میان ایران و ایالات متحده همچنان در جریان است.
+
+🔴 به گفته همین منبع، پاکستان و قطر طی ساعات گذشته تلاش‌های خود را برای پیشبرد توافق افزایش داده‌اند.
+
+🔴 این مقام دیپلماتیک تأکید کرده است که اخبار مربوط به شکست یا عقب‌گرد در مذاکرات صحت ندارد.
+
+🔴 همچنین منابع ارشد به العربیه گفته‌اند ایران پاسخ خود را به پیامی که توسط وزیر کشور پاکستان منتقل شده بود، ارائه کرده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10702
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شبکه ABC به نقل از یک مقام آمریکایی: هیچ گزارشی از تلفات در میان نیروهای آمریکایی یا خسارات جدی در پایگاه‌های ما وجود ندارد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزارت امور خارجه هند: سه کشتی هندی هدف حملاتی قرار گرفته‌اند که توسط نیروی دریایی آمریکا انجام شده است. @mwarmonitor
+</div>
+
+## mwarmonitor — post 10700
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزارت امور خارجه هند: سه کشتی هندی هدف حملاتی قرار گرفته‌اند که توسط نیروی دریایی آمریکا انجام شده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری: وزیر دفاع بریتانیا، جان هیلی، استعفا داد و اعلام کرد که نخست‌وزیر کی‌یر استارمر و وزارت خزانه‌داری منابع لازم برای دفاع را در برابر تهدیدهای فزاینده تأمین نکرده‌اند.
+
+📌او در نامه استعفای خود گفته است که «طرح سرمایه‌گذاری دفاعی» پیشنهادی «به‌طور قابل توجهی ناکافی است» و هشدار داده که این موضوع می‌تواند آمادگی نیروهای مسلح بریتانیا را کاهش داده و این کشور را «کمتر امن» کند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10698
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10698_1781179960.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بحرین اعلام کرد در پی سقوط ترکش‌های ناشی از رهگیری و انهدام پهپادهای ایرانی، یک کودک زخمی شده و چند خودرو آتش گرفته و تعدادی خانه در شهر حمد و پایتخت، منامه، آسیب دیده‌اند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرنگار الجزیره: یک حمله هوایی اسرائیل به شهرک منصوری در شهرستان صور در جنوب لبنان انجام شده است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10696
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نظامی - سیاسی pinned «⚠️اطلاعیه رسمی کانال ⚠️ 🔸بدین‌وسیله به اطلاع همراهان گرامی می‌رسد که کانال خبری ما در پلتفرم X (توییتر سابق) راه‌اندازی شد. 🔸از این پس، آخرین اخبار و تحلیل‌های نظامی، سیاسی و همچنین مسائل اجتماعی ایران و جهان به‌صورت منظم در آن منتشر خواهد شد. 🔸از شما عزیزان…»
+</div>
+
+## mwarmonitor — post 10695
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️اطلاعیه رسمی کانال ⚠️
+
+🔸بدین‌وسیله به اطلاع همراهان گرامی می‌رسد که کانال خبری ما در پلتفرم X (توییتر سابق) راه‌اندازی شد.
+
+🔸از این پس، آخرین اخبار و تحلیل‌های نظامی، سیاسی و همچنین مسائل اجتماعی ایران و جهان به‌صورت منظم در آن منتشر خواهد شد.
+
+🔸از شما عزیزان درخواست می‌شود با عضویت در این صفحه و معرفی آن به دوستان و آشنایان، ما را در گسترش این مسیر خبری و تحلیلی همراهی کنید.
+
+با سپاس از حمایت و همراهی شما.
+
+https://x.com/mwarmonitor
+</div>
+
+## mwarmonitor — post 10694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ افشاگری درباره UNRWA: گفته می‌شود ۱۰۱ کارمند آژانس امدادرسانی و کاریابی سازمان ملل برای آوارگان فلسطینی (UNRWA) در حمله ۷ اکتبر یا با شاخه نظامی حماس در ارتباط بوده‌اند.
+
+🔸در میان آن‌ها مدیران مدارس، معلمان، کادر درمانی و کارکنان امنیتی نیز حضور داشته‌اند.
+
+🔸بر اساس این ادعاها، کارکنان UNRWA در انتقال سلاح، پشتیبانی از ارتباطات عملیاتی و استفاده از تأسیسات UNRWA برای فعالیت‌های مرتبط با حماس کمک کرده‌اند.
+
+🔸حماس به‌طور سیستماتیک از سازمان‌های بشردوستانه برای انجام اقدامات تروریستی علیه غیرنظامیان اسرائیلی سوءاستفاده می‌کند. IDF
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨با توجه به تنش‌های ایجادشده توسط نیروهای متجاوز آمریکا در منطقه و اطلاعیه نیروهای مسلح ایران در شب گذشته، تا اطلاع ثانوی تنگه هرمز بسته خواهد بود. از متقاضیانی که مجوز عبور دریافت کرده‌اند تقاضا می‌شود صبور بوده و منتظر راهنمایی‌های آتی پی‌جی‌اس‌ای باشند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10691
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«ارشدترین مقام نظامی ناتو می‌گوید هنوز زود است که مشخص شود آیا فضا (فضای بیرونی) به بخشی از مدل نیروهای ناتو تبدیل خواهد شد یا نه — نیویورک تایمز»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10690
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 به گفته سه منبع ایرانی به رویترز، با وجود حملاتی که از سوی دو طرف انجام شده، تلاش‌ها برای دستیابی به یک توافق مقدماتی میان ایران و ایالات متحده شدت گرفته است؛ در حالی که طرفین درباره سازوکاری برای آزادسازی دارایی‌های مسدودشده ایران در حال گفت‌وگو هستند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342844
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342844_1781179961.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Inside the UFC octagon set for White House showdown https://twitter.com/i/broadcasts/1OxwbbRQrwPJB
+</div>
+
+## FoxNewsTwitter — post 342843
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342843_1781179962.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"We'll bomb the s--- out of them."
+
+President Trump's blunt warning to Iran came during a call with @TreyYingst, alongside VP Vance and special envoys Steve Witkoff and Jared Kushner from the Situation Room.
+
+The administration believes Iran is continuing to drag its feet at the negotiating table, even as U.S. forces demonstrate overwhelming military leverage.
+
+Trump's message: Iran cannot even control the skies over its own country. The U.S. launched 49 Tomahawk missiles, with some strikes reportedly hitting targets roughly 40 miles outside Tehran, while fighter jets targeted positions along Iran's southwestern coast.
+
+At the center of the standoff is a proposed deal that would reopen the Strait of Hormuz and place limits on Iran's nuclear program. The question now is whether Tehran comes to the table before the pressure escalates further.
+</div>
+
+## FoxNewsTwitter — post 342842
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342842_1781179965.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @FoxUSNews: Family of convicted killer Karmelo Anthony raised nearly $634,000 through a crowdfunding campaign that paid for moving expenses, living costs, and 'security measures' — less than two weeks after Anthony stabbed a 17-year-old to death at a Texas high school track meet.
+
+The fundraiser has since been taken down.
+</div>
+
+## pm_afshaa — post 93608
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93608_1781179965.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فارس: یک منبع نزدیک به تیم مذاکره‌کننده، ادعای سی‌ان‌ان دربارهٔ مذاکرات جدید جمهوری اسلامی و آمریکا رو تکذیب کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93607
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93607_1781179966.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دبیرکل سازمان ملل:
+آتش‌بس در خاورمیانه هم بیشتر شبیه به یک آتشِ کمتر است تا یک آتش‌بس واقعی.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93606
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93606_1781179967.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ای‌بی‌سی به نقل از یک مقام آمریکایی:
+هیچ گزارشی از تلفات در میان نیروهای آمریکایی یا خسارات جدی در پایگاه‌های ما وجود نداره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93605
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93605_1781179968.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک منبع دیپلماتیک عالی‌رتبه به الحدث:
+جمهوری اسلامی پاسخ خودش رو دربارهٔ پیامی که وزیر کشور پاکستان تحویل داده بود، ارائه کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93604
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شنیده شدن صدای انفجار در قشم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: ادعای رسیدن به متن نهایی برای تفاهم بین ایران و آمریکا خبرسازی است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع داخلی:گفت و گوها با آمریکا متوقف شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93601
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: یک حملهٔ آمریکایی به یک کشتی باربری 150 تنی ایران، در خلیج عمان در اوایل امروز انجام شد، این کشتی حامل کالاهای ضروری را از خصب، عمان، به ایران حمل می‌کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اردن: سامانه‌های دفاع هوایی دیشب 20 موشک شلیک شده از ایران به منطقه ال-ازرق را رهگیری کردن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رسانۀ آمریکایی: دولت ترامپ تحقیق دربارۀ رئیس پیشین نایاک را آغاز کرد
+
+وب‌سایت آمریکایی فری‌پرس، به نقل از منابع آگاه گزارش داد وزارت امور خارجۀ آمریکا بررسی فعالیت‌های تریتا پارسی، بنیان‌گذار و رئیس پیشین نایاک، را سرگرفته است.
+بنا بر این گزارش، این بررسی‌ها در مسیر اخراج احتمالی بنیان‌گذار نایاک از خاک آمریکا به پیش می‌رود.
+تریتا پارسی که به‌ویژه در دوران ریاست جمهوری حسن روحانی برای ارتباط میان مقامات تهران و واشینگتن و امضای برجام فعال بود، از بناینگذاران مؤسسۀ کوئینسی نیز به‌شمار می‌رود.
+بر اساس این گزارش، مؤسسه کوئینسی برای جلوگیری از بازداشت احتمالی یا اخراج تریتا پارسی، اقدامات حقوقی پیش‌گیرانه را آغاز کرده است.
+فری‌پرس نوشت برخی مقام‌های دولت ترامپ بر این باورند که پروندۀ افرادی که در راستای منافع جمهوری اسلامی فعالیت می‌کنند، باید تحت بررسی قرار گیرد.
+وزارت امور خارجۀ آمریکا از زمان بازگشت ترامپ به قدرت، برنامۀ اخراج وابستگان و هواداران جمهوری اسلامی را از خاک آمریکا در دستور کار قرار داد.
+تاکنون چندتن از وابستگان حکومت، از جمله خانوادۀ عیسی هاشمی فرزند معصومۀ ابتکار ودو تن از بستگان قاسم سلیمانی، از خاک آمریکا اخراج شده‌اند.
+نایاک، شورای ملی ایرانیان آمریکا، که در سال ۲۰۰۲ توسط تریتا پارسی بنیان گذاشته شد، همواره روابطی نزدیک با اعضای حزب دموکرات ایالات متحده برقرار کرده است.
+این نهاد زیر عنوان «مخالفت با جنگ» عموما در پی «سازش دیپلماتیک» میان واشینگتن و تهران بوده است.
+تریتا پارسی که از ۲۵ سال پیش در آمریکا زندگی می‌کند، گرین کارت اقامت در این کشور را در اختیار دارد و شهروند آمریکا به‌شمار نمی‌رود.
+روزبه پارسی، برادر تریتا پارسی که ساکن سوئد است نیز به لابی‌گری برای جمهوری اسلامی، متهم شده است.
+
+#خبر #دژ #نایاک
+@DEJradio
+</div>
+
+## DEJradio — post 5587
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5587_1781179969.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎤 تنش های اخیر بین جمهوری اسلامی و امریکا و تهدید حوثی‌ها به بستن تنگه باب المندب
+
+گفت‌وگو با شایان سمیعی، کارشناس امنیت ملی
+
+#تنگه_باب_المندب #تنگه_هرمز
+@DEJradio
+</div>
+
+## DEJradio — post 5586
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5586_1781179970.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 برقراری پروازها در فرودگاه خمینی
+
+گزارش‌های میدانی حاکی است پروازها از فرودگاه خمینی تهران روز پنجشنبه ۲۱ خرداد ۱۴۰۵ برقرار شده است.
+
+با بالاگرفتن درگیری‌ها کلیه پروازها در فرودگاه‌های ایران متوقف شد.
+
+#تهران #فرودگاه_خمینی
+@DEJradio
+</div>
+
+## DEJradio — post 5585
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5585_1781179972.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 شعارنویسی در تهرانسر: تا کی ایرانی‌ها باید قربانی حزب‌الله شوند؟
+
+#تهرانسر #حزب_الله_لبنان
+@DEJradio
+</div>
+
+## DEJradio — post 5584
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5584_1781179974.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 بر اساس اطلاعات دریافتی دژ شمار زیادی از پرسنل نیروهای مسلح (نظامی و انتظامی) با گذشت حدود چهار ماه از جنگ ۴۰ روزه نه تنها پاداش نگرفته‌اند بلکه هنوز مبلغ «اضافه کار» هم دریافت نکرده‌اند. این در حالیست که فرماندهان ارشد سـ.ـپاه و ارتش حواله خودرو دریافت کردند و برای بعضی نیروها که شغل ستادی داشتند تا ۲۰ میلیون تومان واریز شده است.
+
+تبعیض در پرداخت حقوق و مزایا نیروهای مسلح باعث نارضایتی گسترده در یگان‌ها شده است.
+
+یکی از پرسنل نیروی زمینی ارتش که در شیراز خدمت می‌کند می‌گوید: «تمام این ۴۰ روز و بعد آن زیر آتش بودیم. نزدیک ۸۰ روز خانه نرفتیم، بعد از دو ماه، سه میلیون و ۷۰۰ به حساب ما ریخته شده، به عنوان پاداش! تازه بعضی آنهم نگرفته‌اند اما برای حزب‌الله خوب پول دارند خرج کنند.»
+
+#پاداش #جنگ۴۰روزه
+@DEJradio
+</div>
+
+## DEJradio — post 5583
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5583_1781179975.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 #رقص_اعتراض
+برنامه «زیرصدا» با آرش
+
+#زیرصدا
+@DEJradio
+</div>
+
+## DEJradio — post 5580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 در جریان جنگ ۴۰ روزه، مقابل پلیس راه قزوین ایست بازرسی مستقر شده بود که هدف حمله هوایی قرار گرفت.
+
+تمام ساختمان این مرکز ویران شد و اکنون با گذشت نزدیک به چهارماه آواربرداری نشده است و نیروهای پلیس در یک کانکس مستقر می‌شوند.
+
+#جنگ۴۰روزه #قزوین
+</div>
+
+## DEJradio — post 5579
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5579_1781179976.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 بمباران فرودگاه پیام کرج
+
+#کرج
+@DEJradio
+</div>
+
+## DEJradio — post 5578
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5578_1781179978.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💀
+🚨 یک بـ.ـسیجی به نام «امید بختیاری» ۱۸ خرداد ۱۴۰۵ در حمله اسرائیل به مراکز نظامی سـ.ـپاه پاسداران کشته شد.
+
+منابعی در شهرداری تهران می‌گویند او کارمند شهرداری بوده و «هنگام انجام عملیات آواربرداری» کشته شده است.
+در این حملات دو عضو پدافند ارتش نیز کشته شده بودند.
+
+#جنگ #بسیجی
+@DEJradio
+</div>
+
+## DEJradio — post 5577
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5577_1781179979.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📌 آمریکا در جریان حمله هوایی به حومه تهران که بامداد پنجشنبه ۲۱ خرداد ۱۴۰۵ انجام شد، فرودگاه پیام کرج را هدف قرار داد.
+
+کانال ۱۴ اسرائیل گزارش داد، «این فرودگاه به عنوان یک ترمینال حیاتی برای زنجیره تأمین نظامی غیرقانونی عمل می‌کند که مستقیما قطعات مخفی سلاح را از کشتی‌های باری تحریم‌شده چینی و روسی تخلیه و از طریق پروازهای مخفی منتقل می‌کند.»
+
+#جنگ #فرودگاه_پیام_کرج
+@DEJradio
+</div>
+
+## DEJradio — post 5576
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5576_1781179980.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 در شرایطی که حکومت به خاطر دفاع از حزب‌الله کشور را دوباره به جنگ کشاند، مردم از گرانی شدید مواد غذایی شکایت دارند.
+
+#جنگ #تورم
+@DEJradio
+</div>
+
+## DEJradio — post 5575
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5575_1781179981.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 سـ.ـپاه پاسداران روز پنجشنبه ۲۱ خرداد ۱۴۰۵ به تلافی حملات آمریکا تعدادی موشک به بحرین، کویت و اردن پرتاب کرد. موشک‌ها بر فراز استان‌های زنجان، آذربایجان غربی و آذربایجان شرقی، کردستان و اصفهان مشاهده شدند.
+
+#جنگ #موشکپرانی
+@DEJradio
+</div>
+
+## DEJradio — post 5574
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5574_1781179981.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🔥 آمریکا با موشک‌های پیشرفته هدایت‌پذیر ۲۱ خرداد ۱۴۰۵ تأسیسات نظامی ورامین و پارچین را هدف قرار داد.
+
+دقیقا پیدا نیست موشک‌ها به کجا اصابت کرد اما حوالی تأسیسات موشکی سـ.ـپاه پاسداران بود.
+ترامپ گفت بخشی از عملیات را جنگنده‌ها انجام دادند. تلفات نیز هنوز معلوم نیست.
+
+#جنگ #حملات_هدفمند
+@DEJradio
+</div>
+
+## DEJradio — post 5573
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5573_1781179982.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🔥 ارتش آمریکا بامداد پنجشنبه ۱۱ ژوئن (۲۱ خرداد) طی دو موج حمله نقاطی در ایران را هدف قرار داد. موج اول مناطق جنوبی و موج دوم مناطق مرکزی را شامل می‌شد.
+
+دونالد ترامپ گفت، «در حملات اخیر، ایالات متحده ۴۹ موشک تاماهاوک به سوی اهدافی در ایران شلیک کرده و همزمان جنگنده‌های آمریکایی نیز بمباران‌هایی انجام داده‌اند.»
+
+سنتکام در بیانیه‌ای گفت حملاتی علیه توانایی‌های نظارت نظامی ایران، سامانه‌های ارتباطی و سایت‌های پدافند هوایی در سراسر ایران انجام دادند. تجهیزات و نیروهای سپاه تفنگداران دریایی، نیروی هوایی و نیروی دریایی آمریکا مهمات هدایت‌شونده دقیق را به سوی اهداف ایرانی شلیک کردند؛ اهدافی که تهدیدی برای نیروهای آمریکایی و کشتی‌های تجاری بین‌المللی در حال عبور از آب‌های منطقه‌ای محسوب می‌شدند.
+
+#جنگ #ترامپ
+</div>
+
+## DEJradio — post 5572
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5572_1781179983.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 “تو بندرعباس با موشک پایگاه سـ.ـپاه رو زدن سـ.ـپاهی‌ها از ترس همه فرار کردن تو بیابون دارن الله‌اکبر می‌گن!
+
+پیام دریافتی
+
+#جنگ #بندرعباس
+@DEJradio
+</div>
+
+## DEJradio — post 5571
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5571_1781179984.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 هم‌زمان با آغاز حمله آمریکا به نواحی جنوبی ایران، چندین پهپاد و ریزپرنده متعلق به آمریکا و اسرائیل در آسمان ایران به پرواز درآمدند.
+در چند شهر پدافند برای هدف قرار دادن آنها فعال شد.
+
+سرعت این پهپادها به اندازه جنگنده‌ها نیست اما رهگیری آن با توپ‌های پدافندی قدیمی، آن‌هم بدون رادار پیشرفته، بسیار دشوار است.
+
+*تصویر آرشیوی
+
+#جنگ #حملات_هدفمند
+@DEJradio
+</div>
+
+## DEJradio — post 5570
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5570_1781179985.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🚨 بامداد پنجشنبه ۲۱ خرداد ۱۴۰۵ [۰۱:۱۸ بامداد به‌وقت ایران] هم‌زمان با حملات هوایی آمریکا به تأسیاست نظامی در نواحی جنوبی کشور، دو هواپیمای مسافربری متعلق به شرکت «کارون» و «مهر آنلاین» در آسمان ایران پرواز کردند. این در شرایطی است که پیش از آغاز حملات آسمان ایران کلیر شده بود.
+
+#جنگ #حملات_هدفمند
+@DEJradio
+</div>
+
+## mamlekate — post 103679
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 آغاز جام جهانی ۲۰۲۶؛ پنج قدرت بزرگ در تعقیب جام طلایی
+
+با آغاز جام جهانی ۲۰۲۶ از شامگاه پنجشنبه ۲۱ خرداد با دیدار مکزیک و آفریقای جنوبی، شمارش معکوس برای بزرگ‌ترین رقابت تاریخ فوتبال به پایان می‌رسد؛ رقابت‌هایی که برای نخستین بار با حضور ۴۸ تیم، در سه کشور آمریکا، کانادا و مکزیک برگزار می‌شود و با ۱۰۴ مسابقه، طولانی‌ترین و پرتعدادترین جام جهانی تاریخ خواهد بود.
+
+شکل جدید مسابقات باعث شده است بسیاری از کارشناسان این دوره را پیش‌بینی‌‌ناپذیرترین جام جهانی دهه‌های اخیر بدانند. افزایش تعداد تیم‌ها، سفرهای طولانی میان شهرهای میزبان، تفاوت‌های آب‌وهوایی شدید، رطوبت بالا در برخی مناطق و فشردگی مسابقات می‌تواند معادلات سنتی فوتبال را بر هم بزند.
+
+@mamlekate
+</div>
+
+## mamlekate — post 103678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 فری‌پرس: دولت ترامپ اخراج تریتا پارسی، رییس پیشین نایاک، از آمریکا را بررسی می‌کند
+
+وب‌سایت فری‌پرس به نقل از منابع آگاه گزارش داد وزارت امور خارجه آمریکا تحقیقات خود را درباره فعالیت‌های تریتا پارسی، بنیان‌گذار و رییس پیشین نایاک، آغاز کرده و ممکن است اقدامات لازم را برای اخراج او از ایالات متحده در دستور کار قرار دهد.
+
+@mamlekate
+</div>
+
+## mamlekate — post 103677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 در دومین شب پیاپی حملات آمریکا به جمهوری اسلامی چه گذشت؟
+
+شامگاه چهارشنبه و بامداد پنجشنبه ایالات متحده برای دومین شب پیاپی حملات هوایی علیه مواضع جمهوری اسلامی انجام داد و دونالد ترامپ، رئیس‌جمهوری آمریکا اعلام کرد که اگر جمهوری اسلامی با واشنگتن توافق نکند شامگاه پنجشنبه نیز حملات دیگری صورت خواهد گرفت.
+
+@mamlekate
+</div>
+
+## mamlekate — post 103676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ۴ سال حبس برای ۲ ملی‌پوش دوومیدانی ایران به اتهام تجاوز در کره‌جنوبی
+
+به گزارش ایسنا، حکم چهار سال حبس دو عضو تیم ملی دوومیدانی ایران به اتهام تجاوز گروهی در کره‌جنوبی در دادگاه تجدیدنظر تایید شد. دو متهم دیگر این پرونده تبرئه شدند و مجوز خروج از کشور را دریافت کردند.
+
+@mamlekate
+</div>
+
+## kianmeli1 — post 87927
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دقایقی پیش-صدای انفجار در محدوده سیریک و از سمت دریا شنیده شد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87926
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87926_1781179985.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز ۲۱ خرداد زاد روز کیان پیرفلک
+کودک ۹ ساله ای که در ۲۵ آبان ۱۴۰۱ جانبخش میهن شد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87925
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سپاه پاسداران از دیشب پنج پایگاه نظامی در اردن، کویت و بحرین را هدف قرار داده است
+
+-پایگاه هوایی موفق السلط (اردن)
+-پایگاه هوایی احمد الجابر (کویت)
+-پایگاه هوایی علی السالم (کویت)
+-مقر ناوگان پنجم آمریکا (بحرین)
+-پایگاه هوایی شیخ عیسی (بحرین)
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87924
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87924_1781179986.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تهدید تلویحی ایران به حمله اتمی / کیث کلوگ، مشاور سابق ترامپ
+
+«داشتن یک جنگ طولانی مدت، روش جنگی آمریکایی نیست. ما باید به روشی که در جنگ جهانی دوم و جنگ جهانی اول انجام دادیم برگردیم و کار را تمام کنیم، آنها را نابود کنیم.»
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 341697
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341697_1781179988.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا طلایی‌نیک، سخنگوی وزارت دفاع جمهوری اسلامی، گفت هرگونه عبور از خطوط قرمز جمهوری اسلامی با «پاسخ قاطع، پشیمان‌کننده و تنبیهی سخت» مواجه خواهد شد.
+او افزود دشمنان جمهوری اسلامی باید بپذیرند راه‌حل مسائل منطقه تداوم «تجاوز و جنگ‌افروزی» نیست و ناگزیرند آتش‌بس و توقف اقدامات «خصمانه» را در همه جبهه‌ها بپذیرند.
+طلایی‌نیک با اشاره به دو جنگ اخیر گفت نیروهای مسلح در برابر تهدید و فشار عقب‌نشینی نخواهند کرد و در دفاع از «امنیت ملی، استقلال و تمامیت ارضی» با هیچ طرفی تعارف ندارند.
+https://iranintl.com/202606115067
+</div>
+
+## IranIntlTV — post 341696
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341696_1781179989.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی در گفت‌وگو با مسئول سیاست خارجی اتحادیه اروپا گفت حملات اخیر آمریکا به جمهوری اسلامی می‌تواند آتش‌بس را تضعیف کرده و ناامنی منطقه‌ای و جهانی را افزایش دهد
+
+گفت‌وگو با لیلی نیک‌فر، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341695
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341695_1781179991.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا طلایی‌نیک، سخنگوی وزارت دفاع جمهوری اسلامی، گفت هرگونه عبور از خطوط قرمز جمهوری اسلامی با «پاسخ قاطع، پشیمان‌کننده و تنبیهی سخت» مواجه خواهد شد.
+او افزود دشمنان جمهوری اسلامی باید بپذیرند راه‌حل مسائل منطقه تداوم «تجاوز و جنگ‌افروزی» نیست و ناگزیرند آتش‌بس و توقف اقدامات «خصمانه» را در همه جبهه‌ها بپذیرند.
+طلایی‌نیک با اشاره به دو جنگ اخیر گفت نیروهای مسلح در برابر تهدید و فشار عقب‌نشینی نخواهند کرد و در دفاع از «امنیت ملی، استقلال و تمامیت ارضی» با هیچ طرفی تعارف ندارند.
+</div>
+
+## IranIntlTV — post 341694
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341694_1781179992.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در نشست ویژه دولت در نوف هگلیل گفت اسرائیل درگیر «نبردی مداوم برای جلیل» است و هر هفته صدها نفر از نیروهای حزب‌الله را هدف قرار می‌دهد.
+او افزود امنیت همچنان اولویت اصلی دولت است و اسرائیل با چالش پهپادها نیز روبه‌رو است و برای مقابله با آن اقدام می‌کند.
+نتانیاهو اعلام کرد دولت نزدیک به ۲۰ میلیارد شِکِل (واحد پول اسرائیل) برای مناطق واقع در شعاع ۹ کیلومتری مرز و یک میلیارد شِکِل برای بلندی‌های جولان اختصاص داده است.
+به گفته او، برنامه‌ای تازه برای توسعه اقتصادی و زیرساختی شهرهای شمالی اجرا می‌شود و امنیت به این منطقه بازگردانده خواهد شد.
+</div>
+
+## IranIntlTV — post 341693
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341693_1781179993.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روند رسیدگی به پرونده یوهانس ناتلند، جوان ۱۹ ساله نروژی، در دادگاه اولد بیلی لندن ادامه دارد. بر اساس شواهد ارائه‌شده در دادگاه، او برای حمله به یک فرد ناشناس از نروژ به بریتانیا سفر کرده و از سوی یک گروه تبه‌کار سوئدی با سابقه همکاری با جمهوری اسلامی برای انجام این حمله استخدام شده است.
+
+مهدی بیگی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 341692
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341692_1781179995.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاظم غریب‌آبادی، معاون وزارت خارجه جمهوری اسلامی، در شبکه ایکس نوشت پیامدهای کامل حملات جدید آمریکا به اهدافی در خاک ایران متوجه واشینگتن و هر طرفی است که در آن «مشارکت، تسهیل یا مساعدت» کند.
+او این حملات را «تجاوز آشکار به حاکمیت، تمامیت ارضی و امنیت ملی جمهوری اسلامی» خواند و تاکید کرد نیروهای مسلح جمهوری اسلامی با «پاسخی قاطع، مقتدرانه و پشیمان‌کننده» از خاک کشور دفاع خواهند کرد.
+غریب‌آبادی همچنین اعلام کرد توصیف این حملات به‌عنوان دفاع از خود، آن‌گونه که در بیانیه سنتکام آمده، «هیچ اثر حقوقی ندارد».
+</div>
+
+## IranIntlTV — post 341690
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341690" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | پنج‌شنبه ۲۱ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341689
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341689_1781179997.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از تصویب قطعنامه شورای حکام علیه برنامه هسته‌ای جمهوری اسلامی، میخائیل اولیانوف، نماینده روسیه در آژانس در گفت‌وگویی اختصاصی با ایران‌اینترنشنال این قطعنامه را «شرم‌آور» و «ریاکارانه» توصیف کرد و آمریکا و اسرائیل را مسئول تضعیف همکاری میان جمهوری اسلامی و آژانس دانست
+@iranintltv
+</div>
+
+## IranIntlTV — post 341688
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341688_1781179999.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آسیه امینی، تحلیلگر مسائل اجتماعی، درباره خارج شدن برخی اقلام کالاهای اساسی از سبد خرید خانواده‌های ایرانی به دلیل گرانی و فقر، در گفت‌وگو با ایران‌اینترنشنال گفت سبک زندگی مردم به دلیل مشکلات اقتصادی تغییر کرده و اولویت جمهوری اسلامی بقای خویش است
+@iranintltv
+</div>
+
+## IranIntlTV — post 341687
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341687_1781180001.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال کارزار مردمی تازه‌ای را برای ثبت و پیگیری سرکوب معترضان در نورآباد ممسنی آغاز کرده است. این کارزار با هدف روایت ناگفته‌های سرکوب‌های خشن دی‌ماه، ثبت روایت خانواده‌های جاویدنامان و پیگیری ابعاد مختلف این رویداد، در پی کشف حقیقت درباره جزییات سرکوب در جریان اعتراضات این منطقه است.
+
+جزییات بیشتر با فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341686
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341686_1781180004.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، در شبکه ایکس نوشت: «رییس‌جمهوری از تعادل خارج‌شده آمریکا تصور می‌کند بمب‌ها می‌توانند او را از باتلاقی که خود ساخته نجات دهند، اما موشک‌های جمهوری اسلامی او را بیش از پیش در همان باتلاق فرو خواهند برد.»
+او همچنین نوشت آمریکا در برابر انتخابی دشوار قرار دارد.
+رضایی افزود: «واشینگتن باید میان پذیرش شروط جمهوری اسلامی و از دست دادن آخرین بقایای اعتبار خود در جهان، یکی را انتخاب کند.»
+اظهارات رضایی در حالی مطرح شده است که مقام‌های جمهوری اسلامی بارها بر ادامه پاسخ به اقدامات نظامی آمریکا تاکید کرده‌اند.
+</div>
+
+## IranIntlTV — post 341685
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341685_1781180005.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت هرانا گزارش داد پوریا امینی، از بازداشت‌شدگان انقلاب ملی ایرانیان در دی‌ماه ۱۴۰۴، از سوی دادگاه انقلاب شهرستان گناباد بابت اتهام‌های «اجتماع و تبانی»، «توهین به رهبری» و «تبلیغ علیه نظام» به هشت سال حبس محکوم شده است.
+بر اساس این گزارش، امینی ۲۰ دی ۱۴۰۴ از سوی نیروهای امنیتی بازداشت شد و پس از حدود سه ماه، ۲۰ فروردین ۱۴۰۵ با تودیع وثیقه سه میلیارد تومانی از زندان گناباد آزاد شد. او فرزند هاشم امینی و از زندانیان سیاسی سابق ساکن مشهد است.
+</div>
+
+## IranIntlTV — post 341684
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341684_1781180006.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال کارزار مردمی تازه خود را به سرکوب معترضان در نورآباد ممسنی، در جریان اعتراضات دی‌ماه، اختصاص داده است. این کارزار با هدف روایت ناگفته‌های سرکوب، ثبت روایت خانواده‌های جان‌باختگان و پیگیری ابعاد این رویداد، در پی کشف حقیقت درباره آنچه در جریان اعتراضات رخ داد، است.
+
+گزارش محسن ظهوری، ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341683
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341683_1781180009.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، با استناد به اطلاع خبرنگار خود اعلام کرد گزارش‌های رسانه‌ای درباره رسیدن جمهوری اسلامی و آمریکا به متن نهایی تفاهم «خبرسازی» است و صحت ندارد.
+این در حالی است که پیش‌تر رویترز به نقل از یک مقام اروپایی و سه منبع ایرانی گزارش داد دو طرف در حال تبادل پیام درباره جزییات یک «یادداشت تفاهم» هستند و تلاش‌ها برای نهایی‌سازی چارچوب توافق اولیه شدت گرفته است و منابع ایرانی گفتند آمریکا و جمهوری اسلامی به «یک تفاهم سیاسی» دست یافته‌اند، اما برخی موضوعات همچنان نیازمند مذاکرات بیشتر است.
+</div>
+
+## IranIntlTV — post 341682
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341682_1781180010.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻احمد دنیامالی، وزیر ورزش و جوانان، درباره شرایط تیم ملی فوتبال در جام جهانی گفت: «روی کاغذ ما باید صعود کنیم ولی یک بخشی از مزاحمت‌های میزبان روی تیم اثر می‌گذارد و از یک طرف این مزاحمت‌ها و حملاتی که در یک سال گذشته داشتند، انگیزه بچه‌ها را افزایش داده تا در خاک دشمن پیروز شوند.»
+
+🔹دنیامالی درباره میزبانی آمریکا گفت: «آمریکا هیچ اصولی را پیروی نمی‌کند؛ نه چارچوب‌های فدراسیون‌های جهانی و نه منشور المپیک. ما از پا نمی‌نشینیم. کشور میزبان وظیفه دارد با همه کشورها یکسان برخورد کند و همه تلاش خود را خواهیم داشت تا تیم ملی در بهترین شرایط در بازی‌ها حضور پیدا کند.»
+
+🔹وزیر ورزش درباره تاثیر جنگ بر وضعیت مالی باشگاه‌های صنعتی گفت: «شرایط ما خاص است ولی حتما تیم‌هایی که هستند از حمایت‌ها برخوردار خواهند بود و در تلاش هستیم لیگ آینده با قدرت گذشته ادامه پیدا کند.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341681
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341681_1781180010.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران اینترنشنال در ویدیویی که فرستاد گفت قیمت یک بسته چیپس خلالی ۱۸۵ گرمی به ۱۸۰ هزار تومان رسیده است و خرید چهار کیلوگرم سیب‌زمینی را به‌صرفه‌تر دانست.
+</div>
+
+## IranIntlTV — post 341680
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341680_1781180014.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش رویترز، وزارت خارجه هند اعلام کرد این کشور انتظار دارد آمریکا به اعتراض دهلی‌نو درباره حملات به کشتی‌های حامل ملوانان هندی توجه کند. بر اساس این گزارش، دو کشتی از سه کشتی که در روزهای اخیر در محدوده تنگه هرمز هدف حملات آمریکا قرار گرفتند، تحت تحریم بودند.
+پیش‌تر نیز وزارت کشتیرانی هند اعلام کرد ۱۳ کشتی با پرچم هند در تنگه هرمز گیر افتادند و بیش از ۱۸ هزار ملوان هندی در منطقه خلیج فارس حضور دارند که ۵۶۲ نفر از آنان روی کشتی‌های با پرچم هند کار می‌کنند.
+</div>
+
+## IranIntlTV — post 341679
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341679_1781180015.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای پنجشنبه ۲۱ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 341678
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341678_1781180016.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی شیرازی، عضو تحریریه ایران‌اینترنشنال، در واکنش به هشدارهای امنیتی درباره برگزار نشدن جلسات مجلس جمهوری اسلامی گفت در شرایطی که شهروندان از امکانات و هشدارهای حفاظتی کافی برخوردار نیستند، مقام‌های جمهوری اسلامی بیش از هر چیز نگران امنیت نمایندگان هستند. او افزود توقف جلسات مجلس جمهوری اسلامی تاثیر عملی قابل توجهی بر زندگی روزمره مردم نخواهد داشت.
+@iranintltv
+</div>
+
+## IranIntlTV — post 341677
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341677_1781180019.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان بسیج جمهوری اسلامی در واکنش به حمله‌های آمریکا به نقاطی در ایران اعلام کرد جمهوری اسلامی نقض آتش‌بس و تعرض به حریم خاکی و آبی خود را بی‌پاسخ نخواهد گذاشت.
+در این بیانیه آمده است بسیجیان آماده‌اند به هر گونه «ماجراجویی» با قدرت و سرعت پاسخ دهند.
+این سازمان همچنین از آنچه «مجامع به اصطلاح بین‌المللی» خواند خواست «بدعهدی‌های آمریکا» را محکوم کنند و افزود در غیر این صورت، «ملت ایران» با تکیه بر توان داخلی از عزت و تمامیت ارضی خود دفاع خواهد کرد.
+</div>
+
+## Shin_Persian — post 6930
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6930_1781180020.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 12:03:49 UTC
+
+Kuwait Ministry of Defence: Armed forces intercepted 24 hostile Iranian UAVs in Kuwaiti airspace over the last 48 hours.
+
+Air defenses continue to engage ballistic missiles, cruise missiles, and drone attacks.
+
+#Kuwait 🇰🇼
+
+ترجمه خودکار فارسی
+
+وزارت دفاع کویت: نیروهای مسلح در ۴۸ ساعت گذشته ۲۴ پهپاد متخاصم ایرانی را در حریم هوایی کویت رهگیری کردند.
+
+پدافند هوایی به مقابله با حملات موشک‌های بالستیک، موشک‌های کروز و پهپادها ادامه می‌دهد.
+
+#Kuwait 🇰🇼
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6928
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 11 Jun 2026 11:27:17 UTC
+
+"CENTCOM disables Guinea-Bissau flagged M/T Jalveer as it attempts to transport oil from Iran through the Gulf of Oman, June 10, 2026."
+
+https://x.com/CENTCOM/status/2065032634908987869/video/1
+
+ترجمه خودکار فارسی
+
+ستاد فرماندهی مرکزی ایالات متحده (سنتکام) نفت‌کش ام/تی جالویر با پرچم گینه بیسائو را در حالی که قصد داشت نفت را از ایران از طریق دریای عمان منتقل کند، در تاریخ ۱۰ ژوئن ۲۰۲۶ از کار انداخت.
+
+https://x.com/CENTCOM/status/2065032634908987869/video/1
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6927
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6927_1781180021.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: H. Memarian @HEMemarian Thu, 11 Jun 2026 06:59:03 UTC Evidence suggests that Iran used Acoustic UAV-detection microphone array as an early-warning system during the recent conflict! ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. …
+</div>
+
+## Shin_Persian — post 6926
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6926_1781180022.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+H. Memarian @HEMemarian
+Thu, 11 Jun 2026 06:59:03 UTC
+
+Evidence suggests that Iran used Acoustic UAV-detection microphone array as an early-warning system during the recent conflict!
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+شواهد نشان می‌دهد که ایران در طول درگیری‌های اخیر، از آرایه میکروفونی تشخیص صوتی پهپاد به عنوان یک سیستم هشدار زودهنگام استفاده کرده است!
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 106009
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_106009_1781180023.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شب گذشته آمریکا اهدافی را عمدتا در نزدیکی تنگه هرمز هدف قرار داد. این حملات در میانه مذاکرات با جمهوری اسلامی انجام شد و به نظر می‌رسد هدف آن افزایش فشار بر تهران باشد. حالا پرسش اصلی این است که بحران تنگه هرمز به کجا خواهد انجامید؟
+</div>
+
+## FarsiVOA — post 220376
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نگاه کاربران شبکه‌های اجتماعی به احتمال توافق و یا تشدید درگیری‌ها
+</div>
+
+## FarsiVOA — post 220375
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺کویت، بحرین و اردن حملات جمهوری اسلامی به خاک خود را محکوم کردند
+
+◾️در پی حملات اخیر جمهوری اسلامی به کویت، بحرین و اردن، این سه کشور این حملات را محکوم کردند و همچنین دیگر کشورهای دیگر منطقه، ضمن محکوم کردن این حملات، خواستار خویشتن‌داری و بازگشت به گفت‌وگو برای دستیابی به تفاهم میان تهران و واشنگتن شدند.
+
+◾️وزارت خارجه کویت روز پنجشنبه در بیانیه‌ای نوشت که «با شدیدترین عبارات، ادامه تجاوزات مجرمانه و مکرر ایران علیه کویت را محکوم و تقبیح می‌کنیم.»
+
+◾️ارتش بحرین نیز روز پنجشنبه اعلام کرد که حکومت «ایران از طریق حملات مجرمانه خود با موشک‌ها و پهپادهایی که غیرنظامیان در پادشاهی بحرین را هدف قرار می‌دهند، به رویکرد خصمانه و نظام‌مند خود ادامه می‌دهد.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159707.html
+</div>
+
+## FarsiVOA — post 220374
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220374_1781180024.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خارجه ترکیه گفت جمهوری اسلامی و ایالات متحده باید حملات ازسرگرفته‌شده خود را متوقف کرده و برای جلوگیری از هرگونه تشدید بیشتر تنش‌ها، به مذاکرات بازگردند.
+
+هاکان فیدان، روز پنج‌شنبه در صوفیه، پایتخت بلغارستان اظهار داشت که توصیه ترکیه به هر دو طرف، که این کشور با واشنگتن، تهران و همچنین پاکستانِ میانجی در تماس نزدیک است، این است که برای نهایی کردن مذاکرات درباره یک توافق صلح تلاش کنند.
+
+دونالد ترامپ، رئیس‌جمهوری آمریکا چهارشنبه شب در مصاحبه‌‌ای با فاکس نیوز، در پاسخ به این سؤال که اگر جمهوری اسلامی با او توافق نکند چه اتفاقی می‌افتد؟ گفت که فردا شب هم به‌شدت بمباران خواهند شد.
+
+سنتکام روز چهارشنبه به وقت واشنگتن دور دیگری از حملات دفاعی به جمهوری اسلامی خبر داد و این حملات بامداد پنج‌شنبه به وقت ایران تکمیل شد.
+
+پاکستان نقش اصلی میانجی میان واشنگتن و تهران را دارد اما ترکیه و قطر نیز در این زمینه تلاش‌هایی را انجام داده‌اند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220373
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220373_1781180024.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داده‌های کشتی‌رانی از عبور سه کشتی حامل گاز مایع قطر با خاموش کردن سیستم شناسایی خودکار از تنگه هرمز خبر می‌دهد.
+
+رویترز می‌گوید دقیقاً مشخص نیست این کشتی‌ها چه موقع پنهانی از تنگه هرمز گذشته‌اند، اما مقصد محموله‌ها بازارهای آسیایی است.
+
+هم‌زمان نهاد «مدیریت آبراه خلیج فارس» تحت هدایت سپاه پاسداران، روز پنج‌شنبه اعلام کرد با توجه به حملات آمریکا، تردد کشتی‌ها از تنگه هرمز تا اطلاع ثانوی ممنوع است و از «متقاضیان دارای مجوز عبور» نیز خواست «صبور بوده و منتظر راهنمایی‌ها باشند».
+
+جمهوری اسلامی از ۹ اسفند، هم‌زمان با آغاز عملیات نظامی اسرائیل و آمریکا علیه رژیم حاکم ایران، تنگه هرمز را مسدود کرده و طی هفته‌های گذشته کشتی‌ها را مجبور به عبور از «کریدور امن» میان جزایر قشم و لارک در ازای پرداخت عوارض کرده است.
+
+دولت آمریکا ۷ خرداد «نهاد مدیریت آبراه خلیج فارس»، را تحریم و تلاش جمهوری اسلامی برای انسداد تنگه هرمز و دریافت عوارض از تردد کشتی‌ها را «باج‌گیری دریایی» خواند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220372
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220372_1781180025.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالرحیم سلیمانی اردستانی، عضو مجمع مدرسین و محققین حوزه علمیه قم، توسط دادگاه ویژه روحانیت به شش سال حبس، خلع لباس روحانیت و پرداخت جزای نقدی محکوم شد.
+
+نزدیکان آقای سلیمانی اردستانی اعلام کردند که وی تنها به شرط برگزاری دادگاه علنی حاضر به اعتراض به این حکم است و در غیر اینصورت، حکم را بدون اعتراض می‌پذیرد.
+
+او به اتهاماتی چون توهین به مقدسات، توهین به علی و مجتبی خامنه‌ای، توهین به مقدسات تشیع، توهین به مراجع دینی و هتک حیثیت روحانیت شیعه متهم شده است.
+
+سلیمانی اردستانی در فروردین ماه توسط نیروهای امنیتی بازداشت و به زندان ساحلی قم منتقل شد.
+
+او پیش از بازداشت و در تحلیل نخستین پیام مجتبی خامنه‌ای که به تجلیل از علی خامنه‌ای پرداخته بود، نوشت: «مهم‌ترین هنر والد شما این بود که مخالفان و منتقدان خود را بی‌بصیرت یا مزدور بیگانگان می‌خواند و هر برخوردی را با آنان روا می‌دانست! از صفات اخلاقی ایشان دو صفت لجبازی و کینه‌توزی را بسیار برجسته یافتم.»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220371
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ملانیا ترامپ، بانوی اول آمریکا، در کاخ سفید مراسم جوایز اولین چالش هوش‌مصنوعی ریاستی را برگزار کرد. این رویداد نخبگان جوان آمریکا را گرد هم آورد و نشان داد چگونه هوش‌مصنوعی در آموزش، فناوری و حل مسائل جامعه نقش می‌سازد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220370
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220370_1781180026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دبیرکل شورای همکاری خلیج‌ فارس «تکرار حملات خائنانه جمهوری اسلامی» به بحرین، کویت و اردن را با شدیدترین عبارات محکوم کرد.
+
+جاسم محمد البدیوی در بیانیه خود، با ابراز انزجار شدید از «تکرار تجاوزات جمهوری اسلامی»، تأکید کرد که هدف قرار دادن تأسیسات غیرنظامی و زیرساخت‌های حیاتی، تلاش‌های بین‌المللی و منطقه‌ای برای تثبیت امنیت و صلح و حل بحران را تضعیف می‌کند.
+
+او همچنین تصریح کرد که شورای همکاری خلیج فارس از اقدامات بحرین، کویت و اردن برای تقویت امنیت، حفظ حاکمیت و صیانت از تمامیت ارضی خود، حمایت خواهد کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220369
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220369_1781180027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آمارها از سقوط ۹۸ درصدی صادرات فرش ایرانی در یک دهه گذشته خبر می‌دهد.
+
+خبرگزاری رکنا با استناد به آمارهای رسمی، حجم صادرات فرش ایرانی در سال گذشته را زیر ۴۲ میلیون دلار گزارش داده است. این رقم حدود یک دهه پیش ۴۰۰ میلیون دلار و در دهه ۷۰ خورشیدی دو میلیارد دلار بود.
+
+این گزارش می‌افزاید پس از بازگشت تحریم‌ها در سال ۱۳۹۷، فرش ایرانی از بازار اصلی خود یعنی آمریکا رانده شد و حالا زیر فشار رقبا، سیاست‌های ارزی، افت گردشگری و کاهش قدرت خرید داخلی، برای بقا می‌جنگد.
+
+سقوط صادرات فرش ایرانی در حالی است که ترکیه، سال گذشته نزدیک سه میلیارد دلار صادرات فرش به ۱۸۲ کشور داشت که حدود ۲۰۰ میلیون دلار آن فرش دستبافت و گلیم بود. یک سوم بازار صادرات فرش ترکیه در آمریکا و تقریباً به همین میزان نیز عربستان و عراق است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220368
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220368_1781180028.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت امور خارجه کویت در بیانه‌ای، «تجاوزات مکرر» جمهوری اسلامی به خاک این کشور را محکوم کرد.
+
+این بیانیه با اشاره به حملات پهپادی و موشکی صبح پنجشنبه ۲۱ خرداد، تأکید می‌کند که «تکرار این تجاوزات آشکار»، نشان‌دهنده یک «رویکرد تهاجمی سازمان‌‌یافته» است و دولت کویت آن را تحمل نخواهد کرد.
+
+در این بیانیه، نقض آشکار حاکمیت کویت را «نقض صریح قواعد حقوق بین‌الملل و منشور سازمان ملل متحد» و تضعیف‌‌کننده تلاش‌ها برای کاهش تنش در منطقه توصیف شده است.
+
+وزارت خارجه کویت تأکید کرده که این کشور حق کامل خود را برای اتخاذ تمامی اقدامات لازم جهت حفظ امنیت و دفاع از سرزمین و تأسیسات حیاتی خود محفوظ می‌داند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220367
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220367_1781180029.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اردن اعلام کرد که بامداد روز پنجشنبه دست‌کم ۲۰ موشک از مبدأ ایران بر فراز آسمان این کشور رهگیری و منهدم شده‌اند.
+بر اساس این بیانیه، این موشک‌ها به سمت منطقه «الأزرق» در استان «الزرقاء» شلیک شده بودند؛ منطقه‌ای که در حدود ۶۵ مایلی (۱۰۵ کیلومتری) شرق امان، پایتخت این کشور، قرار دارد.
+در این بیانیه آمده است که هیچ جراحتی در رابطه با این حمله گزارش نشده است. ارتش اردن تصریح کرده که به رصد اوضاع ادامه می‌دهد و «در بالاترین سطح آمادگی برای حفاظت از حریم هوایی پادشاهی [اردن]» عمل می‌کند.
+منطقه الازرق در اردن، محل پایگاه هوایی موفق السلطی است که یکی از مهم‌ترین پایگاه‌های عملیاتی نیروی هوایی آمریکا و ائتلاف بین‌المللی در منطقه است. پهپادها و جنگنده‌های آمریکایی که در چند ماه گذشته در عملیات‌های محاصره یا درگیری با جمهوری اسلامی نقش داشته‌اند، از این پایگاه استفاده می‌کنند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220366
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تداوم حملات اسرائیل در جنوب و شرق لبنان همزمان با افزایش تنش در مرزها
+
+◾️در ادامه تنش‌های مرزی، مناطق مختلفی در جنوب و شرق لبنان هدف حملات توپخانه‌ای و هوایی اسرائیل قرار گرفت و همزمان آژیرهای هشدار در شمال اسرائیل پس از شناسایی یک پهپاد مشکوک به صدا درآمد.
+
+◾️رسانه‌های لبنانی گزارش دادند که صبح پنجشنبه به وقت بیروت، توپخانه اسرائیل مناطق بورج قلاوویه در شهرستان بنت جبیل، تولین در مرجعیون و صریفا در منطقه صور را زیر آتش قرار داده است.
+
+◾️در گزارش جداگانه دیگری، تایمز اسرائیل از یک حمله اسرائیل در دره بقاع در شرق لبنان خبر داد. گفته می‌شود این حمله در حومه شهر طیاریه، در فاصله حدود ۹۰ کیلومتری از مرز اسرائیل رخ داده است؛ منطقه‌ای که در ماه‌های اخیر کمتر هدف قرار گرفته بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159699.html
+</div>
+
+## FarsiVOA — post 220365
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺رویترز: جمهوری اسلامی در مذاکرات برای توافق با آمریکا به دنبال منابع مالی است
+
+◾️رویترز گزارش داد ایالات متحده و جمهوری اسلامی همچنان در حال مذاکره برای رسیدن به یک توافق تفاهم‌نامه هستند و جمهوری اسلامی به دنبال سازوکاری برای آزادسازی دارایی‌های مسدودشده است.
+
+◾️سه منبع ایرانی و یک مقام اروپایی که نامشان فاش نشد، به رویترز گفتند که با وجود حملاتی که از سوی هر دو طرف انجام شده، تلاش‌ها برای دستیابی به یک توافق اولیه میان جمهوری اسلامی و آمریکا شدت گرفته است.
+
+◾️یکی از این منابع گفت: «جمهوری اسلامی خواهان آزادسازی ۶ تا ۱۲ میلیارد دلار از دارایی‌های مسدودشده است، در حالی که واشنگتن خواهان آزادسازی مرحله‌ای این منابع برای کالاهای بشردوستانه است و بازگرداندن کامل پول را رد می‌کند.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-seeks-funds-as-us-talks-edge-to-interim-deal-sources-say/8159697.html
+</div>
+
+## FarsiVOA — post 220364
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ایتالیا می‌گوید اروپا باید آماده اعمال تحریم‌های جدیدی علیه جمهوری اسلامی باشد
+
+◾️نخست‌وزیر ایتالیا، اعلام کرد که اگر جمهوری اسلامی به تسهیل پایان دادن به بحران خاورمیانه کمک نکند، اتحادیه اروپا باید آماده اعمال تحریم‌های جدید علیه جمهوری اسلامی باشد.
+
+◾️جورجیا ملونی روز پنجشنبه در پارلمان ایتالیا گفت: «اگر تهران به مسیر اشتباه ادامه دهد اتحادیه اروپا باید آماده باشد تا با اقدامات هدفمند جدید فشار را افزایش دهد.»
+
+◾️پیشتر مسئول سیاست خارجی اتحادیه اروپا روز ۱۸ خرداد، اعلام کرد که این اتحادیه چند فرد و نهادهای جمهوری اسلامی را به دلیل تهدید آزادی تردد دریایی تحریم کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/italy-pm-says-eu-should-be-ready-to-impose-new-sanctions-on-iran/8159696.html
+</div>
+
+## FarsiVOA — post 220363
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220363_1781180030.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژانس عملیات تجارت دریایی بریتانیا از وقوع حادثه برای یک نفتکش در نزدیکی سواحل عمان خبر داد و اعلام کرد که در پی این حادثه، اتاق موتور این نفتکش دچار آتش‌سوزی شد.
+
+این نهاد پنجشنبه بر اساس گفته مقام‌های محلی، نوشت که این نفتکش موقع حادثه در فاصله ۲۱ مایل دریایی شمال‌شرقی شهر صحار در عمان بود. آژانس عملیات تجارت دریایی بریتانیا افزود هیچ‌گونه اثر زیست‌محیطی گزارش نشده است.
+
+کمی قبل از آن، این آژانس اعلام کرد روز چهارشنبه پس از وقوع آتش‌سوزی در اتاق موتور یک نفتکش در فاصله ۲۰ مایل دریایی شمال‌شرقی شهر صحار در عمان، دو خدمه مفقود شدند.
+
+این نهاد گزارش داد یک مورد تلفات نیز ثبت شده، اما بدون ارائه جزئیات بیشتر، علت آتش‌سوزی را اعلام نکرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220362
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220362_1781180031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت نفت در بازارهای جهانی به رغم تشدید درگیری‌های خاورمیانه تغییر چندانی نکرد.
+
+قیمت نفت در دومین روز حملات آمریکا با تأسیسات نظامی جمهوری اسلامی و حملات موشکی و پهپادی سپاه پاسداران به کشورهای منطقه مقدار اندکی افزایش یافت و سپس فروکش کرد.
+
+قیمت نفت شاخص برنت در ساعات پایانی دومین عملیات نظامی آمریکا علیه جمهوری اسلامی، طی روز پنج‌شنبه تنها نیم درصد افزایش یافت و دوباره در ظهر امروز به زیر ۹۳ دلار افت کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220361
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220361_1781180031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دولت قطر حملات اخیر جمهوری اسلامی علیه اردن، بحرین و کویت را به‌شدت محکوم کرد و آن را نقض آشکار حاکمیت این کشورها و قوانین بین‌المللی دانست.
+
+وزارت خارجه قطر با صدور بیانیه‌ای، بر ضرورت کاهش تنش در منطقه و پرهیز از اقدامات تشدیدکننده تأکید کرد و خواستار بازگشت ثبات و امنیت شد.
+
+در این بیانیه همچنین بر همبستگی کامل قطر با اردن، بحرین و کویت و حمایت از اقدامات آن‌ها برای حفظ امنیت و حاکمیت ملی تأکید شده است.
+
+سپاه پاسداران اعلام کرد که حملات متقابلی را علیه آن چه «اهداف نظامی آمریکا» در کویت و بحرین و اردن خوانده شد، انجام داد.
+
+ارتش کویت از مقابله با «اهداف هوایی متخاصم» خبر داد و وزارت کشور بحرین نیز اعلام کرد که یک دختر ۱۱ ساله در این حملات مجروح شد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220360
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220360_1781180032.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال خبری دانشجویان متحد، با اشاره به تداوم «سرکوب دانشجویان توسط کمیته‌ ‌های انضباطی»، از محرومیت از تحصیل دست‌کم ۱۰ دانشجوی دانشگاه سجاد مشهد به مدت دو تا چهار‌ سال خبر داد.
+
+این تشکل دانشجویی اعلام کرد که تنها در یک مورد، دانشجویی با اتهاماتی چون اخلال، ایجاد وقفه یا مزاحمت برای برنامه‌های دانشگاه و ایجاد بلوا و آشوب در محیط دانشگاه روبه‌رو شده و به مدت دو سال و نیم از تحصیل محروم شده است.
+
+کمیته انضباطی به این دانشجو اطلاع داده که در صورت ابراز ندامت و پشیمانی، حکم محرومیت از تحصیل ترم جاری اجرا و حکم ترم پاییز به حالت تعلیق درمی‌آید.
+
+همچنین در خبر دیگری تشکل دانشجویی «دانشجویان متحد» از دستگیری و بی خبری ابوالفضل چمنی، دانشجوی دانشگاه تهران خبر داده است. این دانشجو از روز ۱۱ خرداد، توسط نیروهای امنیتی بازداشت شده و از محل نگهداری و اتهامات وی اطلاعاتی در دسترس نیست.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220359
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺در دومین شب پیاپی حملات آمریکا به جمهوری اسلامی چه گذشت؟
+
+◾️شامگاه چهارشنبه و بامداد پنجشنبه ایالات متحده برای دومین شب پیاپی حملات هوایی علیه مواضع جمهوری اسلامی انجام داد و دونالد ترامپ، رئیس‌جمهوری آمریکا اعلام کرد که اگر جمهوری اسلامی با واشنگتن توافق نکند شامگاه پنجشنبه نیز حملات دیگری صورت خواهد گرفت.
+
+◾️سنتکام اعلام کرد دور دیگری از «حملات دفاعی» به جمهوری اسلامی در شامگاه چهارشنبه، قابلیت‌های نظارتی نظامی، سیستم‌های ارتباطی و سایت‌های دفاع هوایی جمهوری اسلامی در سراسر ایران را هدف گرفت.
+
+◾️سپاه پاسداران اعلام کرد که حملات متقابلی را علیه ۱۸ هدف نظامی آمریکا در پایگاه‌های هوایی کویت و بحرین و همچنین ناوگان پنجم نیروی دریایی آمریکا در بحرین انجام داد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8159695.html
+</div>
+
+## FarsiVOA — post 220358
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220358_1781180033.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اداره کل هواپیمایی کویت اعلام کرد که پس از چند ساعت به دلیل حملات مکرر جمهوری اسلامی، مجددا پروازهای فرودگاه‌های این کشور از سر گرفته شد.
+
+کویت ساعات اولیه صبح روز پنجشنبه ۲۱ خرداد، اعلام کرده بود که با توجه به این حملات و خطرات آن برای هوانوردی غیرنظامی، به طور موقت پروازهای ورودی و خروجی فرودگاه‌های این کشور را به حالت تعلیق در می‌آورد.
+
+نیروهای مسلح جمهوری اسلامی در ادامه حملات خود به کشورهای منطقه، بامداد امروز به برخی از این کشورها از جمله کویت و بحرین حملات پهپادی و موشکی انجام دادند.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125818
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125818_1781180034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 درخواست کشورها از ایران و آمریکا برای خویشتن‌داری و ترک مخاصمه
+
+در پی بالا گرفتن تنش‌ها میان دو طرف درگیر در جنگ ایران شماری از کشورها از جمهوری اسلامی و آمریکا خواستند تا خویشتن‌داری به خرج داده و به درگیری‌ها پایان دهند.
+
+به گزارش خبرگزاری رویترز، روسیه روز پنج‌شنبه ۲۱ خرداد که دومین روز از پاسخ نظامی آمریکا به ایران در پی سرنگون شدن یک فروند هلی‌‌کوپتر ایالات متحده در سواحل عمان است از هر دو کشور خواست تا راه مذاکره را پیش گرفته و از جنگ دوری کنند.
+
+کرملین این درخواست را در حالی مطرح کرده که دونالد ترامپ، رئیس‌جمهور آمریکا تهدید به تشدید بیشتر تنش‌ها کرده است.
+
+حملات بامداد چهارشنبه ایالات متحده که تا کنون دو روز متوالی ادامه یافته جدیدترین تحول در تبادل رو به افزایش ضربات نظامی میان دو کشور است و بیم آن می‌رود که آتش جنگی تمام‌عیار دوباره شعله‌ور شود؛ جنگی که در اوایل آوریل، با توافق دو طرف بر سر آتش‌بس، متوقف شده بود؛ هر چند که این آتش‌بس تا کنون شکننده بوده است.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125817
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶حوثی‌ها در جنگ ایران چه نقشی بازی می‌کنند؟
+
+🔻 گزارشی از Kersten Knipp | Ali Almakhlafi
+
+چرا حوثی‌ها در بحبوحه تنش میان ایران و اسرائیل حملات خود را از سر گرفتند؟ کارشناسان در گفت‌وگو با دویچه‌وله، انگیزه‌های داخلی، وابستگی به تهران و پیامدهای اقتصادی این اقدام را بررسی کرده‌اند.
+
+شبه‌نظامیان حوثی یمن پس از دو ماه خویشتن‌داری نظامی، حملات خود را علیه اسرائیل از سر گرفتند. یحیی سریع، سخنگوی نظامی این گروه روز دوشنبه، ۸ ژوئن از شلیک چندین موشک به سمت اسرائیل خبر داد و هم‌زمان اعلام کرد که "انسداد کامل" کشتیرانی اسرائیل در دریای سرخ آغاز شده است.
+
+او تاکید کرد که از این پس، هرگونه تحرک اسرائیل در این منطقه به عنوان هدف نظامی تلقی خواهد شد. بنا بر اعلام مقامات اسرائیل، روز سه‌شنبه ۹ ژوئن نیز تلاش دیگری برای حمله از سوی یمن به خاک اسرائیل صورت گرفت.
+
+این حملات خسارت زیادی بر جای نگذاشتند و به نظر می‌رسد تاکنون تا حد زیادی دفع شده‌اند. این اعلام موضع همزمان با حملات متقابل اخیر میان اسرائيل و ایران صورت گرفت و به عنوان حمایت حوثی‌ها از رژیم هم‌پیمان خود در تهران ارزیابی می‌شود.
+
+این در حالیست که هر دو طرف (اسرائيل و ایران) روز دوشنبه اعلام کردند که حملات نظامی مستقیم علیه یکدیگر را دست‌کم تا اطلاع ثانوی پایان‌یافته می‌دانند.
+</div>
+
+## DW_Farsi — post 125816
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125816_1781180035.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 اردن از رهگیری و انهدام موشک‌های شلیک‌شده از ایران خبر داد
+
+ارتش اردن اعلام کرد که سامانه‌های پدافند هوایی و هواپیماهای این کشور صبح پنج‌شنبه ۱۱ ژوئن (۲۱ خرداد) ۲۰ موشک را که از سوی ایران به سمت منطقه الازرق شلیک شده بود، رهگیری و سرنگون کرده است. به گفته منابع نظامی اردن شماری ترکش در مناطق مختلف سقوط کرد، اما تلفات جانی یا خسارات مالی به بار نیامد.
+
+منطقه الازرق در حدود ۸۰ کیلومتری شرق امان، پایتخت اردن قرار دارد و در آنجا یک پایگاه نظامی ارتش ایالات متحده واقع است.
+
+رسانه‌های داخل ایران از جمله تسنیم روز پنجشنبه از حملات موشکی سپاه پاسداران به مرکز فرماندهی ایالات متحده در اردن خبر داده بودند.
+
+تسنیم در گزارش خود با اشاره به بینانیه منتشرشده از سوی سپاه پسداران مدعی شد که پایگاه هوایی الازرق در اردن که ارتش آمریکا در آن مستقر است و همچنین مرکز فرماندهی‌ آن با ۱۲ موشک بالستیک مورد حمله قرار گرفته است. سپاه پاسداران مدعی شده بود که تأسیسات نظامی و همچنین شمار زیادی از هواپیماهای جنگنده ارتش ایالات متحده در جریان این حملات موشکی منهدم شده‌اند.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 تداوم ناآرامی‌های ضد مهاجرتی در ایرلند در پی حمله با چاقو
+
+برای دومین شب پیاپی، در ایرلند شمالی ناآرامی‌هایی در جریان اعتراضات ضد مهاجرتی رخ داد. پلیس در نزدیکی شهر بلفاست با استفاده از خودروهای آب‌پاش علیه معترضانی که به سوی نیروهای امنیتی سنگ پرتاب می‌کردند، وارد عمل شد.
+
+این ناآرامی‌های تازه در منطقه گلنگورملی (Glengormley) در شمال بلفاست رخ داد. بر اساس خبرگزاری فرانسه (AFP)، معترضان به سوی نیروهای پلیس سنگ و بطری پرتاب کردند. همچنین در سطح خیابان‌ها آتش روشن شد.
+
+در همین حال، علی‌رغم آرام باقی‌ماندن مرکز شهر بلفاست، بسیاری از مدارس و فروشگاه‌ها روز چهارشنبه تعطیل ماندند.
+
+پس از انتشار ویدئویی از یک حمله وحشیانه با چاقو در شهر بلفاست، پایتخت ایرلند شمالی، روز سه‌شنبه ۹ ژوئن، چندین شهر در بریتانیا شاهد اعتراضاتی خشونت‌بار بود. در جریان این خشونت‌ها چندین خودرو و همچنین خانه‌هایی به آتش کشیده شدند. نیروهای آتش‌نشانی ناچار شدند افرادی را از داخل خانه‌ها نجات دهند.
+
+این اعتراضات پس از آن رخ داد که یک مرد ۳۰ ساله سودانی به تلاش برای قتل، حمل سلاح سرد در مکان عمومی و تهدید به قتل متهم شد. او روز چهارشنبه در دادگاه بدوی بلفاست حاضر شد.
+
+قربانی این حمله که شامگاه دوشنبه رخ داد، مردی حدودا ۴۰ ساله است که بنا بر گزارش‌ها از ناحیه دو چشم به شدت آسیب دیده و صورت و کمر او دچار زخم‌های عمیقی شده است. قربانی این حمله اکنون در وضعیت پایدار به سر می‌برد.
+
+
+تصاویر ویدئویی نشان می‌دهند که به هنگام وقوع این حمله چند عابر تلاش کردند تا قبل از رسیدن پلیس مهاجم اهل سودان را متوقف کنند که به گفته مقامات پلیس‌، این اقدام نقش مؤثری در نجات جان قربانی داشته است.
+
+حمله بلفاست که در حال حاضر به‌عنوان یک اقدام تروریستی تلقی نمی‌شود، در شرایطی رخ داده که تنش‌ها در بریتانیا به‌ویژه پس از قتل یک دانشجوی ۱۸ ساله افزایش یافته است. این دانشجو به دلیل خونریزی شدید بر اثر جراحات ناشی از چاقو جان باخت.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125814
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_125814_1781180036.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 تصاویری از حملات هوایی آمریکا به ایران
+
+در دور تازه تبادل آتش میان جمهوری اسلامی ایران و آمریکا، بامداد پنج‌شنبه ۲۱ خرداد ۱۴۰۵، دود ناشی از انفجارها در مناطق مختلف غرب استان البرز و شهر کرج از جمله حصارک، کمال‌شهر و آزادراه کرج- قزوین مشاهده شد.
+
+حملات جدید آمریکا که از شامگاه ۱۹ خرداد آغاز شده، در واکنش به سرنگونی یک بالگرد آپاچی ارتش این کشور توسط نیروهای جمهوری اسلامی ایران انجام شده است. این حملات در حالی ادامه دارد که تنش دو طرف بر سر تنگه هرمز نیز در هفته‌های اخیر افزایش یافته است.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125813
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125813_1781180039.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶وزارت خارجه ایران: آتش‌بس ۱۹ فروردین بی‌معنا شده است
+
+وزارت امور خارجه جمهوری اسلامی با انتشار بیانیه‌ای در واکنش به حملات آمریکا به ایران در بامداد پنجشنبه ۱۱ ژوئن (۲۱ خرداد) این حمله‌ها را نه تنها "نقض فاحش منشور سازمان ملل متحد و قواعد بنیادین حقوق بین‌الملل در احترام به حاکمیت ملی و تمامیت سرزمینی دولت‌ها" دانست، بلکه تصریح کرد که به این ترتیب آتش‌بس ۱۹ فروردین "عملا بی‌معنا" شده است.
+
+این وزارتخانه در بیانیه خود نوشت که استفاده ارتش ایالات متحده از قلمرو و امکانات برخی کشورهای منطقه برای تدارک و اجرای عملیات، آن کشورها را "در کنار طرف‌های متجاوز" قرار داده است. وزارت خارجه جمهوری اسلامی در این بیانیه در چارچوب "حق ذاتی دفاع مشروع بر عزم خود برای خنثی‌سازی مبدا و منبع حملات آمریکا و همدستانش تاکید کرده است".
+
+این بیانیه ضمن محکوم کردن حملات تازه ایالات متحده هشدار داده که "مسئولیت پیامدهای بسیار خطرناک ناشی از این آتش‌افروزی بر عهده هیأت حاکمه آمریکا خواهد بود".
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125812
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125812_1781180039.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 کشته شدن ۳ ملوان هندی در پی حمله آمریکا به یک کشتی تجاری
+
+سارباناندا سونوال، وزیر کشتیرانی هند، پنجشنبه ۱۱ ژوئن (۲۱ خرداد) تأیید کرد که در پی حمله نیروهای آمریکایی به یک کشتی تجاری در سواحل عمان سه ملوان هندی که از خدمه آن بوده‌اند، جان خود را از دست داده‌اند. این اتفاق روز چهارشنبه روی داده بود.
+
+او در بیانیه‌ای در رابطه با این رویداد مرگبار گفت: «اطلاع از این حادثه تراژیک در کشتی "ام‌تی ستبلو" (MT Settebello) که با پرچم پالائو تردد می‌کرده، مایه تأسف عمیق است. متأسفانه اجساد ۳ دریانورد هندی که در ابتدا مفقود اعلام شده بودند، کشف شده و پش از شناسایی اجسادش، مرگ آنها تأیید شده است.»
+
+وزارت امور خارجه هند در پی این رویداد یک دیپلمات ارشد آمریکایی را احضار و "اعتراض شدید" دهلی‌نو را به واشنگتن ابلاغ کرد.
+
+وزیر کشتیرانی هند تأکید کرد که دولت این کشور در این شرایط سخت در کنار خانواده‌های داغدیده ایستاده است و افزود: «به مقامات مسئول دستور داده‌ام تا از بازگشت فوری خدمه نجات‌یافته به کشور و همچنین انتقال سریع پیکر جانباختگان برای برگزاری مراسم خاکسپاری اطمینان حاصل کنند.»
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125811
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125811_1781180040.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ۲۲ کشور به ایران درباره حمله به افراد در خاک کشورهای دیگر هشدار دادند
+
+بیست و دو کشور جهان از جمله ایالات متحده آمریکا و برخی از کشورهای اروپایی، پنجشنبه ۱۱ ژوئن (۲۱ خرداد) در بیانیه‌ای مشترک به جمهوری اسلامی هشدار دادند که حمله به افراد "در خاک" کشورهایشان را متوقف کند.
+
+این بیانیه دستگاه‌های امنیتی جمهوری اسلامی را به دلیل استفاده "غیراخلاقی" از شبکه‌های تبه‌کاری بین‌المللی و محلی برای اجرای طرح‌هایی در اروپا، آمریکای شمالی و استرالیا محکوم کرده است.
+
+در بیانیه مشترک ۲۲ کشور آمده است: «تلاش برای قتل، آدم‌ربایی، آزار و اذیت، ارعاب یا هرگونه حمله دیگر به افراد در خاک کشورهای ما، حاکمیت ملی و هنجارهای بین‌المللی را نقض می‌کند. این اقدامات باید فورا متوقف شود.»
+
+این کشورها در بیانیه خود تصریح کرده‌اند که سازمان اطلاعات سپاه پاسداران انقلاب اسلامی و نیروی قدس در "طراحی عملیات مرگبار و اقدامات مخرب" علیه مخالفان ایرانی، روزنامه‌نگاران و همچنین جوامع و منافع یهودی و اسرائیلی نقش داشته‌اند.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 جام جهانی ۲۰۲۶؛ فوتبال ایران قربانی سیاست جمهوری اسلامی
+
+🔻 گزارشی از مراد رحمتی
+
+جام جهانی ۲۰۲۶ در سایه تنش‌های سیاسی ایران و آمریکا برگزار می‌شود و زمین فوتبال نیز به میدانی سیاسی تبدیل شده است. تیم ملی فوتبال در شرایطی به رقابت‌های جام جهانی می‌رود که بازیکنانی چون سردار آزمون از تیم خط خورده‌اند.
+
+در آستانه بازی‌های جام جهانی ۲۰۲۶، تنش‌های سیاسی میان آمریکا و ایران بار دیگر به اوج رسید و هم‌زمان "بحث‌های غیرورزشی و غیرفوتبالی" از جمله "اجازه حمل و یا حذف پرچم" و "ویزای آمریکا" داغ شد.
+
+احمد دنیامالی، وزیر ورزش تهدید کرده است که در صورت مشاهده "پرچم‌های غیررسمی یا شعارهای هنجارشکنانه" در ورزشگاه‌ها، حتی امکان توقف بازی‌ها وجود دارد.
+
+مرتضی آقاتهرانی، رئیس کمیسیون فرهنگی مجلس توصیه کرده است تیم ملی ایران به مسابقات جام جهانی نرود، چون "نوعی بی‌اعتنایی به ترامپ و آمریکاست". آقاتهرانی همچنین گفت: «ما دیگر ایران سابق نیستیم. تا سال قبل ما را جزو ابرقدرت‌های آسیا می‌دانستند، اما الان در دنیا از ایران به عنوان ابرقدرت جهانی یاد می‌کنند.»
+
+طبق اعلام فدراسیون فوتبال ایران، سهمیه بلیت هواداران برای بازی‌های تیم ملی در جام جهانی نیز عملا حذف شده و امکان فروش بلیت‌ها برای دیدارهای مرحله گروهی مقابل نیوزیلند، بلژیک و مصر وجود ندارد. مقامات ایرانی آن را "تصمیمی سیاسی" از سوی میزبانان جام جهانی تلقی می‌کنند.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125809
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 شمارش معکوس آغاز دیدارهای تیم ملی فوتبال ایران
+
+کمتر از چند روز مانده به نخستین بازی تیم ملی فوتبال ایران در جام جهانی ۲۰۲۶ مقابل نیوزیلند، نگاه میلیون‌ها ایرانی به ورزشگاه سوفای لس‌آنجلس دوخته شده؛ دیدارهایی که این بار در کنار رقابت‌های ورزشی، تحت تأثیر حاشیه‌ها و مسائل سیاسی نیز قرار گرفته‌اند.
+
+فرید اشرفیان، خبرنگار دویچه وله فارسی از محل ورزشگاه سوفای لس‌آنجلس در ایالات متحده آمریکا گزارش می‌دهد.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125808
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125808_1781180041.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 عکس روز: مشارکت بیننده در اثر هنری
+
+نمایشگاه "خلیو له‌پارک: نور، رنگ، کنش" نخستین مرور جامع آثار این هنرمند آرژانتینی در گالری تیت لندن در جریان است.
+
+له‌پارک که از پیشگامان هنر جنبشی و هنر اپتیکال (دیداری) شناخته می‌شود در استفاده از نور، حرکت و مشارکت دادن بیننده در اثر هنری نقش نوآورانه داشته است.
+
+او با استفاده از پلکسی‌گلاس، آینه‌ها و فلزات معلق آثاری آفرید که با حرکت بیننده یا جریان هوا تغییر شکل می‌دهند.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125807
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125807_1781180042.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶هگست: بمباران بخشی از تحمیل دیپلماسی است
+
+پنتاگون موج تازه حملات آمریکا علیه جمهوری اسلامی را بخشی از تحمیل دیپلماسی خواند و آن را تلاش برای واداشتن ایران به مذاکره دانست.
+
+پیت هگست، وزیر دفاع ایالات متحده شامگاه چهارشنبه ۱۰ ژوئن (۲۰ خرداد) گفت: «اگر لازم باشد با استفاده از بمب مذاکره کنیم، با استفاده از بمب مذاکره خواهیم کرد. و ما در انجام این کار تبحر داریم.»
+
+فرماندهی مرکزی ایالات متحده آمریکا (سنتکام) در شبکه ایکس اعلام کرد از ساعت ۵:۱۵ عصر به وقت شرق آمریکا (بعد از نیمه شب ایران) "حملات دفاعی" بیشتری را علیه چندین هدف در داخل ایران در پاسخ به "تجاوز بی‌دلیل و ادامه‌دار" جمهوری اسلامی انجام می‌شود.
+
+ساعاتی پیش از شروع این حملات وزیر دفاع آمریکا، پیت هگست، گفته بود که فرماندهی مرکزی ارتش آمریکا امشب حملاتی را علیه ایران آغاز خواهد کرد.
+
+او در جمع خبرنگاران گفت: «فرماندهی مرکزی امشب شب شلوغی خواهد داشت، چون رئیس‌ جمهور ترامپ گفته که ما ایران را به‌شدت هدف قرار خواهیم داد و همین کار را هم خواهیم کرد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16713
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16713_1781180043.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد کل ارتش کویت اعلام کرد در 48 ساعت اخیر 24 پهپاد انتحاری را شناسایی و رهگیری کرده و خسارات محدودی به بار آوردند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16712
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16712_1781180043.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد حسین عظیمی(دبیر کل حزب ایران اسلامی )
+
+اگر آمریکا دوباره حمله کند بلافاصله اتمی خواهیم شد.
+۳۰ابر کلاهک و۴۰۰کلاهک تاکتیکی
+
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16711
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16711_1781180044.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📺شبکه CNN به نقل از منابع آگاه گزارش داد هیئت قطری که با هماهنگی ایالات متحده در تهران حضور داشت، پس از برگزاری مذاکرات شبانه با مقامات ایرانی، صبح امروز پایتخت ایران را ترک کرده است.
+
+بر اساس این گزارش، این رایزنی‌ها در شرایطی انجام شده که همزمان حملات آمریکا علیه اهدافی در ایران نیز جریان داشته است.
+
+
+
+👺 Phantom
+
+
+📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی :::
+</div>
+
+## Persian_Trend_Official — post 16710
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «دوستان خوبم، سلام به‌دلیل کمبود وقت، من شخصاً فقط در بازه‌های کوتاه چت را بررسی می‌کنم؛ اما هر زمان سر بزنم، اگر یکی از سه مورد زیر را ببینم، متأسفانه بدون استثنا بن انجام می‌شود. این موضوع ربطی به سابقه عضویت، رفاقت، نزدیکی یا قدیمی و جدید بودن افراد ندارد.…»
+</div>
+
+## Persian_Trend_Official — post 16709
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان خوبم، سلام
+
+به‌دلیل کمبود وقت، من شخصاً فقط در بازه‌های کوتاه چت را بررسی می‌کنم؛ اما هر زمان سر بزنم، اگر یکی از سه مورد زیر را ببینم، متأسفانه بدون استثنا بن انجام می‌شود.
+این موضوع ربطی به سابقه عضویت، رفاقت، نزدیکی یا قدیمی و جدید بودن افراد ندارد. قانون برای همه یکسان است و تلاش می‌کنم شرایط کاملاً منصفانه رعایت شود.
+
+۱. فحاشی رکیک به دیگران
+بحث، اختلاف‌نظر و حتی جدل آزاد است؛ اما فحاشی مستقیم و رکیک به دیگر اعضا، به‌دلیل حفظ شأن گروه، باعث بن شدن می‌شود. می‌توانید انتقاد کنید یا حتی از عبارات کنایه‌آمیز استفاده کنید، اما توهین مستقیم خط قرمز است.
+
+۲. حمایت مستقیم از پروپاگاندای رژیم، کشتار و سرکوب
+سؤال پرسیدن، مخالفت با نظر اکثریت یا نقد تحلیل‌های کانال کاملاً آزاد است. اما حمایت مستقیم از روایت‌های تبلیغاتی رژیم، توجیه سرکوب یا دفاع از کشتار پذیرفته نیست. تشخیص مصداق این مورد با خود من است و اگر از پیام‌های شما برداشت حمایت مستقیم از رژیم داشته باشم، بن خواهید شد.
+
+۳. تهمت مستقیم به شخص من بدون ارائه سند
+اگر اتهامی مستقیم به من وارد کنید و نتوانید آن را اثبات کنید، از گروه حذف می‌شوید. نقد آزاد است، اما تهمت بدون سند پذیرفته نیست.
+از آن‌جایی که بن شدن توسط خود من انجام می‌شود، تصمیم نهایی و غیرقابل بازگشت است. لطفاً بعد از بن شدن برای فرصت دوباره پیام ندهید.
+
+قوانین روشن است و چارچوب گروه سخت‌گیرانه نیست؛ اما عبور از خط قرمزها، نتیجه مشخص و غیرقابل بازگشت دارد.
+
+از توجه شما سپاسگزارم
+الیاس فرخ
+</div>
+
+## Persian_Trend_Official — post 16708
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16708_1781180045.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نهاد مدیریت آبراه خلیج فارس:
+
+تنگه‌هرمز تا اطلاع ثانوی بسته خواهد بود.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16707
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16707_1781180046.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بامداد امروز پرتابه دشمن آمریکایی به یک لنج باری از شهرستان سیریک هرمزگان در دریای عمان اصابت کرد.
+فرماندار سیریک گفت: این لنج باری حامل کالاهای اساسی ساعت ۵ صبح از شهر خصب کشور عمان به سمت شهرستان سیریک در حرکت بود که در ۵ مایلی خصب مورد اصابت پرتابه دشمن قرار گرفت.
+رضا شهیدیان افزود: این لنج ۱۵۰ تنی ۵ خدمه داشت که با کمک شناورهای عبوری نجات پیدا کرده و به کشور عمان انتقال داده شدند.
+
+
+👺Phantom
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16706
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16706_1781180046.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💛 سقوط بالگرد ارتش پاکستان با دست‌کم ۲۲ کشته
+
+
+🇵🇰طبق اعلام ارتش پاکستان، یک بالگرد MI-17 ارتش دیروز به دلیل نقص فنی در کشمیر تحت کنترل پاکستان سقوط کرد و تمام سرنشینان آن کشته شدند.
+
+ارتش پاکستان تعداد دقیق سرنشینان را اعلام نکرده، اما رویترز امروز به نقل از منابع امنیتی گزارش داد که دستکم ۲۲ نفر در پی سقوط این بالگرد نظامی در کشمیر کشته شده‌اند.
+
+به گزارش آسوشیتد پرس، این سانحه در نزدیکی مظفرآباد، مرکز منطقه و در جریان اعتراض و اعتصابی رخ داد که از سوی «کمیته مشترک اقدام مردمی»-- ائتلافی که اخیراً ممنوع اعلام شده-- برگزار شده بود.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16705
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16705_1781180049.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انتقال ۴۰۸ زندانی افغان از ایران به افغانستان
+
+سفارت طالبان در تهران:
+🔹۴۰۸ زندانی افغان محکوم به حبس، در نخستین مرحلهٔ یازدهمین دور کمیتهٔ انتقال زندانیان از ایران به افغانستان منتقل شدند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16704
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16704_1781180050.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پزشکیان در پیامی به مناسبت روز خانواده و تکریم بازنشستگان: صیانت از خانواده و حمایت از جوانان، اولویتی راهبردی برای کشور است.
+
+پ.ن: جدی میفرمایید؟
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16703
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16703_1781180050.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷 وزارت امور خارجه ایران: ایران به شدت حملات آمریکا به خاک ایران در طول شب را محکوم کرده و اعلام کرده است که مسئولیت پیامدهای خطرناک تشدید تنش‌ها بر عهده دولت آمریکا است. این بیانیه آتش‌بس ۸ آوریل را به دلیل این حملات عملاً بی‌اعتبار اعلام می‌کند.
+
+ایران به نقض منشور سازمان ملل و حقوق بین‌الملل در خصوص حاکمیت ملی و تمامیت ارضی اشاره کرده است. وزارت امور خارجه همچنین به همه کشورهای منطقه هشدار داده است که اجازه ندهند نیروهای آمریکایی از خاک، تأسیسات یا منابع آن‌ها برای انجام عملیات علیه ایران استفاده کنند و حق ایران برای حمله به مبدأ هرگونه حمله تحت حق دفاع مشروع را مجدداً تأیید کرده است.
+
+
+👺Phantom
+
+📌@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16702
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16702_1781180051.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ شریعتمداری: فورا از ان‌پی‌تی خارج بشیم.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16701
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16701_1781180052.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت ژورنال: دونالد ترامپ به دستیاران ارشد خود دستور داده است از طریق قطر پیامی به تهران منتقل کنند مبنی بر اینکه حملات اخیر پاسخی به سرنگونی بالگرد آپاچی بوده و به معنای آغاز یک جنگ تمام‌عیار نیست.
+
+بر اساس این گزارش، فشار نظامی آمریکا تا زمانی که ایران شرایط مورد نظر ترامپ را نپذیرد، افزایش خواهد یافت. وال‌استریت ژورنال همچنین گزارش داد ترامپ اصرار دارد بحران با ایران همچنان تحت کنترل است، اما مقام‌های آمریکایی می‌گویند او انتظار نداشت آتش‌بسی که ماه‌ها برقرار بود فروبپاشد.
+
+به گفته این منابع، ترامپ همچنین پیش‌بینی نمی‌کرد ایران بدون محدودیت اقدام به شلیک موشک و پهپاد کند و در عین حال، افزایش تورم به بالاترین سطح سه سال اخیر و رشد قیمت سوخت، دستاوردهای اخیر در زمینه افزایش دستمزدها را تحت‌الشعاع قرار دهد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16698
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16698_1781180052.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازگشت گروهی نخبه های ولایی به وطن !
+
+چند روز دیگه برامون از اهمییت تحمل اوضاع و شکرگزاری صحبت میکنند
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16697
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16697_1781180053.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس از نقل یک منبع آگاه ادعا میکند که سپاه پاسداران در حملات شب گذشته خود با پایش اطلاعاتی دقیق محل استقرار هواپیمای گشت دریایی P-8 پوسایدن و جنگنده های F-35 را در پایگاه هوایی موفق السلطی با موشک های بالستیک سوخت جامد هدف قرار داده است.
+
+به دلیل اعتبار بیش از حد خبرگزاری فارس باید منتظر تصاویر ماهواره‌ای جدید از پایگاه موفق السلطی ماند و پس از آن اظهار نظر کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16696
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری CNN: مذاکرات برای رسیدن به توافق بین ایالات متحده و ایران پس از درگیری شبانه همچنان در مسیر خود قرار دارد.
+
+با وجود تبادل حملات شبانه که خطر پیچیده شدن تلاش‌های دیپلماتیک را به همراه داشت، مذاکرات ادامه یافت.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16695
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16695_1781180054.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارش‌های اولیه از هدف قرار گرفتن نفتکش M/T Jalveer در دریای عمان منابع خبری از وقوع حادثه برای نفتکش M/T Jalveer در دریای عمان خبر می‌دهند؛ گزارشی که در صورت تأیید، می‌تواند نشانه‌ای تازه از گسترش جنگ دریایی در کریدور انرژی خلیج فارس و دریای عمان باشد.…
+</div>
+
+## Persian_Trend_Official — post 16694
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16694_1781180054.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روسیه ساخت نمونه آزمایشی جنگنده نسل پنجم Su-75 Checkmate را آغاز کرد
+
+شرکت سوخو ساخت نمونه آزمایشی جنگنده نسل پنجم Su-75 Checkmate را آغاز کرده است؛ موضوعی که وادیم بادخا، رئیس شرکت هواپیماسازی متحد روسیه، در گفت‌وگو با تاس اعلام کرد.
+
+با این حال، وضعیت واقعی این پروژه همچنان مبهم است. بر اساس ارزیابی الکسی زاخاروف، کارشناس هوانوردی، آنچه اکنون در حال ساخت است بیشتر یک هواپیمای آزمایشی و نمایشگر فناوری است، نه لزوماً نمونه عملیاتی یک جنگنده آماده ورود به خط تولید.
+
+پروژه Su-75 اساساً با ابتکار داخلی سوخو و با هزینه خود این شرکت آغاز شده و نیروی هوایی روسیه تاکنون علاقه جدی و رسمی به این جنگنده تک‌موتوره نشان نداده است. با این وجود، مسکو تلاش دارد این پروژه را هم برای نیازهای احتمالی آینده وزارت دفاع روسیه و هم برای مشتریان خارجی زنده نگه دارد.
+
+در طراحی جدید Checkmate نیز تغییراتی نسبت به تصاویر اولیه دیده می‌شود؛ از جمله در اتصال بال، لبه انتهایی بال و زاویه نصب دم. این تغییرات احتمالاً نتیجه آزمایش‌های تونل باد و اصلاحات فنی پس از ورود متخصصان TsAGI به پروژه است.
+
+
+Su-75 اگرچه هنوز تا تبدیل شدن به یک جنگنده عملیاتی فاصله زیادی دارد، اما نشان می‌دهد روسیه به‌دنبال بازتعریف ناوگان جنگنده‌های خود در برابر نسل جدید تهدیدات هوایی، پهپادها و نیاز بازار صادراتی است. آینده این پروژه بیش از آنکه به تبلیغات بستگی داشته باشد، به تصمیم واقعی وزارت دفاع روسیه و موفقیت آزمایش‌های پروازی گره خورده است.
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158176
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانادا لایحه ممنوعیت دسترسی کودکان زیر ۱۶ سال به شبکه‌های اجتماعی را ارائه کرد
+
+🔸دولت کانادا لایحه‌ای را به پارلمان این کشور ارائه کرده که بر اساس آن استفادهٔ افراد زیر ۱۶ سال از شبکه‌های اجتماعی ممنوع می‌شود و همزمان مقررات تازه‌ای برای افزایش ایمنی چت‌بات‌های هوش مصنوعی وضع خواهد شد.
+
+🔸بر اساس این لایحه که روز چهارشنبه ۲۰ خرداد ارائه شد، پلتفرم‌هایی که نتوانند استانداردهای تعیین‌شدهٔ ایمنی را رعایت کنند، ممکن است با جریمه‌ای تا سقف ۱۰ میلیون دلار کانادا یا معادل سه درصد درآمد جهانی خود روبه‌رو شوند.
+
+🔸مارک میلر، وزیر هویت و فرهنگ کانادا، گفت شبکه‌های اجتماعی و چت‌بات‌های هوش مصنوعی برای جلب توجه کاربران طراحی شده‌اند و به منبع اضطراب، انزوا، افسردگی و دیگر مشکلات سلامت روان برای بسیاری از جوانان کانادایی تبدیل شده‌اند.
+
+🔸این لایحه همچنین ایجاد یک نهاد ناظر دیجیتال را پیش‌بینی می‌کند که مسئول تدوین و اجرای استانداردهای ایمنی برای چت‌بات‌های هوش مصنوعی خواهد بود.
+اقدام کانادا در حالی صورت می‌گیرد که نگرانی دولت‌ها دربارهٔ تأثیر شبکه‌های اجتماعی بر سلامت روان و امنیت کودکان در سال‌های اخیر افزایش یافته است.
+
+🔸استرالیا آذرماه پارسال نخستین کشور جهان بود که دسترسی افراد زیر ۱۶ سال به شبکه‌های اجتماعی را ممنوع و شرکت‌های فناوری را موظف کرد حساب‌های کاربران زیر این سن را مسدود کنند یا با جریمه‌های سنگین روبه‌رو شوند.
+قانون استرالیا با مخالفت شرکت‌های بزرگ فناوری و برخی
+
+🔸مدافعان آزادی بیان مواجه شد و برخی منتقدان هم هشدار دادند که چنین محدودیت‌هایی ممکن است به حریم خصوصی کاربران آسیب بزند یا به دولت‌ها ابزار بیشتری برای کنترل دسترسی به اینترنت بدهد.
+
+🔸 گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158175
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158175_1781180055.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸حکم چهار سال حبس برای دو ورزشکار ایرانی در کره جنوبی روز چهارشنبه ۲۰ خرداد در دادگاه تجدید نظر تایید شد.
+
+🔸در پرونده‌ای که سال گذشته علیه سه ورزشکار و یک مربی تیم ملی دوومیدانی به اتهام تجاوز جنسی به یک دختر کره جنوبی تشکیل شده بود، دادگاه تجدید نظر حکم بدوی دو متهم را تایید و دو متهم دیگر را تبرئه کرد.
+
+🔸به گزارش رسانه های ورزشی در ایران دو متهم تبرئه‌شده می‌توانند به کشور بازگردند.
+
+🔸این واقعه خرداد پارسال در جریان رقابت‌های قهرمانی دو و میدانی آسیا در کره جنوبی در هتل محل اقامت ورزشکاران ایران رخ داد.
+
+🔸مقامات فدراسیون دو و میدانی جمهوری اسلامی تاکنون به قطعی شدن حکم دو نفر از ورزشکاران تیم ملی واکنش نشان نداده‌اند.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158174
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158174" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ساعت ۱۴ با رادیوفردا، ۲۱ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویب لایحه‌ای در آمریکا برای قطع دسترسی پهپادهای ایرانی به فناوری‌های غربی
+
+🔸مجلس نمایندگان آمریکا روز سه‌شنبه، ۱۹ خرداد، لایحه‌ای را با اکثریت آرا تصویب کرد که هدف آن بستن راه استفاده از فناوری‌های آمریکایی و به‌طور کلی غربی در پهپادهای ایرانی است.
+
+🔸اعضای مجلس نمایندگان آمریکا، با تصویب این لایحه، سه وزارتخانهٔ تجارت و اقتصاد و امور خارجه و دفاع ایالات متحده را موظف کردند که راهکارهایی جدید طراحی و تدوین کنند که از طریق آن‌ها بتوان زنجیره‌ای را شناسایی و قطع کرد که حکومت ایران با بهره‌گیری از آن به فناوری‌های حیاتی برای برنامه پهپادی خود دست می‌یابد.
+
+🔸طبق تأکید حامیان این مصوبه در گفت‌وگو با رادیو اروپای آزاد/رادیو آزادی، قانون جدید قرار است پاسخگوی مسئله‌ای باشد که تاکنون راه‌حلی برای آن یافت نشده است: سر در آوردن قطعات الکترونیکی تولیدشده در غرب از پهپادهای ایرانی به‌رغم تصویب تحریم و کنترل صادرات.
+
+🔸برایان مَست، رئیس کمیته امور خارجی مجلس نمایندگان آمریکا، در گفت‌وگو با رادیو اروپای آزاد تأکید کرد: «از پهپادهای ایرانی برای ایجاد وحشت در غیرنظامیان و حمله به آمریکایی‌ها و متحدان آمریکا در سراسر جهان استفاده می‌شود. »
+
+🔸او همچنین در گفت‌وگو با اعضای این مجلس هشدار داد که سیستم‌های پهپادهای ایرانی غالبا بر فناوری‌های آمریکایی و اروپایی متکی است.
+
+🔸گزارش کامل را در وب‌سایت رادیو فردا می‌توانید بخوانید.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158172
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158172_1781180057.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وزارت امور خارجه جمهوری اسلامی با صدور بیانیه‌ای در واکنش به حملات ارتش آمریکا به اهدافی در ایران، این اقدام را نقض قوانین بین‌المللی خوانده و گفته است این حملات آتش‌بس ۱۹ فروردین را عملا بی‌معنی کرده است.
+
+🔸در بیانیه وزارت خارجه ایران بار دیگر به کشورهای حاشیه خلیج‌فارس درباره استفاده ارتش آمریکا از قلمرو، امکانات و منابع آنها هشدار داده شده است.
+
+🔸این هشدار مجدد در حالی صادر شده که سپاه پاسداران بارها کشورهای عرب منطقه را هدف حملات پهپادی و موشکی قرار داده و ده‌ها تأسیسات غیرنظامی از جمله تأسیسات نفت و گاز در این کشورها آسیب دیده‌اند.
+
+🔸آمریکا اعلام کرده که حملات هدفمند و محدود دو روز اخیر در واکنش به سقوط یک بالگرد آن کشور بر اثر برخورد با یک پهپاد شاهد ایران انجام شده است.
+
+🔸دونالد ترامپ هم تاکید کرده که همچنان خواهان رسیدن به توافق با ایران است.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلاش مسکو برای راه‌اندازی وی‌پی‌اِن دولتی؛ دردسرها و پیامدهای این طرح چیست؟
+
+🔸از زمان آغاز تهاجم تمام‌عیار روسیه به اوکراین در فوریه ۲۰۲۲، مقام‌های روسی مجموعه‌ای از محدودیت‌ها و سانسورهای آشکار و پنهان را بر اخبار، صداهای منتقد و بحث‌های مرتبط با این جنگ اعمال کرده‌اند؛ محدودیت‌هایی که حتی موضوع رهبری ولادیمیر پوتین را نیز شامل می‌شود.
+
+🔸شهروندان روسیه نیز در واکنش به این وضعیت به استفاده از وی‌پی‌اِن روی آورده‌اند؛ ابزارهای آنلاینی که موقعیت مکانی کاربر را پنهان می‌کنند و امکان دسترسی به اخبار بدون سانسور و بدون دخالت دولت را فراهم می‌سازند.
+
+🔸این موضوع باعث نارضایتی نهادهای نظارتی روسیه و همچنین سازمان‌های قدرتمند اطلاعاتی و امنیتی این کشور شده، به‌طوری که آن‌ها تلاش کرده‌اند استفاده از وی‌پی‌اِن‌ها را محدود و حتی جرم‌انگاری کنند.
+
+🔸بر اساس گزارش‌ها، سازمان نظارت بر ارتباطات روسیه، «روس‌کومنادزور»، که نقش محوری در تلاش‌های کرملین برای کنترل اینترنت روسیه دارد، ایده‌ای جدید برای حل این مسئله مطرح کرده است: وی‌پی‌اِن دولتی.
+
+🔸گزارش کامل را در وب‌سایت رادیو فردا می‌توانید بخوانید.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158170
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158170_1781180057.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸از نقاط هدف‌ حمله در ایران در بامداد پنجشنبه هنوز گزارش‌های رسمی منتشر نشده، اما بر پایه گزارش‌های پراکندهٔ رسانه‌های ایران، صدای انفجار در نقاط متعدد و بخش های گسترده‌ای از کشور شنیده شد.
+
+🔸سیریک، بندرعباس، قشم و جزیره خارک، صدای انفجار در شهرهای مختلف نزدیک به تهران، از جمله آبیک، قرچک، میناب، نظرآباد و کرج هم شنیده شد.
+
+🔸در دیگر نقاط ایران نیز گزارش‌هایی از شنیده شدن صدای انفجار منتشر شده است. در شهر شیراز، مرکز استان فارس، نیز صدای انفجار شنیده شد.
+
+🔸همچنین ابتدا گزارش‌هایی از وقوع انفجار در نزدیکی شهر اشتهارد در حوالی تهران منتشر شد، اما صداوسیمای جمهوری اسلامی ایران به‌نقل از فرماندار این منطقه بعداً اعلام کرد که این صداها احتمالاً ناشی از حوادثی در خارج از استان بوده است.
+
+🔸روابط عمومی سپاه پاسداران انقلاب اسلامی هم بامداد پنجشنبه از هدف گرفته شدن «یک مجتمع تولیدی و محوطه یک پادگان از اطراف کرج و نظرآباد و یک پایگاه محلی سپاه در شهرستان پیشوا» خبر داد.
+
+🔸رئیس اورژانس استان تهران روز پنج‌شنبه اعلام کرد که در حوادث مرتبط با حملات امریکا در استان تهران ۳ نفر مصدوم شدند.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158169
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158169_1781180058.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 وزیر بنادر، کشتیرانی و دریانوردی هند روز پنج‌شنبه تأیید کرد که هر سه خدمهٔ هندی مفقودشدهٔ نفتکش سِتِبلو کشته شدند.
+
+🔸 نفتکش ستبلو که با پرچم پالائو حرکت می‌کرد، بامداد چهارشنبه ۲۰ خرداد در نزدیکی سواحل عمان هدف حملهٔ آمریکا قرار گرفت.
+
+🔸 به‌گفتۀ سنتکام، این نفتکش با نقض محاصرهٔ دریایی در حال انتقال نفت از ایران بود و پس از آن‌که خدمهٔ این نفتکش به هشدارها و دستورات نیروهای آمریکایی توجه نکردند، یک هواپیمای نظامی آمریکا با استفاده از مهمات هدایت‌شونده، اتاق موتور کشتی را هدف قرار داد و آن را از کار انداخت.
+
+🔸 پیش‌تر خبرگزاری رویترز گزارش داده بود که هند در پی حمله به این نفتکش در سواحل عمان، یک دیپلمات ارشد آمریکایی را در دهلی نو به وزارت خارجه احضار کرده است.
+
+🔸 این خبرگزاری به نقل از منابع هندی مطلع از این موضوع نوشت که دولت هند «اعتراض شدید» خود را به جیسون میکس، معاون سفیر آمریکا در این کشور، به دلیل حمله به این نفتکش ابلاغ کرد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22290
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آیت‌الله جوادی آملی:
+
+نتانیاهو و ترامپ باید فورأ کشته بشوند😂
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22289
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ای‌بی‌سی به نقل از یک مقام آمریکایی:
+
+هیچ گزارشی از تلفات در میان نیروهای آمریکایی یا خسارات جدی در پایگاه‌های ما وجود نداره.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22288
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22288_1781180059.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آخرین قیمت نفت برنت:
+
+92.03 دلار
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22287
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم:
+
+ادعاهای رسیدن به متن نهایی برای تفاهم ایران و آمریکا خبرسازی است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما :
+
+لحظاتی پیش صدای انفجار‌‌‌ از سمت دریا در محدوده سیریک شنیده شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22285
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22285_1781180060.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توئیتی در سال ۱۳۹۴ :)
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22284
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کرملین:
+
+از واشنگتن و تهران می‌خواهیم خویشتنداری را رعایت کنند و به مذاکرات ادامه دهند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22283
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22283_1781180061.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 لحظاتی قبل از غرق شدن لنج ۱۵۰ تنی سیریکی در پی حمله آمریکا؛ ملوانان با کمک قایق‌های عبوری نجات یافتند
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22282
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سی ان ان :
+
+با وجود حملات متقابل شب گذشته که خطر به بن‌بست رسیدن روند دیپلماسی را افزایش داد، گفت‌وگوهای آمریکا و ایران همچنان در جریان است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22281
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22281_1781180064.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر بیشتر از نفتکش
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22280
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22280_1781180066.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام یک نفتکش را مورد هدف قرار داد.
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻عربستان سعودی حملات ایران به بحرین، اردن و کویت را محکوم کرد
+
+عربستان سعودی حملات شب گذشته ایران به بحرین، اردن و کویت را محکوم کرد و خواستار ازسرگیری مذاکرات با میانجی‌گری پاکستان و قطر برای پایان دادن به جنگ در خاورمیانه شد.
+
+وزارت امور خارجه عربستان در بیانیه‌ای بر ضرورت «کاهش تنش و خویشتنداری» تأکید کرد و از همه طرف‌ها خواست با بازگشت به مسیر دیپلماسی، گفت‌وگوهای سازنده‌ای را که با حمایت پاکستان و در کنار تلاش‌های قطر در جریان است، از سر بگیرند.
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## BBCPersian — post 283430
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283430_1781180067.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این تصاویر امروز ۲۱ خرداد از رد موشک در آسمان ایران منتشر شده است.
+وحیدآنلاین که این تصاویر را منتشر کرده می‌گوید که مخاطبانش تصاویر را از ارومیه و تبریز فرستاده‌آند.
+
+شب گذشته تبادل آتش میان ایران و آمریکا برای دومین شب متوالی ادامه داشت.
+آمریکا از حمله به تاسیسات راداری در جنوب ایران و رهگیری پهپادها و موشک‌های شلیک‌شده به سوی کویت و بحرین خبر داد و ایران هم اعلام کرد که پایگاه‌های آمریکا در منطقه را هدف قرار داده است.
+همه اینها پس از سرنگونی بالگرد آپاچی آمریکا در حوالی تنگه هرمز روی می‌دهد که دونالد ترامپ ایران را عامل آن می‌داند.
+
+نهاد مدیریت آبراه خلیج فارس که ایران به‌تازگی آن را تاسیس کرده اعلام کرده است که تنگه هرمز تا اطلاع ثانوی بسته خواهد بود. همزمان بهای نفت افزایش یافت و نگرانی‌ها درباره گسترش تنش در منطقه شدت گرفته است.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 283429
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283429_1781180069.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آمریکا تأیید کرده است که به کشتی «ام/تی جالویر» که با پرچم گینه بیسائو در حرکت بود، حمله کرده است.
+
+فرماندهی مرکزی آمریکا (سنتکام) اعلام کرد این کشتی با «نقض محاصره دریایی» در تلاش بود تا نفت ایران را از طریق دریای عمان منتقل کند.
+
+به گفته سنتکام، این حمله سومین مورد از هدف قرار دادن کشتی‌ها توسط نیروهای آمریکایی در خلیج فارس طی هفته جاری است.
+
+آمریکا پیش‌تر کشتی‌های «ماریوکس و سته‌بلو» را هدف قرار داده بود.
+
+📸 CENTCOM
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## BBCPersian — post 283428
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ترکیه خواستار توقف حملات متقابل ایران و آمریکا شد
+
+ترکیه از آمریکا و ایران خواست دور تازه حملات متقابل را متوقف کنند و هشدار داد که ادامه این روند می‌تواند به تشدید بیشتر جنگ در خاورمیانه منجر شود.
+
+هاکان فیدان، وزیر امور خارجه ترکیه، در جریان سفر به صوفیه، پایتخت بلغارستان در یک نشست خبری گفت: «حملات متقابلی که از دو روز پیش آغاز شده، نگرانی‌ها درباره تشدید درگیری‌ها را افزایش داده است.»
+
+او افزود: «به دو طرف توصیه می‌کنیم حملات متقابل را متوقف کرده و مذاکرات را از سر بگیرند.»
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## BBCPersian — post 283427
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283427_1781180069.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر بنادر و کشتیرانی هند می‌گوید که سه ملوان هندی یک کشتی تجاری پس از حمله آمریکا در سواحل دریای عمان، کشته شدند.
+
+سارباناندا سونوال در بیانیه‌ای با اشاره به حمله به کشتی «ام‌تی سته‌بلو»که با پرچم پالائو تردد می‌کرد، گفت: «بسیار تأسف‌بار است که این حادثه اتفاق افتاده است.»
+
+او افزود: «اجساد سه دریانورد هندی که پیش‌تر مفقود اعلام شده بود، پیدا و شناسایی شده و مرگ آن‌ها تأیید شده است.»
+
+وزیر بنادر و کشتیرانی هند ضمن اعلام همدردی دولت با خانواده‌های قربانیان گفت که دستور داده است خدمه نجات‌یافته هرچه سریع‌تر به کشور بازگردانده شوند و اجساد کشته شدگان هم برای خاکسپاری به هند منتقل شوند.
+
+وزارت امور خارجه هند پس از حمله دیروز به این کشتی، یک دیپلمات ارشد آمریکایی را در دهلی نو احضار و «اعتراض شدید» خود را به این اقدام اعلام کرد.
+
+این دومین حمله گزارش‌شده آمریکا به یک کشتی تجاری با خدمه عمدتا هندی در طول یک هفته اخیر است.
+
+پیش‌تر، در ۸ ژوئن (۱۸ خرداد)، مقام‌های عمان ۲۴ ملوان هندی را از نفتکش «ام‌تی ماریوکس» که پس از حمله آمریکا دچار آتش‌سوزی شده بود، نجات داده بودند.
+
+📸 CENTCOM
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## BBCPersian — post 283426
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻هشدار ۲۲ کشور به ایران درباره حمله علیه افراد در خاکشان
+
+۲۲ کشور، از جمله ایالات متحده و شماری از کشورهای اروپایی، روز پنجشنبه در بیانیه‌ مشترکی به ایران هشدار دادند که حمله به افراد «در خاک» کشورهایشان را متوقف کند. این کشورها همچنین با «توطئه» خواندن فعالیت گروه‌های تحت حمایت ایران برای حمله به افراد در خاک کشورهایشان، این اقدامات را محکوم کرده‌اند.
+
+https://bbc.in/4eoUlyW
+@BBCPersian
+</div>
+
+## BBCPersian — post 283425
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر خانه یا محل کار خود یا اطرافیانتان در جنگ آسیب دیده است، از تجربه‌ و چالش‌های آن بگویید اسکان موقت و پرداخت خسارت چطور بوده است؟ بی‌بی‌سی فارسی گزارش‌‌هایی از شهروندان در ایران دریافت کرده است که بعضی از روند رسیدگی، اسکان در هتل، حمایت‌‌های روان‌شناسی،…
+</div>
+
+## BBCPersian — post 283423
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر خانه یا محل کار خود یا اطرافیانتان در جنگ آسیب دیده است، از تجربه‌ و چالش‌های آن بگویید
+اسکان موقت و پرداخت خسارت چطور بوده است؟
+
+بی‌بی‌سی فارسی گزارش‌‌هایی از شهروندان در ایران دریافت کرده است که بعضی از روند رسیدگی، اسکان در هتل، حمایت‌‌های روان‌شناسی، بازسازی و پرداخت خسارت ابراز رضایت کرده‌اند و گروهی از تاخیر، پرداخت مبلغ ناکافی و اجبار به ترک هتل ناراضی هستند.
+
+بنا بر گزارش بنیاد مسکن ایران، ۱۲۲ هزار واحد مسکونی و تجاری در جنگ ۴۰ روزه آسیب دیده‌اند. سازمان مدیریت بحران شهر تهران هم خبر داده که ۴۴ هزار و ۷۵۰ واحد ساختمانی تنها در تهران آسیب دیده است.
+
+مسئولان مدیریت بحران اعلام کرده‌اند که برای واحدهای با آسیب جدی، «علاوه بر اسکان افراد در هتل یا اجاره مسکن، حمایت‌هایی نظیر پرداخت هزینه تعمیر، ارائه رفاه‌ کارت خرید لوازم منزل و جبران خسارت خودروها در دستور کار قرار دارد.»
+
+تجربیات خود را با هشتگ #اسکان برای ما ارسال کنید:
+آی‌مسج و واتس‌اپ: ۰۰۴۴۷۳۴۲۰۳۲۱۱۳
+پیامگیر تلگرام t.me/bbcshoma
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 283422
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خبرگزاری فرانسه به نقل از یک دیپلمات: هیئت قطری پس از مذاکره تهران را ترک کردند
+
+خبرگزاری فرانسه به نقل از یک دیپلمات گفته است که هیئت مذاکره‌کننده قطر پس از گفت‌وگو درباره جنگ در خاورمیانه، تهران را ترک کرده است؛ این در حالی است که شب گذشته آمریکا و ایران بار دیگر به تبادل حملات پرداختند.
+
+این دیپلمات که نخواست نامش فاش شود، گفت: «هیئت قطری صبح امروز پس از دیدار و گفت‌وگو با مقام‌های ایرانی، تهران را ترک کرد.»
+
+به گفته او، این مذاکرات که تا ساعات اولیه بامداد صبح امروز ادامه داشت «با هماهنگی ایالات متحده» انجام شده است.
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## BBCPersian — post 283421
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مرور روزنامه‌های امروز تهران در فاصله دو حمله آمریکا
+
+روزنامه‌های امروز تهران پس از حمله آمریکا به تلافی آنچه که ساقط کردن هلی‌کوپترایالات متحده خوانده شد و حملات نظامی امروز صبح این کشور به ایران منتشر شده است.
+
+روزنامه سازندگی ارگان حزب کارگزاران سازندگی اظهارات حسین مرعشی، دبیر کل این حزب را منتشر کرده که گفته است: «شرایط برای پایان جنگ فراهم شده است.» و پیشنهاد می‌کند که جمهوری اسلامی ایران «به سوی نوسازی ساختاری» برود و با ادبیات به روز با شهروندان سخن بگوید.
+
+روزنامه کیهان در مقاله‌ای به قلم حسین شریعتمداری، مدیر این روزنامه خواستار خروج ایران از پیمان منع گسترش سلاح‌های هسته‌ای (ان‌پی‌تی) شده است.
+
+در این مقاله با اشاره به تصویب قطعنامه جدید شورای حکام آژانس درباره ایران و حملات یک سال اخیر آمریکا و اسرائیل به ایران گفته شده است که «معطل چه هستیم؟ چرا با قاطعیت از این پیمان اعلام خروج نمی‌کنیم؟! بیست و چند سال است که خود را در ان پی تی به بند کشیده‌ایم! باور بفرمائید اگر خارج نشویم خیلی زود دیر می‌شود.»
+
+روزنامه دولتی ایران گزارش اصلی امروز خود را به «راه اندازی طرح آموزشی هلال با پشتیبانی جمعیت هلال‌احمر» اختصاص داده و نوشته است که این مدرسه مجازی و رایگان برای هزاران دانش‌آموز ایرانی خواهد بود و پایه‌های دوم دبستان تا دوازدهم را دربرمی‌گیرد.
+
+گزارش می‌گوید مدرسه مجازی هلال که همزمان با روزهای بحرانی در جنگ اخیر با هدف جلوگیری از افت تحصیلی دانش‌آموزان راه‌اندازی شد، در حال حاضر وارد مرحله تازه‌ای از فعالیت خود شده است و یازده هزار دانش آموز دارد.
+
+مدارس ایران از زمان جنگ ۱۲ روزه و سپس جنگ اخیر به صورت غیرحضوری شده است.
+
+سایر روزناهای امروز تهران هم متاثر از فضای متشنج بین ایران و آمریکاست. روزنامه دنیای اقتصاد در گزارش اصلی خود نوشت که شاخص تولید صنعتی در اسفند سال گذشته و فروردین امسال «به کف تاریخی خود رسیده است.» اظهارات مسعود پزشکیان، رئیس جمهور ایران هم که دیروز گفته بود «باید از وضعیت نه جنگ نه صلح خارج شویم» به طور وسیع در روزنامه‌های امروز پوشش داده شده است.
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## BBCPersian — post 283420
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283420_1781180070.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داده‌های رهگیری کشتی‌ها نشان می‌دهد که سه نفتکش حامل گاز طبیعی مایع (ال‌ان‌جی) که مدتی با سامانه‌های موقعیت‌یاب خاموش حرکت می‌کردند، از تنگه هرمز عبور کرده و راهی مقاصدی در آسیا شده‌اند.
+
+به گزارش رویترز این تحول در حالی است که آمریکا و ایران برای دومین روز متوالی حملات هوایی علیه یکدیگر انجام داده‌اند و نگرانی‌ها درباره امنیت کشتیرانی در منطقه افزایش یافته است.
+
+دو کشتی «لبریثه» و «رشیده» تحت مدیریت قطر انرژی و نفتکش «مری‌گلد» تحت مدیریت شرکت ملی نفت ابوظبی، پس از عبور از تنگه هرمز در مسیر پاکستان، هند و جنوب شرق آسیا قرار گرفته‌اند.
+
+بر اساس این داده‌ها، از زمان آغاز جنگ در اواخر فوریه تاکنون دست‌کم ۱۲ محموله گاز طبیعی مایع از تنگه هرمز عبور کرده‌اند.
+
+📸 Reuters
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## BBCPersian — post 283419
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻چین خواستار توقف عملیات نظامی و ادامه گفت‌و‌گو شد
+
+چین در واکنش به حملات جدید ایالات متحده به ایران، «قویا» خواستار توقف فوری عملیات نظامی در خاورمیانه شد.
+
+لین جیان، سخنگوی وزارت امور خارجه چین، در یک نشست خبری در پاسخ به سوالی درباره وضعیت خاورمیانه گفت: «چین به‌شدت از طرف‌های درگیر می‌خواهد فوری عملیات نظامی را متوقف کنند، به گفت‌وگو و مذاکره بازگردند، به تلاش‌های میانجی‌گرانه کشورهای مرتبط پاسخ دهند و هرچه سریع‌تر به یک آتش‌بس جامع و پایدار دست یابند.»
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## BBCPersian — post 283418
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283418_1781180071.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزارت امور خارجه ایران حملات شب گذشته آمریکا به آن کشور را به شدت محکوم کرده و آن را «نقض آشکار منشور سازمان ملل و قواعد بنیادین حقوق بین‌الملل» خوانده است. این وزارتخانه تأکید کرده است که «مسئولیت پیامدهای این اقدامات بر عهده ایالات متحده خواهد بود.»
+
+در این بیانیه همچنین گفته شده است که این حملات عملاً آتش‌بس مورخ ۱۹ فروردین ۱۴۰۵ را عملا«بی معنا» کرده و برخی کشورهای منطقه هم با در اختیار گذاشتن خاک و امکانات خود، در «همدستی با اقدامات تجاوزکارانه» نقش داشته‌اند.
+
+در این بیانیه تهران با اشاره به حق «دفاع مشروع» اعلام کرده است که برای مقابله با این حملات اقدام خواهد کرد و از سازمان ملل متحد خواسته است در برابر این وضعیت واکنش جدی نشان دهد، در غیر این صورت سکوت جامعه جهانی «جهان را بیش از پیش به سمت هرج و مرج و ناامنی خواهد برد.»
+
+📸 Getty
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## BBCPersian — post 283417
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سه نفر در تهران بر اثر حملات آمریکا مجروح شدند
+
+مقام های محلی در تهران از جراحت سه نفر در این استان بر اثر حملات امروز آمریکا خبر دادند.
+
+خبرگزاری ایسنا به نقل از رئیس اورژانس استان تهران این خبر را اعلام کرده است.
+
+در حملات بامداد امروز آمریکا علاوه بر مناطقی در سواحل خلیج فارس، صدای انفجار ناشی از حملات هوایی احتمالی در اطراف تهران کرج، آبیک قزوین، ورامین و ملارد و اشتهارد گزارش شده است.
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## BBCPersian — post 283416
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پاکستان خواستار پایان جنگ آمریکا و ایران از مسیر مذاکره شد
+
+وزارت امور خارجه پاکستان اعلام کرد که با وجود افزایش تنش‌ها، رهبران این کشور به تلاش‌های میانجی‌گرانه برای پایان دادن به جنگ میان ایالات متحده و ایران ادامه خواهند داد و خواستار دستیابی به یک توافق از طریق مذاکره شدند.
+
+طاهر اندرابی، سخنگوی وزارت خارجه پاکستان، به خبرنگاران گفت: «پاکستان به‌شدت نگران وضعیت منطقه در پی تشدید اخیر تنش‌هاست… ما معتقدیم که دیپلماسی و گفت‌وگو باید اصول راهنما برای دستیابی به یک توافق درباره همه مسائل مورد اختلاف باشد.»
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## BBCPersian — post 283415
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283415_1781180072.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سازمان ملل روز پنج‌شنبه اعلام کرد که شمار افرادی که به اجبار آواره شده‌اند، برای نخستین بار در یک دهه گذشته در سال گذشته میلادی (۲۰۲۵) کاهش یافته است، زیرا افراد بیشتری با وجود شرایط اغلب ناامن و بی‌ثبات، تصمیم به بازگشت به خانه‌های خود گرفته‌اند.
+
+بر اساس گزارش آژانس پناهندگان سازمان ملل، در پایان سال ۲۰۲۵میلادی تعداد «۱۱۷ میلیون و ۸۰۰ هزار نفر» در سراسر جهان به اجبار از محل زندگی خود آواره شدند که نسبت به یک سال قبل (یعنی ۲۰۲۴)، «۵ میلیون و ۴۰۰ هزار نفر» کاهش داشته است.
+
+این نهاد تأکید کرد که تعداد افرادی که به دلیل جنگ، خشونت و آزار و اذیت مجبور به فرار شده‌اند همچنان «به شکلی غیرقابل قبول بالا» است و خواستار اقداماتی برای کاهش چشمگیر آوارگی‌های طولانی‌مدت در دهه آینده شد.
+
+آژانس پناهندگان سازمان ملل در گزارش سالانه خود گفته است که کاهش تعداد آوارگان به این دلیل بوده که تعداد زیادی از پناهندگان و آوارگانی که در داخل کشورهایشان مجبور به جابجایی شده بودند به خانه‌هایشان بازگشته‌اند.
+
+📸 Getty
+
+https://bbc.in/4v5B0d7
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391695
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391695_1781180073.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همیشه معلم جغرافیامون میگفت خط استوا رو پیدا کنید 😂 بعد از سال ها بالاخره پیداش کردم:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏جامعه پاداشش رو به برون‌گراها میده
+به کسایی که بلندتر حرف میزنن، سریع‌تر ارتباط میگیرن و همیشه وسط صحنه هستن.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391693
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391693_1781180074.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+​​چشم نیست که لیزره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391692
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391692_1781180076.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 به تازگی یه ویدیو جنجالی شده که توی مرز ارمنستان، یه کامیون بار جمهوری اسلامی رو گرفتن که ۱۳۵ کیلو از موی طبیعی خانمای ایرانی رو، قاچاق می‌کرده!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391691
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391691_1781180077.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرامپت 4K کردن تصویر بی‌کیفیت
+تست شده با Gemini
+
+
+Remaster the provided image into a flawless, 8K ultra-photorealistic masterpiece. STRICT REQUIREMENT: Maintain absolute 100% fidelity to the original. The subject’s identity, exact facial features, micro-expressions, pose, wardrobe, and the entire background composition must remain perfectly intact with zero hallucinations or added elements. Deeply enhance micro-textures: restore authentic skin pores, individual hair strands, iris depth, and intricate fabric details. Apply high-end HDR cinematic studio lighting that perfectly respects the original light source to boost dimensional depth and contrast. The final output must look like a premium DSLR raw photograph—pristine clarity, perfect texture accuracy, and absolutely zero stylistic deviation.
+
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391690
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391690_1781180078.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برای سرعت بخشیدن به کار و سهولت بچه‌شیعه در جهاد کاح
+صیغه خونه زینب سلیمانی تقدیم میکند:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391689
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391689_1781180080.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انلاین شاپای ایرانی خیلی خوبن
+اگه زیرش فارسی ننوشته بود پیرهن ساحلی محال بود باور کنم ایشون وطنیه😃
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391688
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391688_1781180083.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های حکومتی این ویدئو رو پخش کردن و نوشتن تصاویری از انسداد کامل تنگه‌ی هرمز،
+
+روزی ده بار تنگه‌ای که گفتن بسته‌ست رو دوباره می‌بندن کسمغرای خدعه‌زاده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391687
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔤
+🔤
+🔤
+🔤
+🔤
+🔤
+🔤 
+🇲🇽
+⚽️#میدونستی با انتخاب برد #مکزیک مقابل #آفریقای_جنوبی در بازی افتتاحیه جام جهانی با هفت #میلیون به راحتی ده #میلیون تومن برنده میشی؟! 
+⚽️
+⚽️ برای پیش بینی این مسابقه به یک سایت مطمعن نیاز داری که سریع ترین پرداخت ها و بهترین طرح های تشویقی رو داشته…
+</div>
+
+## Dirty_Kids — post 391686
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391686_1781180084.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔤
+🔤
+🔤
+🔤
+🔤
+🔤
+🔤
+
+
+🇲🇽
+⚽️#میدونستی با انتخاب برد #مکزیک مقابل #آفریقای_جنوبی در بازی افتتاحیه جام جهانی با هفت #میلیون به راحتی ده #میلیون تومن برنده میشی؟! 
+⚽️
+⚽️
+
+برای پیش بینی این مسابقه به یک سایت مطمعن نیاز داری که سریع ترین پرداخت ها و بهترین طرح های تشویقی رو داشته باشه
+💖
+💖
+
+کجا بهتر از وبسایت بین المللی بت فیدو که بدون احراز هویت و مشکلات پرداخت از ایران، به کاربران ایرانی سرویس میده
+🥇
+
+
+همین حالا پیش بینیتو ثبت کن 
+👇
+https://fido874vt.click 
+💖
+https://fido874vt.click 
+💖
+(ورود با وی-پی-ان غیر اروپایی)
+
+
+📱 کانال تلگرام 
+🥅
+👇
+R21
+https://t.me/+dySI_QFj0T0xZGVk
+</div>
+
+## Dirty_Kids — post 391685
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موزیک ویدئو جام جهانی Dai Dai با خوانندگی شکیرا و همراهی بورنا بوی، خواننده‌ی نیجریه‌ای. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391684
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/391684" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱 موزیک جام جهانی Dai Dai با خوانندگی شکیرا و همراهی بورنا بوی، خواننده‌ی نیجریه‌ای.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391683
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موزیک ویدئو جام جهانی Dai Dai با خوانندگی شکیرا و همراهی بورنا بوی، خواننده‌ی نیجریه‌ای.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391682
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391682_1781180086.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به حرف های بانو با دقت گوش کنید مخصوصا ایرانیهای خارج از کشور
+
+من خودم انقد گوش دادم الان چشمام سه نمره قوی‌تر شده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391681
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391681_1781180087.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیرمرد ارومیه‌ای گوش ترامپ و نتانیاهو را برید!
+
+جز کثافت، شرارت، رذالت، خشونت و توحش چیزی در این چهره ها می بینین به منم بگین!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391680
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391680_1781180089.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای 😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391679
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391679_1781180091.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنده الان تو خبر ها خوندم علیرضا بیرانوند گفته به پیکر سوخته رهبر شهیدمان قسم خوردم دروازه تیم ملی را همچون تنگه هرمز بسته نگه دارم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391678
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391678_1781180093.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میثم مطیعی رسما گفت موشعلی کصگیج بود
+
+یکیم میگفت: این اواخر سعید طوسی میکردتش پا میشد عباشو نمیپوشید سعید میگفت چرا نمیپوشی میگفت هنوز که نکردی!
+
+اسم اون چیزیکه ناو غرق میکردم یادش رفته بود
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113536
+
+<div align="center">
+  <img src="telegram/content/Hranews_113536_1781180095.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصطفی اتحادی از زندان تربت حیدریه آزاد شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– امروز، مصطفی اتحادی، شهروند اهل سبزوار با تودیع وثیقه از زندان تربت حیدریه آزاد شد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، مصطفی اتحادی آزاد شد.
+
+بر اساس اطلاعات دریافتی هرانا، آزادی آقای اتحادی امروز پنجشنبه ۲۱ خردادماه، با تودیع وثیقه از زندان تربت حیدریه صورت گرفته است.
+
+#مصطفی_اتحادی
+
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113535
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بالابر ناایمن منجر به مرگ یک کودک ۸ ساله شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– یک #کودک حدوداً هشت ساله در مشهد به دلیل گیرکردن سرش در بالابر یک مغازه، جان خود را از دست داد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113534
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بوکان؛ منصور قادرزاده توسط نیروهای امنیتی بازداشت شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– روز گذشته، منصور قادرزاده، شهروند ساکن بوکان، توسط نیروهای امنیتی در این شهرستان بازداشت و به مکان‌ نامعلومی منتقل شد.
+
+#منصور_قادرزاده
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113533
+
+<div align="center">
+  <img src="telegram/content/Hranews_113533_1781180096.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعتراضات ۱۴۰۴؛ پوریا امینی به ۸ سال حبس محکوم شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– پوریا امینی، یکی از بازداشت شدگان اعتراضات سراسری ۱۴۰۴، توسط دادگاه انقلاب شهرستان گناباد، به هشت سال حبس محکوم شد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، پوریا امینی، یکی از بازداشت شدگان اعتراضات سراسری ۱۴۰۴، به حبس محکوم شد.
+
+بر اساس حکمی که توسط دادگاه انقلاب شهرستان گناباد صادر و به این شهروند ابلاغ شده است، آقای امینی از بابت اتهام اجتماع و تبانی به پنج سال حبس، از بابت اتهام توهین به رهبری به دو سال حبس و از بابت اتهام تبلیغ علیه نظام به یک سال حبس محکوم شده است.
+
+#پوریا_امینی
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113532
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایمان شهوندی، فعال صنفی معلمان به یک سال حبس محکوم شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– ایمان شهوندی، آموزگار و فعال صنفی معلمان ساکن پاسارگاد، توسط شعبه یک دادگاه انقلاب شیراز به یک سال حبس تعزیری محکوم شد. این حکم به صورت غیابی صادر شده و وی نسبت به آن درخواست واخواهی ثبت کرده است.
+
+#ایمان_شهوندی
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113531
+
+<div align="center">
+  <img src="telegram/content/Hranews_113531_1781180097.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه درگیری‌های نظامی میان ایران و آمریکا، بامداد امروز رسانه‌های داخلی از هدف قرار گرفتن شماری از مناطق در جنوب کشور از جمله نقاطی در بندرعباس، قشم، میناب، سیریک، دشتی، جزیره هنگام و شهر مُهر در استان فارس خبر دادند. بر اساس این گزارش‌ها، در جریان حملات به بندر کرگان در شهرستان میناب، دو تن بر اثر برخورد ترکش مصدوم شدند.
+
+همزمان، گزارش‌هایی از وقوع حملات در نقاطی از غرب تهران، رباط کریم، ملارد، اشتهارد، ورامین، قرچک، پیشوا، آبیک و کرج نیز توسط رسانه‌های داخلی کشور منتشر شده است. خبرگزاری ایرنا از شنیده شدن انفجارهایی در کیش و فعالیت پدافند در شرق اصفهان نیز خبر داده است.
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## manototv — post 106009
+
+<div align="center">
+  <a href="telegram/content/manototv_106009_1781180098.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شب گذشته آمریکا اهدافی را عمدتا در نزدیکی تنگه هرمز هدف قرار داد. این حملات در میانه مذاکرات با جمهوری اسلامی انجام شد و به نظر می‌رسد هدف آن افزایش فشار بر تهران باشد. حالا پرسش اصلی این است که بحران تنگه هرمز به کجا خواهد انجامید؟
+</div>
+
+## alonews — post 127133
+
+<div align="center">
+  <a href="telegram/content/alonews_127133_1781180099.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه:
+پاکستان و قطر در ساعات گذشته تلاش‌های خود را برای پیشبرد یک توافق افزایش داده‌اند و این منبع گزارش‌های مربوط به عقب‌نشینی‌ها در مذاکرات را نادرست دانسته است.
+
+
+🔴منابع ارشد همچنین تأیید کردند که ایران پاسخ خود را به پیامی که وزیر کشور پاکستان، محسن نقوی، تحویل داده بود، ارائه کرده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127132
+
+<div align="center">
+  <a href="telegram/content/alonews_127132_1781180099.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کویت: رفتار ایران نشان داده سازمان یافته حمله می‌کند و ما مجبوریم پاسخ ایران را بدهیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127131
+
+<div align="center">
+  <a href="telegram/content/alonews_127131_1781180100.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون رئیس‌جمهور جی‌دی ونس درباره نتانیاهو: نتانیاهو کشوری را اداره می‌کند که آشکارا شریک بسیار نزدیکی برای ایالات متحده بوده است.
+
+
+🔴اما حتی زمانی که شریک نزدیک بوده‌ایم، گاهی منافع ما کاملاً همسو بوده و گاهی منافع ما ناسازگار بوده است.
+
+
+🔴نتانیاهو به شدت منافع کشورش را مطرح می‌کند. گاهی این به معنای هم‌راستایی ماست و گاهی به معنای عدم هم‌راستایی است.
+
+
+🔴آنها در بسیاری از جنبه‌ها شریک خوبی بوده‌اند، اما ما همچنین باید بر آنچه به نفع آمریکا است تمرکز کنیم. و جایی که این منافع متفاوت است، متأسفانه برای اسرائیلی‌ها، ما باید طرف مردم آمریکا را انتخاب کنیم، که همیشه این کار را انجام می‌دهیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127130
+
+<div align="center">
+  <a href="telegram/content/alonews_127130_1781180100.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک منبع دیپلماتیک عالی‌رتبه به الحدث:
+ایران پاسخ خود را دربارهٔ پیامی که وزیر کشور پاکستان تحویل داده بود، ارائه کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127129
+
+<div align="center">
+  <a href="telegram/content/alonews_127129_1781180100.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سنتکام:
+نیروهای آمریکایی یک نفتکش را در خلیج عمان در ساعت ۱۱:۲۰ شب به وقت شرقی در ۱۰ ژوئن غیرفعال کردند، پس از آنکه این کشتی با تلاش برای حمل نفت ایران، تحریم علیه ایران را نقض کرد و این سومین کشتی تجاری است که این هفته توسط نیروهای آمریکایی غیرفعال شده است.
+
+
+🔴فرماندهی مرکزی ایالات متحده (centcom) علیه نفتکش m/t jalveer که پرچم گینه بیسائو را داشت و تلاش می‌کرد نفت را از ایران از طریق خلیج عمان حمل کند، اقدام کرد.
+
+
+🔴یک هواپیمای آمریکایی دو موشک هلفایر به اتاق موتور کشتی شلیک کرد پس از آنکه خدمه بارها از اطاعت دستورات نیروهای آمریکایی خودداری کردند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127128
+
+<div align="center">
+  <a href="telegram/content/alonews_127128_1781180103.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚫
+🏆 به دنیای هیجان‌انگیز فوتبال خوش اومدی!
+
+
+⭐️اینجا قراره باهم لحظه‌به‌لحظه‌ی جام جهانی رو زندگی کنیم؛
+از بازی‌های حساس و نتایج داغ گرفته تا حاشیه‌ها، کری‌خونی‌ها و اتفاقاتی که همه درباره‌ش حرف میزنن! 
+🔥
+🔥
+
+
+✅ پوشش کامل مسابقات
+
+💀ترول تیم‌ها و بازیکن‌ها
+
+🎥ویدیوها و لحظه‌های فان فوتبالی
+
+📊آمار، ترکیب‌ها و اخبار فوری
+
+🌍حواشی جذاب از سراسر جام جهانی
+
+
+📢اینجا فقط یک کانال خبری نیست؛
+یک جمع فوتبالیه برای کسایی که فوتبال رو با هیجان، شوخی و احساس واقعی دنبال میکنن 
+📛
+💟
+
+
+🆘
+🔞 آماده باش چون قراره جام جهانی رو متفاوت تجربه کنیم!
+
+
+⚡ @Vaarzesh_Plus
+
+⚡ @Vaarzesh_Plus
+</div>
+
+## alonews — post 127127
+
+<div align="center">
+  <a href="telegram/content/alonews_127127_1781180104.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور لبنان: با وجود فشارها از مذاکرات عقب‌نشینی نخواهیم کرد و تا رسیدن به آنچه به نفع ملت ماست، به این مسیر ادامه خواهیم داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127126
+
+<div align="center">
+  <a href="telegram/content/alonews_127126_1781180104.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آخرین قیمت نفت ۹۲.۰۳ دلار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127125
+
+<div align="center">
+  <a href="telegram/content/alonews_127125_1781180104.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار صداوسیما: لحظاتی پیش صدای انفجار در محدوده سیریک و از سمت دریا شنیده شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127124
+
+<div align="center">
+  <a href="telegram/content/alonews_127124_1781180105.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر دفاع بریتانیا، جان هیلی، استعفا داد و اعلام کرد که نخست‌وزیر کیر استارمر و وزارت خزانه‌داری منابع لازم برای دفاع را در برابر تهدیدهای فزاینده تأمین نکرده‌اند.
+
+
+🔴او در نامه استعفای خود گفته است که «طرح سرمایه‌گذاری دفاعی» پیشنهادی «به‌طور قابل توجهی ناکافی است» و هشدار داده که این موضوع می‌تواند آمادگی نیروهای مسلح بریتانیا را کاهش داده و این کشور را «کمتر امن» کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127123
+
+<div align="center">
+  <a href="telegram/content/alonews_127123_1781180105.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار الجزیره: یک پهپاد اسرائیلی یک موتورسیکلت را در شهر حبوش در منطقه نبطیه در جنوب لبنان هدف قرار داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127122
+
+<div align="center">
+  <a href="telegram/content/alonews_127122_1781180106.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گفت‌وگوی وزیر خارجه ایران و مسئول سیاست خارجی اتحادیه اروپا درباره حملات اخیر آمریکا
+
+
+🔴عراقچی: این اقدامات آتش‌بس را بی‌اثر کرده
+
+
+🔴 مسئولیت پیامد‌های خطرناک آن نیز بر عهده واشنگتن است
+
+
+🔴 انفعال جهانی، موجب افزایش ناامنی جهانی خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127121
+
+<div align="center">
+  <a href="telegram/content/alonews_127121_1781180106.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست‌وزیر ایتالیا: اروپا باید در صورت تمایل ایران به مذاکره، تحریم‌ها را کاهش دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127120
+
+<div align="center">
+  <a href="telegram/content/alonews_127120_1781180106.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو : ما تو همه جبهه‌ها پیشرفت قابل‌توجهی می‌بینیم
+
+
+🔴 هر هفته صدها نفر از نیروهای مسلح دشمن رو از بین می‌بریم
+
+
+🔴همچنان چالش‌های دیگه‌ای هم پیش رو داریم
+
+
+🔴یه چالش ویژه هم موضوع ربوده‌شده‌ها (گروگان‌ها)هست که روی اون کار می‌کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127119
+
+<div align="center">
+  <a href="telegram/content/alonews_127119_1781180109.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ویدئویی از حملات امروز اسرائیل به لبنان.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127118
+
+<div align="center">
+  <a href="telegram/content/alonews_127118_1781180112.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فیلد ، مارشال محسن رضایی: رئیس‌جمهور بی‌ثبات آمریکا تصور می‌کند که بمب‌ها می‌توانند او را از باتلاقی که خودش ایجاد کرده نجات دهند. اما موشک‌های ایرانی او را حتی عمیق‌تر در آن فرو خواهند برد.
+
+
+🔴واشنگتن باید بین پذیرش شروط ایران و از دست دادن آخرین ذره اعتبار خود در جهان یکی را انتخاب کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127117
+
+<div align="center">
+  <a href="telegram/content/alonews_127117_1781180112.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدراعظم آلمان فریدریش مرز:
+ایران باید برنامه هسته‌ای خود را به طور قابل راستی‌آزمایی و دائمی متوقف کند.
+
+
+🔴امنیت اسرائیل و کل منطقه باید تضمین شود؛ در غیر این صورت، صلحی در منطقه نخواهد بود.
+
+
+🔴امروز، ما در حال کمک به شکل‌دهی نظم نوین جهانی هستیم که در آن اروپا جایگاه قدرتمندی پیدا می‌کند، تا اروپا بتواند به عنوان نیرویی برای آزادی و شکوفایی، برای صلح و دموکراسی در جهان باقی بماند.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127116
+
+<div align="center">
+  <a href="telegram/content/alonews_127116_1781180112.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه کویت: حملات مکرر ایران نشان دهنده رویکردی سیستماتیک و تهاجمی است که کویت نه آن را می‌پذیرد و نه تحمل می‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127115
+
+<div align="center">
+  <a href="telegram/content/alonews_127115_1781180113.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم: ادعای رسیدن به متن نهایی برای تفاهم بین ایران و آمریکا خبرسازی است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127114
+
+<div align="center">
+  <a href="telegram/content/alonews_127114_1781180113.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس سازمان اورژانس کشور: ۵ نفر در حملات بامداد امروز مصدوم شدند که ۳ نفر در تهران و ۲ نفر در هرمزگان بودند.
+
+
+🔴همه مصدومان پس از درمان مرخص شدند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/21 10:56
 ---
 
