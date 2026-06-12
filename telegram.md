@@ -7,6 +7,2558 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 02:29
+---
+
+## VahidOOnLine — post 245222
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245222_1781305162.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانون نویسندگان ایران خبر داد که یوسف انصاری، نویسنده و عضو هیات دبیران این کانون، با حکم شعبه‌ ۲۱ دادگاه انقلاب اسلامی تهران به یک سال حبس (۴ ماه حبس تعزیری و ۸ ماه حبس تعلیقی) محکوم شده است.
+
+این نهاد مدافع آزاد بیان اشاره کرد که این که حکم به اتهام «تبلیغ علیه نظام» صادر شده، ۱۲ خرداد به او ابلاغ شده است.
+
+بر اساس این گزارش، انصاری ۱۸ دی‌ماه سال گذشته در مراسم سالگرد جان باختن بکتاش آبتین، شاعر، بازداشت شد. بازداشت این نویسنده با ضرب‌و‌جرح صورت گرفت و مأموران امنیتی ۱۹ دی‌ماه او را به زندان تهران بزرگ منتقل کردند. انصاری پنجم اسفند‌ در یک جلسه‌‌ چند دقیقه‌ای محاکمه شد.
+
+انصاری پس از دو ماه به قید وثیقه‌ ۷۰۰ میلیون تومانی آزاد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245221
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245221_1781305163.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امارات متحده عربی در بیانیه‌ای قاطعانه گزارش‌های منتشرشده در برخی رسانه‌های بین‌المللی درباره انتقال یا واریز هرگونه مبلغ مالی از این کشور به جمهوری اسلامی، از جمله ادعای مربوط به انتقال مبلغ سه میلیارد دلار، را رد کرد.
+
+وزارت خارجه امارات متحده عربی تاکید کرد این ادعاها نادرست است و بر هیچ واقعیت یا اطلاعات موثقی استوار نیست.
+
+این وزارتخانه گفت که هیچ‌گونه دارایی مسدودشده ایران از طریق امارات متحده عربی آزاد، منتقل یا جابه‌جا نشده است.
+
+وزارت خارجه امارات متحده عربی همچنین از رسانه‌ها خواست در انتشار اخبار دقت کنند، اطلاعات را از منابع رسمی دریافت کنند و از انتشار یا بازنشر اطلاعات تاییدنشده یا ادعاهای فاقد اعتبار خودداری کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245220
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری فرانسه، روز جمعه، از کشف یک جسد در صندوق‌عقب خودرویی در مجاورت محل تمرینات تیم ملی فوتبال ایران در جریان مسابقات جام جهانی ۲۰۲۶ خبر داد. بر اساس این گزارش، بازرسان و کارشناسان پزشکی قانونی مکزیک در حال بررسی جسدی هستند که در یک خودروی متوقف‌شده در پارکینگ بیرونی استادیوم «کالینته» در شهر تیخوانا پیدا شده است؛ استادیومی که به عنوان اردوی تمرینی تیم ملی فوتبال ایران در این دوره از رقابت‌ها استفاده می‌شود. این حادثه تکان‌دهنده تنها یک روز پس از افتتاحیه و آغاز رسمی مسابقات جام جهانی ۲۰۲۶ رخ داده و پلیس محلی هنوز جزئیات بیشتری درباره هویت مقتول یا انگیزه احتمالی این جنایت منتشر نکرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245219
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245219_1781305163.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت امور خارجه امارات متحده عربی، روز جمعه با انتشار بیانیه‌ای رسمی، گزارش‌های برخی از رسانه‌های بین‌المللی مبنی بر انتقال یا تسهیل انتقال مبالغ مالی از این کشور به ایران را به طور قاطع تکذیب کرد.
+ابوظبی در این بیانیه صریح تاکید کرد که ادعاهای مطرح‌شده در خصوص انتقال مبالغی از جمله گمانه‌زنی‌ها درباره رقم ۳ میلیارد دلار، «کاملا کذب، بی‌اساس و فاقد هرگونه مستندات واقعی» است. وزارت امور خارجه امارات با صراحت اعلام کرد که هیچ‌گونه دارایی مسدودشده متعلق به ایران از طریق خاک یا سیستم مالی امارات آزاد، منتقل یا تسهیل نشده است. مقامات اماراتی در پایان این بیانیه از تمامی رسانه‌ها و خبرگزاری‌ها خواستند تا در نقل اخبار دقت لازم را به خرج داده، تنها به منابع رسمی استناد کنند و از بازنشر یا گردش اطلاعات تاییدنشده و ادعاهای بی‌اساسی که فاقد اعتبار و مصداق هستند، خودداری نمایند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245218
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245218_1781305164.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، نزدیک به سپاه پاسداران، شامگاه جمعه ۲۲ خرداد از «شلیک هشدار به کشتی‌های متخلف» در تنگه هرمز خبر داد.
+
+این خبرگزاری حکومتی نوشت: «دقایقی پیش، مردم در قشم، جاسک و سیریک در استان هرمزگان شنیدن صدایی شبیه انفجار گزارش کردند» و افزود: «گزارشی از اصابت در این نقاط مخابره نشده است.»
+
+فارس به نقل از «منابع آگاه» نوشت: «صداهای شنیده شده مربوط به انجام شلیک هشدار به کشتی‌های متخلف در محدوده تنگه هرمز است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245217
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245217_1781305165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️العربیه، روز جمعه، ۲۲ خردادماه، به نقل از یک منبع آگاه گزارش داد که امضای توافق احتمالی میان تهران و واشنگتن در ژنو انجام نخواهد شد. براساس این گزارش، «امضای تفاهم‌نامه به صورت غیرحضوری صورت خواهد گرفت».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245216
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245216_1781305165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️روزنامه «اسرائیل هیوم» در تحلیلی که روز جمعه منتشر کرد، به بررسی پشت‌پرده مناقشات اخیر میان اسرائیل و ایران پرداخته و از یک «فرصت‌سوزی بزرگ» در جریان عملیات نظامی گزارش داد. بر اساس گزارش این رسانه، در جریان تنش‌های خردادماه که خطر نابودی آینده سیاسی بنیامین نتانیاهو را به همراه داشت، دونالد ترامپ با تماس‌ها و پیام‌های متوالی خواستار پاسخ ندادن اسرائیل به حملات موشکی ایران شده بود؛ اما نتانیاهو با نادیده گرفتن این فشارها، دستور پرواز جنگنده‌ها به سمت شرق را صادر کرد. با این حال، مقامات ارشد دفاعی اسرائیل فاش کرده‌اند که بزرگ‌ترین اشتباه راهبردی، تمرکز بر حملات تخریبی گسترده اما بی‌سرانجام به جای اجرای طرح مخفی «تصاحب و مصادره ذخایر اورانیوم غنی‌شده ایران» بود؛ عملیاتی که کاملا در دسترس بود اما به دلیل تردید در تایید آن، ملغی شد و جنگ صرفا با ترور چند متخصص هسته‌ای بدون دستاورد ساختاری و پایدار به پایان رسید تا شانس نابودی واقعی برنامه هسته‌ای تهران از بین برود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245215
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245215_1781305166.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️غلامحسین معماریان، معمار و پژوهشگر، با استناد به آخرین مطالعات علمی و تخصصی هشدار داد که اجرای «خط دو» متروی اصفهان در مسیر فعلی، بیش از ۷۰ بنای ارزشمند باستانی را تحت تاثیر قرار داده و می‌تواند مسجد جامع عتیق و ۴۰ بنای تاریخی دیگر این شهر را در معرض خطر تخریب کامل قرار دهد. معماریان در نشستی که بعدازظهر پنجشنبه ۲۱ خرداد در پایگاه جهانی کاخ‌موزه چهلستون برگزار شد، تصریح کرد ارتعاشات مداوم ناشی از عبور مترو از مجاورت بافت تاریخی اصفهان، به ترک‌خوردگی، آسیب‌های شدید سازه‌ای و نابودی تدریجی این آثار منجر خواهد شد. او با نام بردن از شاهکارهای معماری در معرض خطر همچون منار علی، هارونیه، مقبره باباقاسم، عمارت هشت‌بهشت، کاخ چهلستون و مسجد رحیم‌خان، خواستار توقف فوری این روند و بررسی مجدد نتایج مطالعات توسط مسئولان شد تا از وقوع یک «خسارت جبران‌ناپذیر» جلوگیری شود.
+این استاد دانشگاه با تاکید بر اینکه تخریب یا آسیب به آثار ثبت جهانی ابعادی فراتر از یک مسئله محلی دارد، یادآور شد که سرنوشت بخشی از مهم‌ترین میراث تاریخی کشور و جهان به تصمیم‌گیری‌های امروز وابسته است
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245214
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245214_1781305166.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر وابسته به سازمان تبلیغات اسلامی نوشت ساکنان بخش‌هایی از حوالی جزیره قشم و مناطق ساحلی شهرستان سیریک صدای انفجاری را شنیده‌اند.
+خبرگزاری صدا و سیمای جمهوری اسلامی نیز نوشت شنیده شدن این صدا احتمالا مربوط به مقابله نیروهای جمهوری اسلامی با شناورها در تنگه هرمز است.
+یک منبع آگاه در استانداری هرمزگان نیز اعلام کرد: صدای انفجار در حوالی بندر سیریک ناشی از شلیک هشدار به تنگه هرمز است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245213
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245213_1781305167.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فارس، خبرگزاری وابسته به سپاه، بامداد شنبه، پس از گزارش‌ها از شنیده شدن صدای انفجار در قشم، مناطقی از سیریک و جاسک به نقل از استانداری هرمزگان گزارش داد: «صداهای شنیده شده مربوط به انجام شلیک هشدار به کشتی‌های متخلف در محدوده تنگه هرمز است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245212
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245212_1781305168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی ایران، در برنامه «گفتگوی ویژه خبری» صداوسیما با تاکید بر تغییر قطعی در نحوه مدیریت تنگه هرمز اعلام کرد که «اولین بند توافق پیش‌رو، رفع کامل محاصره دریایی آمریکا» است. عراقچی با اشاره به اینکه محدوده تنگه هرمز در آب‌های سرزمینی ایران و عمان قرار دارد، گفت: «حاکمیت جمهوری اسلامی ایران همواره برقرار بوده و در آینده نیز حفظ خواهد شد، اما مدیریت عبور و مرور و ارائه خدمات دیگر مانند گذشته نخواهد بود؛ تا کنون این خدمات رایگان بوده، اما تصمیم قطعی جمهوری اسلامی بر این است که آینده اداره تنگه هرمز با گذشته متفاوت باشد و هزینه خدمات دیگر مجانی نخواهد بود.» او با اشاره به هماهنگی با مسقط و رایزنی با پکن به دلیل اینکه ۴۰ درصد تردد کشتی‌ها متعلق به چین است، افزود: «مشورت‌های نزدیکی با عمان انجام شده و به زودی برنامه و بیانیه‌های مشترکی اعلام خواهد شد.» عراقچی در پایان گفت: «حضور نیروهای مسلح ایران در تنگه هرمز همیشه حفظ خواهد شد و تضمین‌کننده امنیت منطقه است؛ شمشیر ما همیشه بالای سر تنگه هرمز قرار خواهد داشت، این مسلم است و با گذشته فرق خواهد کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245211
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245211_1781305168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر وابسته به سازمان تبلیغات اسلامی نوشت ساکنان بخش‌هایی از حوالی جزیره قشم و مناطق ساحلی شهرستان سیریک صدای انفجاری را شنیده‌اند.
+خبرگزاری صدا و سیمای جمهوری اسلامی نیز نوشت شنیده شدن این صدا احتمالا مربوط به مقابله نیروهای جمهوری اسلامی با شناورها در تنگه هرمز است.
+یک منبع آگاه در استانداری هرمزگان نیز اعلام کرد: صدای انفجار در حوالی بندر سیریک ناشی از شلیک هشدار به تنگه هرمز است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245210
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245210_1781305169.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر وابسته به سازمان تبلیغات اسلامی نوشت ساکنان بخش‌هایی از جزیره قشم و مناطق ساحلی شهرستان سیریک صدای انفجاری را شنیده‌اند؛ این رسانه به نقل از بررسی‌های اولیه نوشت انفجاری در سیریک رخ نداده و گمانه‌زنی‌هایی درباره ارتباط این صداها با تحولات دریایی و تنگه هرمز مطرح شده است.
+مهر افزود: تاکنون هیچ مقام رسمی ماهیت این صداها را تأیید یا تکذیب نکرده است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245209
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245209_1781305169.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری مهر، بامداد شنبه، ۲۳ خردادماه، از شنیده شدن صدای انفجار در بخش‌هایی از جزیره قشم و برخی نقاط ساحلی سیریک خبر داد. مهر نوشت:‌ «احتمالا صدای شنیده شده تلاشی برای کنترل تنگه هرمز و از سوی دریا بوده است».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245207
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245207_1781305170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام کاخ سفید به اسرائیل هیوم گفت: «بر اساس توافق، ایران باید ذخایر اورانیوم غنی‌شده خود را نابود کند، بخش‌هایی از برنامه هسته‌ای خود را برچیند و متعهد شود هرگز به دنبال تولید سلاح هسته‌ای نرود.»
+
+او افزود: «اهداف اصلی توافق شامل بازگشایی تنگه هرمز، رفع تهدید علیه کشتیرانی، نابودی ذخایر اورانیوم غنی‌شده ایران، برچیدن بخش‌های کلیدی برنامه هسته‌ای و ایجاد سازوکار نظارت و راستی‌آزمایی است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245206
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245206_1781305170.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، روز جمعه ۲۲ خردادماه در گفتگو با صداوسیما اعلام کرد روند مذاکرات میان ایران و آمریکا در قالب دو مرحله طراحی شده است.
+او توضیح داد در مرحله نخست، یک «یادداشت تفاهم» میان دو طرف به امضا خواهد رسید و سپس مذاکرات برای رسیدن به توافق نهایی وارد فاز دوم می‌شود.
+به گفته عراقچی، موضوعات اصلی از جمله پرونده هسته‌ای ایران به مرحله دوم مذاکرات موکول شده و قرار است در چارچوب توافق نهایی مورد بررسی و تصمیم‌گیری قرار گیرد.
+او تأکید کرد این روند می‌تواند در نهایت به پایان درگیری‌ها و رسیدن به یک توافق جامع منجر شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245205
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245205_1781305173.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، در یک گفتگوی زنده تلویزیونی با صداوسیما، با اشاره به گزارش‌های اخیر پیرامون مذاکرات تهران و واشنگتن گفت: «در رسانه‌ها در مورد این یادداشت تفاهم صحبت می‌شود، اما من ترجیح می‌دهم جزئیات آن تا زمان نهایی شدن اعلام نشود؛ چرا که ممکن است تا لحظه آخر تغییراتی در متن صورت گیرد. اما پس از نهایی شدن، قول می‌دهم که جزئیات را به طور کامل برای مردم تشریح کنم.»
+
+عراقچی با تبیین ساختار گفتگوها افزود که در این مذاکرات، که منجر به خاتمه جنگ شد، دو مرحله پیش‌بینی شده است. در مرحله نخست، یادداشت تفاهم اولیه میان ایران و آمریکا به امضا می‌رسد و سپس در مرحله دوم، مذاکرات اصلی برای رسیدن به توافق جامع و نهایی آغاز خواهد شد.
+
+وزیر امور خارجه در پایان تاکید کرد که بررسی ابعاد فنی و موضوع هسته‌ای به طور کامل به مرحله دوم و توافق نهایی موکول شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245204
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245204_1781305174.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌‌اینترنشنال نشان می‌‌دهد مراسم تولد جاویدنام آرمان پوردلجو بر سر مزارش در بهشت سکینه کرج برگزار شده است.
+﻿آرمان پوردلجو، ۲۲ ساله، ۱۸ دی ماه ۱۴۰۴، در کرج با اصابت گلوله جنگی ماموران جمهوری اسلامی کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245203
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245203_1781305175.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، درباره تفاهم احتمالی با آمریکا به صداوسیما گفت: «احتمالا در چند روز آینده تفاهم‌نامه میان ما و آمریکا امضا خواهد شد.»
+
+او افزود: «امضای یادداشت تفاهم بعد از گذشتن از آخرین مراحل مذاکرات به صورت دیجیتالی و از راه دور انجام می‌شود که اعلام خواهد شد و ممکن است در چند روز آینده اتفاق بیفتد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245202
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245202_1781305176.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شاهد عینی درباره اعتراضات دی‌ماه نورآباد ممسنی و کشتار معترضان در این شهر، به ایران‌اینترنشنال گفت برادرش هدف تیراندازی قرار گرفت و بدنش پر از ساچمه شد. اما از ترس اینکه به او «تیر خلاص» بزنند، هرگز برای درمان به بیمارستان نرفت و هنوز تعدادی از ساچمه‌ها در بدنش باقی مانده‌اند.
+
+این شهروند، گفت دادگستری ممسنی در جریان اعتراضات به دست نیروهای حکومتی و از داخل ساختمان آتش گرفت.
+
+به گفته او، برادرش آن‌شب داخل ساختمان رفت و دید همه اتاق‌ها خالی هستند و فقط پرده‌ها سوخته‌اند.
+
+این شاهد عینی یادآوری کرد علاوه بر برادرش، ده‌ها تن دیگر نیز هدف گلوله‌های ساچمه‌ای یا جنگی قرار گرفتند.
+
+او افزود: «دو نفر از بستگان ما را در بیمارستان با تیر خلاص کشتند. بعد از کشته شدن هم آن‌ها را بسیجی معرفی کردند، چون خانواده‌هایشان توان پرداخت هزینه گلوله را نداشتند.»
+
+با این‌حال به گفته این شهروند، مردم در مراسم چهلم این دو معترض کشته‌شده، فریاد «جاویدنام» سر دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14689
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14689_1781305176.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیشروی ارتش اسرائیل در جنوب لبنان؛ ۶.۷ کیلومتر تا نبطیه
+ارتش اسرائیل به شهر ارنون رسیده و هم اکنون در حال حملات توپخانه ای سنگین به تپه علی الطاهر هستند. l بالگرد های آپاچی ۶۴ اسرائیلی نیز به تپه علی الطاهر حمله کردند. با تصرف این تپه مهم رسما تصرف شهر نبطیه برای اسرائیلی ها آسان خواهد شد.
+@withyashar
+</div>
+
+## WithYashar — post 14688
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Bombardier E-11A در منطقه توضیح در ویس @withyashar
+</div>
+
+## WithYashar — post 14686
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14686_1781305177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Bombardier E-11A در منطقه توضیح در ویس
+@withyashar
+</div>
+
+## WithYashar — post 14685
+
+
+
+
+## WithYashar — post 14684
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14684_1781305177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امارات ادعای رویترز بابت آزادسازی دارایی های ایرانو تکذیب کرد
+@withyashar
+</div>
+
+## WithYashar — post 14683
+
+<div align="center">
+  <a href="https://t.me/withyashar/14683" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌐 instagram.com/yashar
+
+🌐 t.me/withyashar
+</div>
+
+## WithYashar — post 14682
+
+
+
+
+## WithYashar — post 14681
+
+
+
+
+## WithYashar — post 14680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⁨ اتاق جنگ با یاشار : باز‌ تنگه دعوا شد ، گزارش عجیب از حضور هواپیماهای جاسوسی آمریکا همه با هم. !!!⁩
+
+https://www.instagram.com/reel/DZgA2cQxrjS/?igsh=cnM5b3ViejIxcm5t
+
+کلیک کنید و کارهای اداری پست را انجام دهید.
+</div>
+
+## WithYashar — post 14679
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاور @withyashar
+</div>
+
+## WithYashar — post 14678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۳پا : کشتی هایی سعی کردند بدون مجوز از تنگه هرمز عبور کنند و مورد هدف قرار گرفتند.🚨🚨
+@withyashar
+</div>
+
+## WithYashar — post 14677
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14677_1781305178.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاور
+@withyashar
+</div>
+
+## WithYashar — post 14676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو تنگه دعوا شد
+@withyashar
+</div>
+
+## WithYashar — post 14675
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر : شنیده شدن صدای انفجار در حوالی جزیره قشم و سیریک؛ گمانه‌زنی از درگیری دریایی
+
+بررسی‌های اولیه نشان می‌دهد، در پهنه شهرستان سیریک انفجاری رخ نداده است و احتمالا صدای شنیده شده تلاشی برای کنترل تنگه هرمز و از سوی دریا بوده است.
+@withyashar
+</div>
+
+## WithYashar — post 14674
+
+
+
+
+## WithYashar — post 14673
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار سیریک 🚨
+@withyashar
+</div>
+
+## WithYashar — post 14672
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی: در مذاکرات ۶۰ روزه چند حالت رخ می‌دهد
+
+۱. تمدید مهلت مذاکرات در صورت خوب‌پیش‌رفتن مذاکرات.
+
+۲. نرسیدن به توافق، به‌علت بی‌فایده‌بودن مذاکره‌.
+
+بستگی به شرایط آن موقع تصمیم می‌گیریم که اگر نتیجه نگیریم چه خواهد شد.
+
+تنها کاری که می‌توانیم برای اورانیوم غنی‌شده انجام دهیم "رقیق‌سازی در داخل" است!
+@withyashar
+</div>
+
+## WithYashar — post 14671
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی:به‌زودی ایران و عمان بیانیه مشترکی در مورد اداره تنگه هرمز منتشر خواهند کرد.
+@withyashar
+</div>
+
+## mwarmonitor — post 10801
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10801_1781305179.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بیانیه | امارات به‌طور قاطع ادعاهای رسانه‌ای درباره انتقال پول به ایران را تکذیب می‌کند
+امارات متحده عربی گزارش‌های منتشرشده در برخی رسانه‌های بین‌المللی مبنی بر انتقال یا حواله هرگونه مبالغ مالی از دولت امارات به جمهوری اسلامی ایران، از جمله ادعاهای مربوط به مبلغ ۳ میلیارد دلار را به‌طور قاطع تکذیب کرد.
+وزارت امور خارجه در بیانیه‌ای تأکید کرد که این ادعاها صحت ندارند و بر هیچ‌گونه واقعیت یا اطلاعات موثقی استوار نیستند. این وزارتخانه همچنین شديداً تأکید کرد که هیچ‌گونه آزادسازی، حواله یا انتقال اموال بلوکه‌شده ایران از طریق دولت امارات صورت نگرفته است.
+این وزارتخانه همچنین از رسانه‌ها خواست تا دقت لازم را به خرج داده، اطلاعات خود را از منابع رسمی دریافت کنند و از بازنشر یا تداول اطلاعات غیرموثق یا ادعاهای فاقد اعتبار خودداری نمایند.
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10800
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 یک منبع آگاه به شبکه العربیه گفته است که امضای تفاهم‌نامه (MoU) بین آمریکا و ایران در ژنو انجام نخواهد شد و به‌جای آن، به صورت غیرحضوری (از راه دور) انجام می‌شود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شنیده شدن صدای انفجار در قشم و سریک و گزارش‌هایی از درگیری‌ها در نزدیکی تنگه هرمز.
+</div>
+
+## mwarmonitor — post 10798
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شنیده شدن صدای انفجار در قشم و سریک و گزارش‌هایی از درگیری‌ها در نزدیکی تنگه هرمز.
+</div>
+
+## mwarmonitor — post 10797
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10797_1781305179.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 افزایش فعالیت نیروی هوایی آمریکا (USAF) بر فراز خلیج فارس و عربستان سعودی
+
+• ۵ فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا اکنون بر فراز خلیج فارس و عربستان سعودی در حال پرواز هستند
+
+• ۱ فروند هواپیمای هشدار زودهنگام و کنترل E-3B Sentry (آواکس) نیروی هوایی آمریکا در حال پرواز بر فراز شرق عربستان سعودی است
+
+• ۱ فروند هواپیمای شناسایی و شنود سیگنالی RC-135W Rivet Joint نیروی هوایی آمریکا در حال فعالیت بر فراز خلیج فارس است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10796
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10796_1781305180.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واکنش ترامپ بعد از دیدن مصاحبه عراقچی
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10795
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10795_1781305180.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝به‌به، تماشا کنید این سیرکِ تهوع‌آور و ماله کشیِ ماله‌به‌دستانِ اعظم را!
+
+🔸جوری با پررویی نجومی واژه «عوارض» را می‌شورند و جایش اسم شکلاتیِ «هزینه خدمات» را می‌گذارند که گویی گدایانِ سر گردنه، کت‌وشلوار پوشیده‌اند و در قبالِ خفت‌گیری، فاکتور رسمی صادر می‌کنند!
+
+🔸آخه کثافتِ ماله کش، خدمات چه کوفتیه؟ نکنه این پرستوهای عودتی که جدیداً با اردنگی از فرنگ برگشتن رو قراره بفرستید وسط دریا تا به ملوانان بخت‌برگشته «خدماتِ ویژه» بدن؟ یا شاید هم خدماتِ آپشنالِ شما، همین ایستادنِ قایق‌های لگوری و تندروتون دور کشتی‌هاست که با بوق زدن، خواب رو از سر ناخدا می‌پرونن؟
+
+🔸این سطح از دنائت و وقاحت واقعاً نوبره؛ تفکرِ انگل‌واری که کارش فقط باج‌گیری، راهزنی و مکیدن خونِ عابرانِ تنگه‌ست، حالا براش ساختارِ حقوقی هم می‌تراشه. این فرمولِ کثیف شماست: تفنگ رو می‌ذارید رو شقیقه طرف، جیبش رو خالی می‌کنید و بعد با اون لبخندِ کریه می‌گید: «این پولِ زور نیست عزیزم، هزینه خدماتِ تست زنده ماندن شماست!» طنزِ سیاه‌تر از این نمیشه که لشکرِ مفت‌خورها، اسمِ غارت و باج‌سبیل رو گذاشتن منبع درآمد قانونی!
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342915
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342915_1781305182.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Elon Musk isn't the only one getting richer from SpaceX going public.
+
+The stock’s surge is estimated to have turned about 4,400 current and former employees into millionaires through equity compensation accumulated during their time at the company.
+
+SpaceX’s long-awaited IPO raised a record $75 billion, valuing the company at roughly $1.8 trillion.
+
+The offering also pushed Musk’s estimated net worth past the $1 trillion mark, further cementing his position as the world’s richest person.
+
+Now Wall Street is watching to see whether the stock's early trading can drive SpaceX’s valuation even higher, rewarding employees and investors who backed the company during its rise.
+</div>
+
+## FoxNewsTwitter — post 342914
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342914_1781305183.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A bride in full wedding dress made a two-hour trip before walking down the aisle — and it had nothing to do with the wedding venue.
+
+When Laetitia Obry learned her hospitalized mother wouldn't be able to attend her wedding, she got in the car with her bridal party and drove across France to surprise her in person.
+
+The moment she walked into the hospital room, her mother immediately broke down in tears as the two embraced just hours before the ceremony.
+
+Obry said the visit was brief, but there was no chance she was getting married without seeing her mom first.
+</div>
+
+## FoxNewsTwitter — post 342913
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342913_1781305184.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Lake houses go up in flames after a massive explosion.
+
+Investigators say a suspected propane cylinder failure sparked a fire that destroyed two Pennsylvania homes and damaged others.
+
+Bystander video captured one of the blasts as flames tore through the Elk Lake properties. Firefighters said the explosions were powerful enough to shatter windows.
+
+Preliminary findings indicate one 100-pound propane cylinder may have failed, leaked, and ignited — setting off other cylinders nearby.
+</div>
+
+## FoxNewsTwitter — post 342912
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342912_1781305185.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump wishes the U.S. Men's National Team good luck ahead of their group-stage opener against Paraguay.
+
+"I know how great the players are. I think you've got a really good chance of going all the way, so I just want to wish you a lot of luck."
+
+Coach Mauricio Pochettino’s squad enters the tournament with high expectations and will begin its journey against Paraguay, a team the Americans defeated 2-1 in a friendly last year.
+</div>
+
+## pm_afshaa — post 93744
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93744_1781305188.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: برخی در آمریکا بر این باورند که نتانیاهو ممکنه نقش مخربی داشته باشه حتی اگر توافق انجام بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93743
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93743_1781305188.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس به نقل یک مقام آمریکایی:
+اگر حزب‌الله به اسرائیل موشک شلیک کنه و ایران به تسلیح آن ادامه بده، نقض توافق است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93742
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93742_1781305188.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس به نقل از یک مقام آمریکایی:
+ترامپ روز پنجشنبه در تماس با نتانیاهو گفت که توافق با ایران فوق العاده است و زمان پایان دادن به جنگ فرا رسیده و انتظار داره ظرف چند روز آینده با ایران به توافق برسه.
+
+پست روز پنجشنبه ترامپ مبنی بر اعلام توافق با ایران، نتانیاهو رو شگفت زده کرد. نتانیاهو به ترامپ گفت که برای اطمینان از رسیدگی به نگرانی‌های مشترک در مورد پرونده هسته ای ایران به او اعتماد داره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93741
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93741_1781305189.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امارات گزارش‌های رسانه‌‌ها درباره انتقال پول یا آزادسازی دارایی‌های بلوکه‌شده ایران از طریق امارات، از جمله ادعای انتقال 3 میلیارد دلار رو تکذیب کرد.
+
+وزارت خارجه امارات تأکید کرد هیچ‌گونه انتقال یا حواله مالی به ایران انجام نشده و از رسانه‌ها خواست فقط به منابع رسمی استناد کنن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93740
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93740_1781305189.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مهر: صدای انفجار در حوالی جزیره قشم و سیریک شنیده شده و احتمالا درگیری دریایی برای کنترل تنگه هرمز بوده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93739
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93739_1781305190.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مهر: صدای انفجار در حوالی جزیره قشم و سیریک شنیده شده و احتمالا درگیری دریایی برای کنترل تنگه هرمز بوده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93738
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟠منابع محلی از شنیده شدن صدای انفجار مهیب در دقایق اخیر در روستای مسن  جزیره قشم خبر می‌د
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93737
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93737_1781305191.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام کاخ سفید به اسرائیل هیوم:
+بر اساس توافق، ایران باید ذخایر اورانیوم غنی‌شده خودش رو نابود کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چندین انفجار در سیریک گزارش شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93735
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجار در سیریک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93734
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93734_1781305191.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نبویان، نماینده مجلس:
+توافقی که با پخت و پز بانیان توافق ننگین برجام باشه خسارت محضه.
+
+متن توافق رو دیدم و باید اعلام کنم که نسبت به دوتای قبلی هم خسارتش و هم عقب‌نشینی‌های جمهوری اسلامی بیشتر شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93733
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93733_1781305191.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عراقچی: اگر آخرین مرحله مذاکرات انجام بشه، تفاهم از راه دور (دیجیتالی) به امضای دو طرف میرسه و اعلام خواهد شد.
+
+ممکنه در چند روز آینده اتفاق بیفته.
+رسانه‌ها فضا رو مشوش نکنند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93732
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93732_1781305192.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عباس عراقچی: یکی از شروط اصلی تفاهم، پایان جنگ تو لبنانه؛ رسما اعلام کردیم که اسرائیل باید از مناطقی که تو لبنان اشغال کرده، عقب نشینی کنه!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93731
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93731_1781305193.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عراقچی: از نظر ما تنها شیوهٔ بررسی مواد غنی‌شده، رقیق‌سازی اون در داخل ایرانه.
+
+اگر در 60 روز به توافق نهایی نرسیم اما دو طرف از روند راضی باشن ممکنه تمدید بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93730
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93730_1781305193.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عراقچی: طبق قوانین بین‌الملل گرفتن عوارض از تنگه‌ هرمز امکان‌پذیر نیست اما هزینه‌ی خدمات دریافت خواهد شد و این در مذاکرات تثبیت خواهد شد.
+
+به‌زودی ایران و عمان بیانیه مشترکی در مورد اداره تنگه هرمز منتشر خواهند کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5628
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ دو دانشجو به‌دلیل آتش زدن پرچم جمهوری اسلامی اخراج شدند
+
+خبرگزاری حکومتی فارس گزارش داد شورای انضباطی دانشگاه تهران، دو دانشجو را به‌دلیل آتش زدن پرچم جمهوری اسلامی در جریان اعتراضات دانشجویی سال گذشته، از دانشگاه اخراج کرد.
+بنا بر این گزارش، این دو دانشجو به اتهام «ایجاد آشوب و اخلال در روند آموزشی» توسط کمیتۀ انضباطی دانشگاه به اخراج محکوم شدند.
+در همین راستا وزیر علوم دولت پزشکیان روز پنج‌شنبه اعلام کرده بود با دانشجویانی که پرچم شیر و خورشید را در دانشگاه برافراشتند و نماد جمهوری اسلامی را به آتش کشیدند، برخورد قضایی و انضباطی صورت می‌گیرد.
+در اعتراضات دانشجویی سال گذشته در چندین دانشگاه پرچم شیر و خورشید برافراشته و شعارهایی در پشتیبانی از شاهزاده رضا پهلوی سرداده شد.
+همچنین پرچم رسمی جمهوری اسلامی در چند دانشگاه به آتش کشیده شده بود.
+
+#دانشجویان #اعتراضات #پرچم
+@DEJradio
+</div>
+
+## DEJradio — post 5627
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ آسوشیتدپرس گزارش داد کنترل جمهوری اسلامی بر تنگۀ هرمز کاهش یافته است
+
+خبرگزاری آسوشیتدپرس در گزارشی تحلیلی نوشت کنترل جمهوری اسلامی بر تنگۀ هرمز در حال کاهش است.
+به نوشتۀ این خبرگزاری آمریکایی، همزمان فشار اقتصادی بر تهران به‌شدت افزایش یافته است.
+بر اساس این گزارش، صادرات نفت کشورهای عربی خلیج فارس از مسیر هرمز در پی پشتیبانی ارتش آمریکا در حال افزایش است.
+این خبرگزاری تأیید کرد که بیش از ۱۰۰ میلیون بشکه نفت طی هفته‌های اخیر از این مسیر وارد بازار جهانی شد.
+دونالد ترامپ در روزهای پیشین آماری مشابه را اعلام کرده بود.
+آسوشیتدپرس همچنین نوشت محاصرۀ دریایی آمریکا صادرات نفت جمهوری اسلامی را با مشکلات جدی روبه‌رو کرده و تولید نفت ایران از زمان آغاز این محاصره درحدود ۸۰۰ هزار بشکه در روز کاهش یافته است.
+بر پایۀ این گزارش، افزایش ذخایر نفتی، کاهش صادرات و محدودیت دسترسی به ارز خارجی، فشار بر جمهوری اسلامی را برای دستیابی به یک راه‌حل دیپلماتیک، بیشتر کرده است.
+
+#تنگه_هرمز #توافق
+@DEJradio
+</div>
+
+## DEJradio — post 5626
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ ونس گفت جمهوری اسلامی برای امضای توافق هیچ پولی دریافت نمی‌کند
+
+جی‌دی ونس، معاون رئیس جمهوری آمریکا اعلام کرد جمهوری اسلامی در پی امضای توافق با واشینگتن یا حضور در نشست‌های مذاکره قرار نیست هیچ پولی دریافت کند.
+او گفت توافق به‌گونه‌ای طراحی شده که نگرانی‌های آمریکا و متحدانش در اولویت قرار گیرد.
+به‌گفتۀ ونس، تنها در صورت اجرای تعهدات از سوی جمهوری اسلامی، دریچه‌های اقتصادی برای کشور و منطقه گشوده می‌شود.
+ونس همچنین مدعی شد اگر این توافق به‌دست آید، می‌تواند زمینه‌ساز صلحی پایدار در خاورمیانه باشد.
+دونالد ترامپ گزارش‌های منتشرشده توسط تهران دربارۀ مفاد توافقنامه را دروغ و چرند عنوان کرده است.
+
+#مذاکرات #توافق
+@DEJradio
+</div>
+
+## DEJradio — post 5625
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ مقام آمریکایی: در توافقنامۀ در حال بحث بر نابودی و خروج اورانیوم از ایران تصریح شده است
+
+یک مقام ارشد آمریکایی اعلام کرد در توافق در حال مذاکره میان واشینگتن و تهران، بر نابودی ذخایر اورانیوم غنی‌شدۀ جمهوری اسلامی و انتقال باقی‌مانده آن به خارج از ایران تأکید شده است.
+این مقام که در پی گفت‌وگو با خبرنگاران آمریکایی خواست ناشناس بماند، اعلام کرد که توافق همچنین بازگشایی تنگۀ هرمز، پایان محاصرۀ بنادر ایران و ایجاد سازوکار بازرسی برای راستی‌آزمایی تعهدات جمهوری اسلامی را دربر دارد.
+او افزود جمهوری اسلامی تنها در صورت اجرای تعهدات، از مزایای اقتصادی توافق بهره‌مند می‌شود.
+به گفتۀ این مقام آمریکایی، توافقنامۀ در حال بحث کنونی به‌تنهایی هیچ امتیازی برای تهران ایجاد نمی‌کند.
+او همچنین خبر داد دو طرف به توافق نهایی نزدیک شده‌اند اما هنوز به خط پایان نرسیده‌اند.
+عباس عراقچی ساعتی پیش مدعی شده بود مسئلۀ هسته‌ای جمهوری اسلامی در دور کنونی مذاکرات مطرح نمی‌شود.
+
+#مذکرات #توافق #اورانیوم
+@DEJradio
+</div>
+
+## DEJradio — post 5624
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ عراقچی گفت هنوز توافقی امضا نشده و مذاکره با آمریکا ادامه دارد
+
+عباس عراقچی، وزیر امور خارجۀ دولت جمهوری اسلامی اعلام کرد هنوز هیچ توافقنامه‌ای با آمریکا امضا نشده و مذاکرات همچنان ادامه دارد.
+او مدعی شد نتیجۀ گفت‌وگوها فعلا در قالب یک یادداشت ۱۴ ماده‌ای تنظیم شده و موضوع برنامۀ هسته‌ای جمهوری اسلامی به مرحله دوم و نهایی مذاکرات منتقل شده است.
+عراقچی ادعا کرد مفاد نهایی تفاهمنامه هنوز قطعی نیست و برخی بندها ممکن است تغییر کند.
+او همچنین مدعی شد در توافق احتمالی، پایان جنگ در همۀ جبهه‌ها از جمله لبنان نیز پیش‌بینی شده است.
+وزیر خارجۀ جمهوری اسلامی گفت گزارش‌های منتشرشده درمورد متن توافق از سوی رسانه‌ها، مورد تأیید تهران نیست.
+دونالد ترامپ روز آدینه مسئولان جمهوری اسلامی را به دروغ‌بافی و چرندگویی در مورد بندهای مورد توافق میان تهران و واشنیگتن متهم کرده است.
+
+#عراقچی #مذاکرات #توافق
+@DEJradio
+</div>
+
+## DEJradio — post 5623
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️ ادعای نخست‌وزیر پاکستان: متن نهایی توافق تهران و آمریکا مورد پذیرش طرفین قرار گرفته است
+
+شهباز شریف، نخست‌وزیر پاکستان، اعلام کرد متن نهایی توافق میان جمهوری اسلامی و آمریکا مورد پذیرش دو طرف قرار گرفته است.
+او گفت پاکستان اکنون با تهران و واشینگتن برای نهایی کردن مراحل پایانی توافق همکاری می‌کند و صلح هیچ‌گاه تا این اندازه نزدیک نبوده است.
+شریف همچنین از آنچه کارزار انتشار اطلاعات نادرست برای تخریب روند توافق خواند انتقاد کرد.
+پاکستان در ماه‌های اخیر نقش اصلی میانجی‌گری میان جمهوری اسلامی و آمریکا را بر عهده داشته و میزبان بخشی از مذاکرات دو طرف بوده است.
+
+#مذاکرات #پاکستان
+@DEJradio
+</div>
+
+## mamlekate — post 103691
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 سی‌ان‌ان: جمهوری اسلامی تعهد داده که اورانیوم‌های غنی شده را نابود و از ایران خارج کند
+
+یک مقام ارشد دولت آمریکا می‌گوید جمهوری اسلامی با نابودی و خروج مواد هسته‌ای، برچیدن برنامه هسته‌ای، بازگشایی تنگه هرمز و توقف حمایت مالی از گروه‌های نیابتی که آمریکا آن‌ها را تروریستی می‌داند موافقت کرده است.
+
+
+📝 عراقچی: تفاهم ۱۴ ماده‌ای با آمریکا پس از نهایی شدن به‌صورت دیجیتال امضا خواهد شد
+
+عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، اعلام کرد که یادداشت تفاهم ۱۴ ماده‌ای با آمریکا هنوز نهایی و امضا نشده است. او همچنین گفت در صورت نهایی شدن توافق، امضای آن به‌صورت دیجیتال انجام خواهد شد و موضوعات هسته ای و رفع تحریم ها به مرحله دوم مذاکرات منتقل شده اند.
+
+
+📝 عضو کمیسیون امنیت ملی مجلس: متن جدید توافق با آمریکا نسبت به دو نسخه قبلی خسارت‌بارتر است
+
+محمود نبویان، عضو کمیسیون امنیت ملی مجلس، در ایکس نوشت متن توافق با آمریکا نسبت به دو نسخه قبلی خسارت‌بارتر شده و میزان عقب‌نشینی‌های ما نیز بیشتر شده است.
+
+@mamlekate
+</div>
+
+## VahidOnline — post 76287
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76287_1781305193.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+"امارات گزارش‌های رسانه‌ای درباره انتقال پول به ایران را قاطعانه تکذیب کرد"
+
+ترجمه ماشین:
+امارات متحده عربی گزارش‌هایی را که از سوی برخی رسانه‌های بین‌المللی منتشر شده و مدعی انتقال پول از امارات به جمهوری اسلامی ایران هستند، از جمله ادعاهایی درباره مبلغ ۳ میلیارد دلار، قاطعانه تکذیب کرده است.
+وزارت امور خارجه در بیانیه‌ای تأکید کرد که این ادعاها کاملاً نادرست و بی‌اساس هستند و تصریح کرد که هیچ‌گونه دارایی مسدودشده ایران از طریق امارات آزاد، منتقل یا تسهیل نشده است.
+این وزارتخانه همچنین از رسانه‌ها خواست دقت را رعایت کنند، به منابع رسمی اتکا کنند و از انتشار یا بازنشر اطلاعات تأییدنشده و ادعاهای بی‌اساس خودداری کنند.
+mofauae
+درباره این خبر
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مالک شریعتی نیاسر، دیگر عضو مجلس شورای اسلامی نوشته:
+خب وقتی در باز بشه و ببینن که می‌فهمن مویوم...
+malekshariati
+این طور برداشت شده که داره میگه قالیباف پشت همه تصمیماتی است که به اسم مجتبی اعلام میشه.
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76284
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76284_1781305194.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم:
+استانداری هرمزگان: صدای انفجار در حوالی بندر سیریک ناشی از شلیک هشدار در تنگه هرمز است
+خبرگزاری فارس:
+
+شلیک هشدار به کشتی‌های متخلف در تنگۀ هرمز
+
+دقایقی پیش مردم در قشم، جاسک و سیریک در استان هرمزگان شنیدن صدایی شبیه انفجار گزارش کردند؛ گزارشی از اصابت در این نقاط مخابره نشده است.
+
+به گزارش خبرگزاری فارس از بندرعباس، منابع محلی از شنیده شدن صدای انفجار در سه نقطه از هرمزگان خبر می‌دهند.
+
+دقایقی پیش اهالی مسن قشم، مناطقی از سیریک و همینطور جاسک از شنیده شدن صدای انفجارهایی خبر می‌دهند.
+
+بررسی‌های خبرنگار فارس از منابع آگاه حاکی است صداهای شنیده شده مربوط به انجام شلیک هشدار به کشتی‌های متخلف در محدوده تنگه هرمز است.
+
+منابع استانی نیز وقوع انفجار بر اثر اصابت در این ۳ نقطه را رد می‌کنند.
+
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76283
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76283_1781305194.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، درباره تفاهم با آمریکا به صداوسیما گفت: «احتمالا در چند روز آینده تفاهم‌نامه میان ما و آمریکا امضا خواهد شد.»
+او افزود: «امضای یادداشت تفاهم بعد از گذشتن از آخرین مراحل مذاکرات به صورت دیجیتالی و از راه دور انجام می‌شود که اعلام خواهد شد.»
+@VahidOOnLine
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، شامگاه جمعه در یک برنامه زنده تلویزیونی اعلام کرد هنوز توافقی با آمریکا امضا نشده و مدعی شد که پرونده هسته‌ای ایران به مرحله دوم و نهایی این توافق موکول شده است.
+
+او در گفت‌وگو با تلویزیون حکومتی ایران گفت توافق احتمالی با ایالات متحده شامل دو مرحله است و «موضوع هسته‌ای را به مرحله دوم انتقال دادیم».
+
+این در حالی است که ساعتی قبل یک مقام ارشد آمریکایی به خبرنگاران گفت بر اساس توافق، قرار است اورانیوم غنی‌شده ایران در خاک این کشور نابود شود و سپس به خارج از ایران منتقل شود.
+
+با این حال وزیر خارجه جمهوری اسلامی با اشاره به اینکه نتیجه مذاکرات یک «یادداشت ۱۴ ماده‌ای» است اعلام کرد مفاد آن بعد از نهایی شدن اعلام می‌شود.
+
+وزیر خارجه ایران در گفت‌وگوی خود خبر داد که طبق تصمیم جمهوری اسلامی، «آینده تنگه هرمز و اداره آن مثل گذشته نخواهد بود‌» و ادعا کرد که ایران و عمان بیانیه مشترکی در مورد اداره این آبراه منتشر خواهند کرد.
+
+او در ادامه اذعان کرد که طبق قوانین بین‌الملل گرفتن عوارض از کشتی‌ها در تنگه هرمز امکان‌پذیر نیست و افزود: «اما هزینه خدمات دریافت خواهد شد و این در مذاکرات تثبیت خواهد شد.»
+
+عراقچی اعلام کرد طبق توافق، محاصره دریایی ایالات متحده علیه بنادر ایرانی به‌طور کامل رفع خواهد شد و دارایی‌های بلوکه‌شدهٔ ایران آزاد خواهد شد.
+
+مقام‌های آمریکایی آزاد شدن این دارایی‌ها را به دفعات رد کرده‌اند. جی‌دی ونس، معاون رئیس‌جمهور آمریکا ساعاتی پیش تصریح کرد بعد از امضای توافق، هیچ‌گونه منابع مالی در اختیار ایران قرار نخواهد گرفت.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 341971
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341971_1781305194.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دفتر رسانه‌ای شاهزاده رضا پهلوی با انتشار تصاویری از ورزشکاران و فوتبالیست‌های جاویدنام و بازداشت‌شده در اعتراضات، از مردم خواست تی‌شرت‌هایی منقش به نام و شماره نمادین آنها بپوشند: «این جام جهانی، برای ما یادآور تیم واقعی ایران است. به جهان نشان دهید که تیم واقعی ایران، مردم ایران هستند.»
+
+🔹دفتر رسانه‌ای شاهزاده رضا پهلوی نوشت: «از شما دعوت می‌کنیم تی‌شرت‌های سفید را با نام و شماره نمادینِ فوتبالیست‌ها، ورزشکاران و جوانانی که به دست رژیم جمهوری اسلامی کشته، اعدام یا تحت آزار و سرکوب قرار گرفتند بر تن کنید.»
+
+🔹در ادامه این اطلاعیه آمده است: «روی هر تی‌شرت، یک کیوآرکد قرار دارد که دریچه‌ای است به داستان زندگی هر یک از این قهرمانان ایران. از شما می‌خواهیم پیراهنی با نام آنان بر تن کنید. داستانشان را بازگو کنید.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341970
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341970_1781305195.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانون نویسندگان ایران خبر داد که یوسف انصاری، نویسنده و عضو هیات دبیران این کانون، با حکم شعبه‌ ۲۱ دادگاه انقلاب اسلامی تهران به یک سال حبس (۴ ماه حبس تعزیری و ۸ ماه حبس تعلیقی) محکوم شده است.
+
+این نهاد مدافع آزادی بیان اشاره کرد که این که حکم به اتهام «تبلیغ علیه نظام» صادر شده، ۱۲ خرداد به او ابلاغ شده است.
+
+بر اساس این گزارش، انصاری ۱۸ دی‌ماه سال گذشته در مراسم سالگرد جان‌باختن بکتاش آبتین، شاعر، بازداشت شد. بازداشت این نویسنده با ضرب‌و‌جرح صورت گرفت و مأموران امنیتی ۱۹ دی‌ماه او را به زندان تهران بزرگ منتقل کردند. انصاری پنجم اسفند‌ در یک جلسه‌‌ چند دقیقه‌ای محاکمه شد.
+
+انصاری پس از دو ماه به قید وثیقه‌ ۷۰۰ میلیون تومانی آزاد شد.
+https://iranintl.com/202606125218
+</div>
+
+## IranIntlTV — post 341969
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341969_1781305195.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امارات متحده عربی در بیانیه‌ای قاطعانه گزارش‌های منتشرشده در برخی رسانه‌های بین‌المللی درباره انتقال یا واریز هرگونه مبلغ مالی از این کشور به جمهوری اسلامی، از جمله ادعای مربوط به انتقال مبلغ سه میلیارد دلار، را رد کرد.
+
+وزارت خارجه امارات متحده عربی تاکید کرد این ادعاها نادرست است و بر هیچ واقعیت یا اطلاعات موثقی استوار نیست.
+
+این وزارتخانه گفت که هیچ‌گونه دارایی مسدودشده ایران از طریق امارات متحده عربی آزاد، منتقل یا جابه‌جا نشده است.
+
+وزارت خارجه امارات متحده عربی همچنین از رسانه‌ها خواست در انتشار اخبار دقت کنند، اطلاعات را از منابع رسمی دریافت کنند و از انتشار یا بازنشر اطلاعات تاییدنشده یا ادعاهای فاقد اعتبار خودداری کنند.
+https://iranintl.com/202606120991
+</div>
+
+## IranIntlTV — post 341968
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341968_1781305196.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در دومین بازی افتتاحیه جام جهانی ۲۰۲۶، کانادا در تورنتو برابر بوسنی و هرزگوین به تساوی رسید. تا ساعاتی دیگر نیز نخستین مسابقه تیم ملی فوتبال آمریکا، دیگر میزبان جام جهانی، برابر پاراگوئه آغاز خواهد شد.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341967
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341967_1781305197.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اشکان نظام‌آبادی، روزنامه‌نگار اقتصادی، درباره گرانی افسارگسیخته اجاره‌بهای مسکن در ایران گفت: «افزایش شدید قیمت مسکن باعث شده بسیاری از افرادی که پیش‌تر توان خرید خانه داشتند، اکنون از بازار خرید خارج شوند و تنها گزینه پیش روی آنها اجاره باشد.»
+
+او افزود: «ریشه این وضعیت را باید در سیاست‌های کلان اقتصادی دولت و تورم عمومی جست‌وجو کرد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341966
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341966_1781305198.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خارجه جمهوری اسلامی گفت بر اساس یادداشت تفاهم، دارایی‌های مسدودشده ایران آزاد خواهد شد و هیچ‌یک از این دارایی‌ها نباید دوباره بلوکه شود. عراقچی همچنین گفت برای جبران خسارت‌های ایران، طرحی برای بازسازی در نظر گرفته شده است.
+
+گزارش امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341965
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341965_1781305200.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، نزدیک به سپاه پاسداران، شامگاه جمعه ۲۲ خرداد از «شلیک هشدار به کشتی‌های متخلف» در تنگه هرمز خبر داد.
+
+این خبرگزاری حکومتی نوشت: «دقایقی پیش، مردم در قشم، جاسک و سیریک در استان هرمزگان شنیدن صدایی شبیه انفجار گزارش کردند» و افزود: «گزارشی از اصابت در این نقاط مخابره نشده است.»
+
+فارس به نقل از «منابع آگاه» نوشت: «صداهای شنیده شده مربوط به انجام شلیک هشدار به کشتی‌های متخلف در محدوده تنگه هرمز است.»
+https://iranintl.com/202606121250
+</div>
+
+## IranIntlTV — post 341964
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341964_1781305200.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتحادیه اروپا یکی از بزرگ‌ترین اصلاحات نظام پناهندگی خود را اجرایی کرد؛ اصلاحاتی که می‌تواند مسیر مهاجرت به اروپا را برای هزاران متقاضی دشوارتر کند. آمارها نشان می‌دهد درخواست‌های پناهندگی شهروندان ترکیه در کشورهای اروپایی حدود ۴۰ درصد کاهش یافته است.
+
+گزارش فرزیا ثابتی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 341962
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341962_1781305201.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، شامگاه جمعه ۲۲ خرداد نوشت ساکنان بخش‌هایی از جزیره قشم و مناطق ساحلی شهرستان سیریک صدای انفجاری را شنیده‌اند.
+خبرگزاری صدا و سیمای جمهوری اسلامی نیز نوشت شنیده شدن این صدا احتمالا مربوط به مقابله نیروهای جمهوری اسلامی با شناورها در تنگه هرمز است.
+یک منبع آگاه در استانداری هرمزگان نیز اعلام کرد: صدای انفجار در حوالی بندر سیریک ناشی از شلیک هشدار به تنگه هرمز است.
+https://iranintl.com/202606120154
+</div>
+
+## IranIntlTV — post 341961
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341961_1781305202.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال کانادا در اولین بازی خود در جام جهانی ۲۰۲۶ برابر بوسنی و هرزگوین به تساوی یک بر یک رسید. یووو لوکیچ در دقیقه ۲۱ برای بوسنی و کایل لارین در دقیقه ۷۸ برای کانادا در این مسابقه گلزنی کردند تا دو تیم با یک امتیاز در رده‌های اول و دوم گروه بی قرار بگیرند.
+
+🔹شاگردان جسی مارش در حضور پرشمار تماشاگران حاضر در استادیوم بی‌ام‌او فیلد شهر تورنتو برخلاف جریان بازی و روی فرصت‌طلبی لوکیچ در دهانه دروازه روی ارسال کرنر، گل اول را دریافت کردند.
+
+🔹تلاش میزبان برای به ثمر رساندن گل تساوی تا یک سوم پایانی نیمه دوم بدون نتیجه بود تا در نهایت ستاره ساوتهمپتون در نقش تعویض طلایی مارش ظاهر شد و سکوهای استادیوم را با باز کردن دروازه نیکولا واسیلی منفجر کرد.
+
+🔹حملات دقایق پایانی کانادا نیز راهی به دروازه پیدا نکرد تا در نهایت دو تیم با تساوی کار خود را در مهم‌ترین رویداد فوتبالی جهان آغاز کنند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 341960
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341960_1781305202.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال در خصوص گرانی‌های شدید در ایران می گوید یک عدد هندوانه را به قیمت ۶۰۰ هزار تومان خریده است.
+</div>
+
+## IranIntlTV — post 341958
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341958_1781305204.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خالد عزیزی، سخنگوی حزب دموکرات کردستان ایران، درباره اظهارات دونالد ترامپ مبنی بر اینکه کردها مانع رسیدن سلاح‌های آمریکایی به مردم ایران شدند، گفت: «طرح چنین ادعاهایی مایه تاسف است و هر زمان که دولت آمریکا خود را در بن‌بست سیاسی یا مذاکراتی می‌بیند، تلاش می‌کند کردها را مسئول ناکامی‌ها یا نبود برنامه‌ریزی برای مبارزه در داخل ایران معرفی کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341957
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341957_1781305205.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیژن کیان، کارشناس امنیت ملی، گفت: «اگر جمهوری اسلامی غنی‌سازی را متوقف کند، اورانیوم غنی‌شده را تحویل دهد، حمایت از نیروهای نیابتی را کنار بگذارد و برنامه موشکی خود را محدود کند، در آن صورت چه چیزی از جمهوری اسلامی باقی می‌ماند؟»
+
+او افزود: «بنابراین، پیش از نامیدن این روند به عنوان "توافق"، باید ماهیت آن روشن شود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341956
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341956_1781305207.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرشته پزشک، کارشناس روابط بین‌الملل، گفت: «اگر تفاهم یا توافق به معنای یک وقفه یا فرصتی برای تنفس دو طرف باشد تا بعدا دوباره به نقطه اول بازگردند، شاید بتوان گفت به آن نزدیک شده‌ایم.»
+
+او افزود: «اما اگر منظور این باشد که این تفاهم به تغییری بنیادین در رفتار جمهوری اسلامی منجر شود، ایران وارد نظم بین‌المللی شود، از شعار نابودی آمریکا و اسرائیل دست بردارد و زیرساخت‌های هسته‌ای خود را به طور کامل تعطیل کند، تحقق چنین سناریویی بسیار دشوار به نظر می‌رسد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341955
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341955_1781305209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام کاخ سفید به اسرائیل هیوم گفت: «بر اساس توافق، ایران باید ذخایر اورانیوم غنی‌شده خود را نابود کند، بخش‌هایی از برنامه هسته‌ای خود را برچیند و متعهد شود هرگز به دنبال تولید سلاح هسته‌ای نرود.»
+
+او افزود: «اهداف اصلی توافق شامل بازگشایی تنگه هرمز، رفع تهدید علیه کشتیرانی، نابودی ذخایر اورانیوم غنی‌شده ایران، برچیدن بخش‌های کلیدی برنامه هسته‌ای و ایجاد سازوکار نظارت و راستی‌آزمایی است.»
+https://iranintl.com/202606120056
+</div>
+
+## IranIntlTV — post 341954
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341954" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ‌‌‏﻿﻿۲۴ با فرداد فرحزاد: ایران و آمریکا در یک قدمی توافق
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341953
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341953_1781305210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی نخل‌احمدی، روزنامه‌نگار و فعال سیاسی، گفت: «در شرایط کنونی، مساله بقا و اقتصاد برای جمهوری اسلامی اهمیت بیشتری پیدا کرده است.»
+
+او افزود: «این احتمال وجود دارد که دونالد ترامپ امیدوار باشد در صورت رسیدن مذاکرات به مرحله نهایی، دست بالاتری در توافقی جامع‌تر داشته باشد و بتواند روایت پیروزی خود را با سهولت بیشتری به افکار عمومی آمریکا و جهان ارائه کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 341952
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/341952" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی حرف آخر با پوریا زراعتی - حذف مجتبی بعد توافق موقت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 341951
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_341951_1781305212.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌‌اینترنشنال نشان می‌‌دهد مراسم تولد جاویدنام آرمان پوردلجو بر سر مزارش در بهشت سکینه کرج برگزار شده است.
+﻿آرمان پوردلجو، ۲۲ ساله، ۱۸ دی ماه ۱۴۰۴، در کرج با اصابت گلوله جنگی ماموران جمهوری اسلامی کشته شد.
+</div>
+
+## IranIntlTV — post 341950
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_341950_1781305213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، درباره تفاهم احتمالی با آمریکا به صداوسیما گفت: «احتمالا در چند روز آینده تفاهم‌نامه میان ما و آمریکا امضا خواهد شد.»
+
+او افزود: «امضای یادداشت تفاهم بعد از گذشتن از آخرین مراحل مذاکرات به صورت دیجیتالی و از راه دور انجام می‌شود که اعلام خواهد شد و ممکن است در چند روز آینده اتفاق بیفتد.»
+https://iranintl.com/202606124688
+</div>
+
+## Shin_Persian — post 7004
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 21:19:06 UTC
+
+Initial:
+A vessel was hit by an IRGC projectile near the Strait of Hormuz
+
+ترجمه خودکار فارسی
+
+یک شناور توسط پرتابه‌ای متعلق به سپاه پاسداران (IRGC) در نزدیکی تنگه هرمز مورد اصابت قرار گرفت.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7003
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 12 Jun 2026 20:51:45 UTC State-owned Mehr New: "Explosion sounds heard around Qeshm Island and Sirik, Hormozgan Province. Initial reports suggest a conflict near Strait of Hormuz. No official confirmation authorities…
+</div>
+
+## Shin_Persian — post 7002
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 20:51:45 UTC
+
+State-owned Mehr New:
+"Explosion sounds heard around Qeshm Island and Sirik, Hormozgan Province.
+Initial reports suggest a conflict near Strait of Hormuz. No official confirmation authorities on nature of explosions."
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+خبرگزاری دولتی مهر:
+«صدای انفجار در اطراف جزیره قشم و سیریک، استان هرمزگان شنیده شد.
+گزارش‌های اولیه حاکی از درگیری در نزدیکی تنگه هرمز است. هیچ تایید رسمی از سوی مقامات در مورد ماهیت انفجارها صورت نگرفته است.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7001
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7001_1781305214.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 21:04:18 UTC
+
+Also spotted in Dorud, Lorestan Province, #Iran
+Eyewitness reports they've seen it 3 times tonight.
+
+ترجمه خودکار فارسی
+
+همچنین در دورود، استان لرستان، #Iran مشاهده شده است.
+گزارش‌های شاهدان عینی حاکی از آن است که آن‌ها امشب ۳ بار آن را دیده‌اند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7000
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 21:02:11 UTC
+
+Kiashahr*
+
+ترجمه خودکار فارسی
+
+کیاشهر*
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6999
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6999_1781305214.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 21:00:35 UTC
+
+Earlier @ 1700Z
+Kianshahr, Gilan Province, Iran
+
+ترجمه خودکار فارسی
+
+پیش‌تر در ۱۷۰۰ زولو (۲۰:۳۰ به وقت تهران)
+کیان‌شهر، استان گیلان، ایران
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6998
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6998_1781305216.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 20:56:19 UTC
+
+Regime fans in Tehran tonight:
+"In memory of Commanders Salami and Rashid, We will not make peace with the vile enemy!"
+
+Iran.
+
+ترجمه خودکار فارسی
+
+طرفداران رژیم امشب در تهران:
+«به یاد فرماندهان سلامی و رشید، با دشمن پست سازش نخواهیم کرد!»
+
+ایران.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6997
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 20:51:45 UTC
+
+State-owned Mehr New:
+"Explosion sounds heard around Qeshm Island and Sirik, Hormozgan Province.
+Initial reports suggest a conflict near Strait of Hormuz. No official confirmation authorities on nature of explosions."
+
+ترجمه خودکار فارسی
+
+خبرگزاری دولتی مهر:
+«صدای انفجار در اطراف جزیره قشم و سیریک در استان هرمزگان شنیده شد.
+گزارش‌های اولیه حاکی از وقوع درگیری در نزدیکی تنگه هرمز است. هیچ تاییدیه رسمی از سوی مقامات درباره ماهیت انفجارها ارائه نشده است.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6994
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 19:52:03 UTC
+
+Wonder when JD Vance will call Islamic Regime's FM words "Fake News social media"
+
+ترجمه خودکار فارسی
+
+متعجبم که جی‌دی ونس چه زمانی سخنان وزیر امور خارجه رژیم اسلامی را «اخبار جعلی شبکه‌های اجتماعی» خواهد نامید.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6993
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 19:50:29 UTC
+
+Regime's Foreign Minister:
+
+"Consultations are underway with allies, including China and Oman, regarding the management of traffic in the Strait of Hormuz.
+
+Our power and presence will perpetually safeguard the Strait of Hormuz.
+
+We will not levy tolls, but service fees will apply for passage through the Strait of Hormuz."
+
+ترجمه خودکار فارسی
+
+وزیر امور خارجه رژیم:
+
+«رایزنی‌ها با متحدان، از جمله چین و عمان، در خصوص مدیریت ترافیک در تنگه هرمز در حال انجام است.
+
+قدرت و حضور ما همواره امنیت تنگه هرمز را حفظ خواهد کرد.
+
+ما عوارض دریافت نخواهیم کرد، اما هزینه‌های خدمات برای عبور از تنگه هرمز اعمال خواهد شد.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6992
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6992_1781305217.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Fri, 12 Jun 2026 19:41:11 UTC
+
+More from Araghchi, Regime's FM who Trump reposted one of his tweets few hours ago :)
+
+ترجمه خودکار فارسی
+
+اطلاعات بیشتر از عراقچی، وزیر امور خارجه رژیم که ترامپ چند ساعت پیش یکی از توئیت‌های او را بازنشر کرد :)
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۰:۳۰ بامداد شنبه؛ یک ملوان ایرانی به من اطلاع داد در بیسیم صدای یک ملوان دیگر را با لهجه هندی شنیده است که می‌گوید کشتی آن‌ها در تنگه‌ی هرمز هدف اصابت یک پرتابه از سمت سپاه پاسداران قرار گرفته است.
+
+در ادامه ملوان خارجی اعلام می‌کند هیچکس در کشتی مجروح نشده است اما سمت چپ کشتی آسیب دیده است.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 220534
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وزارت جنگ آمریکا روز جمعه نخستین تبلیغ ویدیویی این وزارتخانه برای جذب نیرو را منتشر کرد. در این ویدو سخنانی از رئيس جمهوری آمریکا، دونالد ترامپ آمده است که می‌گوید توان بالای نظامی می‌تواند مانع بروز جنگ نیز بشود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220533
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220533_1781305218.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️امیرعلی پیروزبخش از بازی اول کانادا در سومین حضور این تیم در رقابت‌های جام جهانی می‌گوید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220532
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220532_1781305219.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️همن سیدی در برنامه تفسیر خبر: ترامپ هم دست جمهوری اسلامی را می‌خواند و هم با همان دست بازی میک‌ند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220531
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سازمان عفو بین‌الملل از مقام‌های جمهوری اسلامی خواست فورا اجرای احکام اعدام پنج زندانی سیاسی در زندان شیبان اهواز را متوقف کنند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220530
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ارزیابی وضعیت تیم فوتبال ایران از زبان کوشا دلشاد، مربی فوتبال از برزیل
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220529
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220529_1781305219.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️علم صالح در برنامه تفسیر خبر: بسیاری از نقدهای اپوزسیون به جمهوری اسلامی وارد است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220528
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش | اعدام مهدی قاسمی در زیر سایه جنگ؛ یکی از نخستین اعدام‌شدگان اعتراضات دی در قم
+
+◾️مهدی قاسمی، از معترضان بازداشت‌شده دی، بامداد پنج‌شنبه ۲۸ اسفند ۱۴۰۴ در قم اعدام شد. او به همراه دو تن دیگر از معترضان شهر قم، به نام‌های صالح محمدی و سعید داوودی، اعدام شدند. این سه معترض جوان نخستین افرادی بودند که در ارتباط با اعتراضات دی‌ ۱۴۰۴ حکم اعدام‌شان اجرا شد؛ آن‌هم تنها دو روز پیش از نوروز و در شرایطی که ایران در وضعیت جنگی و خاموشی دیجیتال قرار داشت.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/mahdi-report-ghasemi-among-first-dey-protest-executions-executed-in-qom-under-shadow-of-war/8159796.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220527
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش | واکنش‌ها به اعدام کریم معروف‌پور: صدای مردم را نمی‌توان اعدام کرد
+
+◾️کریم معروف‌پور، زندانی سیاسی اهل نقده، صبح ۳۱ اردیبهشت ۱۴۰۵ اعدام شد. اگرچه در گزارش‌های رسمی جمهوری اسلامی، محل اجرای حکم اعدام اعلام نشده است، سازمان حقوق بشر ایران گزارش داده است که او به همراه رامین زله، دیگر زندانی سیاسی، در زندان نقده در استان آذربایجان غربی اعدام شده است. این سازمان می‌افزاید که اعدام «به‌صورت مخفیانه و بدون اطلاع قبلی و ملاقات آخر با خانواده انجام شده است.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-iranian-kurd-execution-protest-prison-kurdestan-human-rights/8159789.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220526
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220526_1781305220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️خبرگزاری حکومتی مهر از شنیده‌شدن صدای انفجار در حوالی جزیره قشمت و سیریک خبر داد. این خبرگزاری به نوعی بیان کرده است که احتمالا نیروهای جمهوری اسلامی به سمت اهدافی در تنگه هرمز شلیک کرده‌اند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220525
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پیمان جدید مهاجرت اروپا شامل تشدید کنترل‌های مرزی، تسریع در بررسی پرونده‌ها، و افزایش روند اخراج مهاجران است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺یک مقام ارشد آمریکایی: توافق با جمهوری اسلامی در نهایت منجر به برچیده‌شدن برنامه هسته‌ای آن می‌شود
+
+◾️یک مقام ارشد دولت دونالد ترامپ، رئيس‌جمهوری آمریکا، گفته است توافق با جمهوری اسلامی در نهایت منجر به برچیده شدن برنامه هسته‌ای حکومت ایران خواهد شد و ذخایر اورانیوم غنی‌شده با خلوص بالای آن نابود و از کشور خارج خواهد شد. این مطلب را خبرگزاری رویترز منتشر کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8160234.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220523
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آمریکا در مرکز توجه روز دوم جام جهانی؛ ستارگان موسیقی و مقام‌های ارشد واشنگتن در افتتاحیه لس‌آنجلس
+
+◾️آمریکا روز جمعه ۲۲ خرداد (بامداد شنبه ۲۳ خرداد به وقت ایران)، در دومین روز مراسم افتتاحیه جام جهانی ۲۰۲۶ در مرکز توجه قرار می‌گیرد؛ روزی که لس‌آنجلس، مرکز صنعت سینمای آمریکا و از شهرهای چندفرهنگی این کشور، میزبان مراسم رسمی افتتاحیه در خاک ایالات متحده و نخستین بازی تیم ملی آمریکا خواهد بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/us-opens-world-cup-stage/8160141.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220522
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جمهوری اسلامی یکی از مجروحان اعتراضات دی ۱۴۰۴ را به ۶ سال زندان و ۸۰ ضربه شلاق محکوم کرد
+
+◾️رسانه‌های حقوق بشری روز جمعه ۲۲ خرداد اعلام کردند قوه قضائیه جمهوری اسلامی، مهدی پاک‌مهر، هنرمند اهل بجنورد را به ۶ سال زندان و ۸۰ ضربه شلاق محکوم کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-protest-january-prison-artist-bojnurd/8160212.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16899
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16899_1781305220.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو دوم امشب در اسپاتیفای
+https://open.spotify.com/episode/6k6OWJoWjKiwwhaLX1m7UF
+</div>
+
+## Persian_Trend_Official — post 16898
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول امشب در اسپاتیفای https://open.spotify.com/episode/4etbRLzxUWjhY2UglM8GwW
+</div>
+
+## Persian_Trend_Official — post 16897
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول امشب در اسپاتیفای
+
+https://open.spotify.com/episode/4etbRLzxUWjhY2UglM8GwW
+</div>
+
+## Persian_Trend_Official — post 16896
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/vRHW0Hi3AeQ?feature=share
+</div>
+
+## Persian_Trend_Official — post 16895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه لایو دوم
+</div>
+
+## Persian_Trend_Official — post 16894
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16894_1781305221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسرت 💔
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16893
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16893_1781305222.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Persian_Trend_Official — post 16892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهمترین بخش های مصاحبه امشب عراقچی، وزیر امور خارجه جمهوری اسلامی با شبکه خبر:
+
+نتیجه مذاکرات یک یادداشت تفاهم 14 بندی است که هنوز امضا نشده و وقتی نهایی شد برای مردم تشریح خواهم کرد.
+
+خاتمه جنگ در همه جبهه ها از جمله لبنان در یادداشت تفاهم و در مرحله اول اعلام خواهد شد، تعهد خواهند داد که دیگر آغازگر جنگ نباشند. بعد از 47 سال آمریکا به حاکمیت ایران اذعان و اعتراف خواهند کرد.
+
+یادداشت تفاهم ایران و امریکا مرحله اول است و موضوع برنامه هسته ای در توافق نهایی بحث خواهیم کرد، برای برنامه هسته ای در مرحله نهایی 60 روز وقت خواهیم داشت.
+
+فعلا هیچ‌یک از متن‌هایی که از توافق بیرون آمده اعتبار ندارد. درخواست می‌کنم که آرامش را برقرار کنند تا بتوانیم به بهترین توافق ممکن برسیم. هیچ توافقی نیست که یک‌طرف 100 را برده باشد و طرف دیگر صفر‌. توافق ایران و آمریکا دشمنانی دارد و اسرائیل در راس این توافق است؛ به دنبال بر هم زدن این توافق و تفاهم هستند.
+
+احتمالا بزودی برنامه مشترکی با عمان درباره مدیریت تنگه هرمز اعلام خواهیم کرد. هزینه خدمات برای تنگه هرمز گرفته می‌شود و دیگر این خدمات رایگان نخواهد بود. این امر مهم تثبیت شده است که هزینه باید پرداخت شود.
+
+خاتمه جنگ به معنی عقب نشینی اسرائیل از مناطق اشغالی لبنان است. اگر آخرین مرحله مذاکرات انجام شود تفاهم از راه دور به امضای دو طرف می‌رسد و اعلام خواهد شد ممکن است در چند روز آینده اتفاق بیفتد.
+
+ممکن است 60 روز مذاکره تمدید شود و ماه ها ادامه داشته باشد. ممکن است تمدید نشود و دیگر مذاکرات را ادامه ندهیم. باید ببینیم بعد از 60 روز با چه فضایی مواجه هستیم.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16889
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16889_1781305223.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر ماهواره ای جدید از پایگاه شیخ عیسی در بحرین تایید میکند که در جریان حملات اخیر ایران چند مخزن سوخت و یک سازه دیگر در این پایگاه منهدم شده است.
+
+ساعاتی پیش تصاویری از یک اصابت دیگر در گوشه ای از پایگاه در کانال پست شده بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸عباس عراقچی، وزیر خارجه جمهوری اسلامی، شامگاه جمعه در یک برنامه زنده تلویزیونی اعلام کرد هنوز توافقی با آمریکا امضا نشده و مدعی شد که پرونده هسته‌ای ایران به مرحله دوم و نهایی این توافق موکول شده است. 🔸او در گفت‌وگو با تلویزیون حکومتی ایران گفت توافق احتمالی…
+</div>
+
+## RadioFarda — post 158238
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158238_1781305223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸عباس عراقچی، وزیر خارجه جمهوری اسلامی، شامگاه جمعه در یک برنامه زنده تلویزیونی اعلام کرد هنوز توافقی با آمریکا امضا نشده و مدعی شد که پرونده هسته‌ای ایران به مرحله دوم و نهایی این توافق موکول شده است.
+
+🔸او در گفت‌وگو با تلویزیون حکومتی ایران گفت توافق احتمالی با ایالات متحده شامل دو مرحله است و «موضوع هسته‌ای را به مرحله دوم انتقال دادیم».
+
+🔸این در حالی است که ساعتی قبل یک مقام ارشد آمریکایی به خبرنگاران گفت بر اساس توافق، قرار است اورانیوم غنی‌شده ایران در خاک این کشور نابود شود و سپس به خارج از ایران منتقل شود.
+
+🔸با این حال وزیر خارجه ایران با اشاره به اینکه نتیجه مذاکرات یک «یادداشت ۱۴ ماده‌ای» است اعلام کرد مفاد آن بعد از نهایی شدن اعلام می‌شود.
+
+🔸وزیر خارجه ایران در گفت‌وگوی خود خبر داد که طبق تصمیم جمهوری اسلامی، «آینده تنگه هرمز و اداره آن مثل گذشته نخواهد بود‌» و ادعا کرد که ایران و عمان بیانیه مشترکی در مورد اداره این آبراه منتشر خواهند کرد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22439
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22439_1781305224.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امارات به‌طور قاطع گزارش‌های رسانه‌ای درباره انتقال پول یا آزادسازی دارایی‌های بلوکه‌شده ایران از طریق امارات، از جمله ادعای انتقال ۳ میلیارد دلار، رو تکذیب کرد.
+وزارت خارجه امارات تأکید کرد هیچ‌گونه انتقال یا حواله مالی به ایران انجام نشده و از رسانه‌ها خواست فقط به منابع رسمی استناد کنن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22438
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22438_1781305224.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📢توم میخوای از مسابقات جام جهانی فوتبال پول دربیاری؟
+🥇
+
+
+✅کانال ورسوس بت کارش تحلیل و پیش بینی مسابقات جام جهانی به صورت حرفه ای
+🍑
+
+
+⚠️توم میتونی از پیش بینی جام جهانی خیلی راحت پول دربیاری فقط کافیه با کانال ورسوس بت همراه شی
+📣
+
+
+🌐ادرس عضویت کانالشون e22:
+👇
+
+🔪https://t.me/+vEPd1hF2Y38yMWI0
+
+🔪https://t.me/+vEPd1hF2Y38yMWI0
+</div>
+
+## IranianMinds — post 22437
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22437_1781305225.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امارات به صورت رسمی اعلام کرد:
+
+ما هیچ‌یک از پول‌های بلوکه شده ایران را آزاد نکردیم، اینکه می‌گویند ۳ میلیارد دلار پول را به ایران تحویل داده‌ایم دروغ محض می‌باشد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22436
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22436_1781305225.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله به قالیباف.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22435
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22435_1781305226.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فعالیت نیروی هوایی آمریکا بر فراز خلیج فارس و عربستان سعودی
+۵ فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا اکنون بر فراز خلیج فارس و عربستان سعودی در حال پرواز هستن
+
+۱ فروند هواپیمای هشدار زودهنگام (آواکس) نیروی هوایی آمریکا در حال پرواز بر فراز شرق عربستان سعودیه
+
+۱ فروند هواپیمای شناسایی و شنود سیگنالی RC-135W Rivet Joint نیروی هوایی آمریکا در حال فعالیت بر فراز خلیج فارسه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22434
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجدد صدای شنیده شدن انفجار در سیریک @IranianMinds
+</div>
+
+## IranianMinds — post 22433
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22433_1781305226.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حق ترین چیزی که میتونید امروز ببینید
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجدد صدای شنیده شدن انفجار در سیریک
+
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با اینکه داره خبر مذاکره میاد ولی همین الان صدای انفجار در سیریک گزارش شده @IranianMinds
+</div>
+
+## IranianMinds — post 22430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با اینکه داره خبر مذاکره میاد
+ولی همین الان صدای انفجار در سیریک گزارش شده
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22429
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عراقچی: اگر آخرین مرحله مذاکرات انجام بشه، تفاهم از راه دور (دیجیتالی) به امضای دو طرف میرسه و اعلام خواهد شد.
+
+
++ رابطه لانگ دیستنس باشه؟
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22428
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+البته ناگفته نماند عراقچی هروقت خبرای مثبت از مذاکره اورده بلافاصله جنگ شده
+</div>
+
+## IranianMinds — post 22427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقا من متوجه نمیشم
+
+
+انتقام خون حضرت آقا الان چی میشه؟
+به نظرم بسیجیا و ارزشیا باید انقلاب کنن
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22426
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عراقچی: دو تا موضوع مهم هنوز مونده برای توافق نهایی؛ یکی بحث تحریم‌ها، یکی هم مواد غنی‌شده. راه‌حلی که داریم اینه که غنی‌سازی ۶۰ درصد رو رقیق کنیم. در مورد تحریم‌ها هم، ما مشخص می‌کنیم که دقیقاً کدوم تحریم‌ها باید برداشته بشه.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283600
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283600_1781305227.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه امارات متحده عربی گزارش‌های منتشرشده در برخی رسانه‌های بین‌المللی درباره انتقال یا آزادسازی منابع مالی برای ایران را قاطعانه تکذیب کرد.
+
+این وزارتخانه در بیانیه‌ای در شبکه اجتماعی ایکس اعلام کرد که ادعاهای مطرح‌شده درباره انتقال مبالغ مالی از امارات به جمهوری اسلامی ایران، از جمله گزارش‌هایی درباره انتقال ۳ میلیارد دلار، «نادرست» است و هیچ مبنای واقعی ندارد.
+
+پیشتر رویترز به نقل از چهار منبع آگاه گزارش داد که امارات متحده عربی با آزادسازی میلیاردها دلار برای ایران موافقت کرده و بخشی از این منابع مالی نیز در اختیار تهران قرار گرفته است.
+
+اما وزارت خارجه امارات تاکید کرد که هیچ‌گونه دارایی یا منابع مالی ایران از طریق این کشور آزاد یا منتقل نشده است.
+
+در این بیانیه از رسانه‌ها خواسته شده است در انتشار اخبار به منابع رسمی استناد کنند و از بازنشر اطلاعات تاییدنشده خودداری کنند.
+
+https://bbc.in/4vPjV7h
+📷Ryan Lim / AFP via Getty Images
+@BBCPersian
+</div>
+
+## BBCPersian — post 283599
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283599_1781305228.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+در اولین بازی دومین روز جهام جهانی فوتبال مردان، دومین میزبان این دوره نتوانست از پس حریف اروپایی خود بر بیاید و کانادا و بوسنی و هرزگوین به تقسیم امتیازات رضایت دادند.
+
+این بازی که در شهر تورنتو برگزار شد، ابتدا مراسم افتتاحیه کانادا را به همراه داشت و سپس دو تیم به مصاف هم رفتند.
+
+با وجود حملات اولیه و کنترل بازی توسط کانادا در ابتدای کار اما این بوسنی بود که از یکی از کرنرها خود توانست استفاده کند و یوکو لوکیچ در دقیقه ۲۱ گل اول بازی را به ثمر رساند.
+
+در ادامه کانادا سعی کرد تا با کنترل بیشتر بازی بتواند از شکست بگریزد اما نیمه اول با همین نتیجه به پایان رسید.
+
+در نیمه دوم کانادا به تلاش‌ها خود ادامه داد تا اینکه با تعویض طلایی که مربی این تیم انجام داد در دقیقه ۷۸ کایل لارین میزبان را از شکست نجات داد.
+
+این سومین بازی جام جهانی ۲۰۲۶ و اولین تساوی این مسابقات بود. در دو بازی قبلی مکزیک و کره‌جنوبی توانسته بودند حریفان خود را شکست دهند.
+
+📷 IMAGN IMAGES/Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 283598
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283598_1781305229.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+عباس عراقچی، وزیر خارجه ایران در برنامه شامگاهی تلویزیون آن کشور گفت که «بیشتر از همیشه به تفاهم نزدیکیم. یعنی ممکن است در یکی دو روز آینده اتفاق بیفتد، ممکن است در عرض چند روز آینده اتفاق بیفتد.»
+
+او بار دیگر از رسانه‌های کشورش خواست تا از گمانه‌زنی‌هایی که می‌تواند «فضا را به مشوش کند که این فرصت را خدشه دار کند خودداری کنند.»
+
+آقای عراقچی می‌گوید که این یادداشت تفاهم، هرچند از لحاظ حجم دو صفحه یا یک صفحه و نیم است، بیش از دو ماه مورد مذاکره قرار گرفته و تمامی بندها و جملات آن بارها مورد بازبینی قرار گرفته‌اند.
+
+او گفت: «گزارش‌ها به موقع به شورای عالی امنیت ملی و نهادهای امنیتی ارائه شده و نیروهای نظامی نیز بر مباحث مهم، از جمله تنگه هرمز و خاتمه جنگ، نظارت داشته‌اند.»
+
+وزیر امور خارجه ایران می‌گوید: «نتیجه این کار، نتیجه خوبی برای منافع مردم ایران است که پیروزی‌های میدانی کشور را تثبیت می‌کند. این پیروزی‌ها همچنین حضور و اقتدار جمهوری اسلامی ایران را در عرصه داخلی و بین‌المللی تحکیم می‌کند.»
+
+https://bbc.in/3QGilFE
+📷EPA/Shutterstock
+@BBCPersian
+</div>
+
+## BBCPersian — post 283597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 شنیده شدن صدای انفجار در محدوده سیریک و از «سمت دریا»
+
+رسانه‌های ایران گزارش دادند که دقایقی پیش ساکنان بندر سیریک صدای انفجاری را شنیده‌اند.
+
+به‌گزارش خبرگزاری ایسنا تا این لحظه هیچ مقام رسمی یا نهادهای نظامی و انتظامی منطقه ماهیت این صداها را تایید یا تکذیب نکرده است.
+
+در همین حال برخی گزارش‌های داخلی حاکیست که صدای این انفجار ناشی از «شلیک هشدار به کشتی متخلف در تنگه هرمز است.»
+
+صداوسیمای جمهوری اسلامی هم گزارش داد که «صدا مربوط به مقابله نیرو دریایی ایران با شناورهای متخلف در تنگه هرمز است و ربطی به حملات آمریکا ندارد.»
+
+https://bbc.in/4e8gse2
+@BBCPersian
+</div>
+
+## BBCPersian — post 283596
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283596_1781305229.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+امروز و با شروع به کار بازار بورس نزدک در ایالات متحده، سهام شرکت اسپیس ایکس متعلق به ایلان ماسک برای اولین بار، برای خرید عمومی در دسترس قرار گرفت و او تبدیل به اولین تریلیونر جهان شد.
+
+سهام اسپیس ایکس درست قبل از ظهر به وقت محلی ایالات متحده وارد بازار بورس شد و بلافاصله به قیمت حدود ۱۵۰ دلار برای هر سهم رسید.
+
+پس از آن هم قیمت سهام به سرعت به ۱۶۰ دلار افزایش یافت و پس از آن نشانه‌هایی از افزایش قیمت دیده شد.
+
+با قیمت ۱۶۰ دلار، سهام این شرکت با ۱۸ درصد افزایش نسبت به قیمت تخمینی ۱۳۵ دلار به‌فروش رسید که روز پنجشنبه به اشتراک گذاشته شد.
+
+لحظاتی پیش از شروع معاملات اسپیس ایکس در نیویورک، ایلان ماسک، بنیانگذار و مدیرعامل این شرکت، از دفتر شرکتش در تگزاس سخنان افتتاحیه را ایراد کرد.
+
+آقای ماسک گفت: «قطعاً باور کردن اینکه یک شرکت کوچک که در انباری در ال سگوندو شروع به کار کرده، اکنون با بزرگترین عرضه اولیه سهام تا به امروز رسیده، دشوار است.»
+
+او افزود: «من به اسپیس ایکس کمتر از ۱۰ درصد شانس موفقیت می‌دادم.»
+
+https://bbc.in/4fJlGy4
+📷Reuters
+@BBCPersian
+</div>
+
+## BBCPersian — post 283595
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 گفت‌وگوی تلفنی وزرای خارجه پاکستان و سوئیس و احتمال سفر اسحاق‌دار به ژنو
+
+دولت پاکستان اعلام کرد که محمد اسحاق‌دار، معاون نخست‌وزیر و وزیر امور خارجه پاکستان، شامگاه امروز (جمعه) با ایگنازیو کاسیس، وزیر امور خارجه سوئیس، گفت‌وگوی تلفنی کرد.
+
+بنا به اعلامیه وزارت خارجه پاکستان، دو طرف در این گفت‌وگو درباره تحولات منطقه‌ای تبادل نظر کردند و از پیشرفت امیدوارکننده در مسیر دستیابی به تفاهم میان آمریکا و ایران استقبال کردند.
+
+وزارت خارجه پاکستان نوشته که وزیر امور خارجه سوئیس از نقش میانجی‌گرانه و برجسته پاکستان در حمایت از تعاملات دیپلماتیک و تلاش‌های این کشور برای پیشبرد روند صلح و ثبات در منطقه و فراتر از آن قدردانی کرد.
+
+این در حالی است که گزارش‌هایی از احتمال سفر آقای دار به ژنو در ارتباط با تفاهم احتمالی ایران و آمریکا نیز منتشر شده است.
+
+https://bbc.in/4vLXKyL
+@BBCPersian
+</div>
+
+## BBCPersian — post 283594
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283594_1781305230.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌ ‌
+چهار منبع به رویترز گفته‌اند که امارات متحده عربی با «آزادسازی میلیاردها دلار برای ایران موافقت کرده است.»
+
+به گفته این منابع چنین اقدامی نشان‌دهنده تغییر تاکتیکی در رویکرد ابوظبی پس از هفته‌ها حملات ایران به آن کشور ثروتمند حاشیه خلیج فارس در جریان جنگ آمریکا و اسرائیل با جمهوری اسلامی است.
+
+خبر این اقدام که پیش‌تر گزارش نشده بود، همزمان با مراحل پایانی مذاکرات گسترده‌تر میان تهران و واشنگتن برای پایان دادن به جنگ منتشر می‌شود. دیپلمات‌ها می‌گویند که این مذاکرات ممکن است شامل آزادسازی ده‌ها میلیارد دلار از درآمدهای نفتی ایران باشد که تحت تحریم‌های آمریکا در بانک‌های خارجی مسدود شده است.
+
+این در حالیست که پیشتر جی‌دی ونس، معاون دونالد ترامپ گفته بود که در صورت امضای توافق با ایران هیچ‌گونه پولی از اموال مسدود شده ایران آزاد نخواهد شد.
+
+اما دو منبع منطقه‌ای به رویترز گفتند که امارات با «آزادسازی در مجموع ۱۰ میلیارد دلار موافقت کرده که بیش از ۳ میلیارد دلار آن تاکنون در اختیار ایران قرار گرفته است.»
+
+https://bbc.in/4egAVMj
+📷Dimas Ardian/Bloomberg via Getty Images
+@BBCPersian
+</div>
+
+## BBCPersian — post 283593
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283593_1781305230.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک مامور پلیس تورنتو در عملیات مرتبط با تیراندازی سه ماه پیش در مقابل کنسولگری آمریکا کشته شده است.
+
+به گفته سرویس پلیس تورنتو، این مامور در ساعات اولیه بامداد پنجشنبه، هنگام تبادل آتش در یک ساختمان بلند هدف گلوله قرار گرفت و سپس در بیمارستان مرگ او اعلام شد.
+
+پلیس در حال تحقیق درباره مظنونانی بود که گفته می‌شود اوایل سال جاری به سمت ساختمان کنسولگری آمریکا در تورنتو تیراندازی کرده بودند. رویدادی که مقام‌های آمریکایی و کانادایی آن زمان آن را «حادثه‌ای مرتبط با امنیت ملی» توصیف کردند.
+
+به گفته مایرون دمیکیو، رئیس پلیس تورنتو، یکی از مظنونان که «زارا جبی» ۱۹ ساله معرفی شده، همچنان متواری است و «مسلح و خطرناک» تلقی می‌شود.
+
+آقای دمیکیو گفت: « از همه شهروندان درخواست می‌کنم در صورت مشاهده او، بی‌درنگ با ۹۱۱ تماس بگیرند.»
+
+بیشتر بخوانید:
+https://bbc.in/4fJt5xd
+📸Getty Images
+</div>
+
+## Dirty_Kids — post 391859
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/391859" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریتزوبت تنها سایت بین المللی میباشد ، که به صورت هفتگی پرومو کد دریافت میکنید ✅
+
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+#پیشبینی
+🔵ریتزوبت برندی با لایسنس معتبر در صنعت شرطبندی و پیشبینی مسابقات ورزشی و کازینویی 👇
+
+https://t.me/+LB508WZyIr8xNmY0
+</div>
+
+## Dirty_Kids — post 391858
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀شاید برای شما سوال شود چرا ریتزوبت ؟!
+
+💠محیطی امن و مطمئن برای کاربران
+💠 برداشت جوایز کمتر از 10 دقیقه
+💠تحت کاملترین لایسنس شرطبندی
+💠فعال در دنیا با 52 زبان +(فارسی)
+💠درگاه کارت به کارت و انواع ووچر
+💠بونوس 100% هر یکشنبه و چهارشنبه
+
+📮⬅️ این ها تنها بخشی از امکانات سایت بین المللی ریتزوبت میباشد ✅
+
+پشتیبان فارسی ریتزوبت در تلگرام 👇
+📲@RitzoBetsupports
+
+
+➖
+➖
+➖
+➖
+➖
+➖
+
+🔰لینک ⬅️ سایت بین المللی RitzoBet👇
+A22
+🌐 RitzoBet.com
+🆔 @RitzoBet_ir
+</div>
+
+## Dirty_Kids — post 391857
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391857_1781305231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391856
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391856_1781305231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم رو جنازه‌ت عروسی گرفتن هم چالت نکردن هم دارن با قاتلت توافق میکنن.
+خلاصه‌ ترامپ تورو کشت، عرزشیا هم گاییدنت.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391855
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391855_1781305231.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+​​هر کس که تصویر ترسناکی از اقتصاد بازار آزاد براتون ترسیم کرد، بزنید تو گوشش، حتی اگر شما ندونید چرا زدید، خودش خوب می‌دونه چرا خورده!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391854
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391854_1781305233.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واقعا جذابه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391851
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عر‌عر و ضجه زدنای عرزشیا شروع شد 😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391850
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391850_1781305234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏شما بهش میگید توافق
+ما بهش میگیم تسلیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391849
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391849_1781305235.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس‌از چالش "کونتو تکون بده و ویو بگیر" حالا داره چالش "ممه‌هاتو نشون بده و ویو بگیر" ترند جهانی میشه!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391848
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یحیی سینوار یکسال توی تونلای غزه زندگی میکرد و دقیقا روزی که اومد بیرون، اسرائیل مثل سگ کشتش
+
+این برای همه اونایی که الان زیر تونل قایم شدن هم صدق میکنه
+
+اسرائیل یا راهی خواهد یافت و یا قطعا راهی خواهد ساخت که ازون زیر بیارتتون بیرون :)
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391847
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391847_1781305236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من و رفیقام وقتی ۵ لیتر عرق تو ماشین جاساز کردیم:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391846
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391846_1781305238.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق آخرین اخبار، بعد از محمدرضا شهبازی، به استاد رائفی پور هم تجاوز گروهی کردن :))
+
+الان میاد تحلیل می‌کنه که کون من نذاشتن، من کیر دشمنو به اسارت گرفتم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391845
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۰:۳۰ بامداد شنبه؛ یک ملوان ایرانی به من اطلاع داد در بیسیم صدای یک ملوان دیگر را با لهجه هندی شنیده است که می‌گوید کشتی آن‌ها در تنگه‌ی هرمز هدف اصابت یک پرتابه از سمت سپاه پاسداران قرار گرفته است.
+
+در ادامه ملوان خارجی اعلام می‌کند هیچکس در کشتی مجروح نشده است اما سمت چپ کشتی آسیب دیده است.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391844
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391844_1781305238.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فووووووری!
+آیت‌الله ترامپ رسما توبه کرد!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391843
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391843_1781305239.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من اطلاع موثق دارم که تیم ممدباقر شغال طرقبه و عراقچی هزارپدر رهبرتون و هر چی سپاهی بود رو با قاتلش معامله کردن که هیچ، هسته‌ای مسته‌ایم دادن رفت.
+بی‌پدر بودید، بی‌پدرتر شدید.
+
+اَینَ مُنتقمون بدبختا؟
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391842
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391842_1781305239.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏پر فروشترین کتاب سال عرزشی ها
+حیدععععععر حیدعععععر
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127525
+
+<div align="center">
+  <a href="telegram/content/alonews_127525_1781305239.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توهین‌ناموسی محمدحسین میثاقی نسبت به منتقدان تیم قلعه‌نویی
+@AloSport
+</div>
+
+## alonews — post 127524
+
+<div align="center">
+  <a href="telegram/content/alonews_127524_1781305240.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: به نظر میرسد نتانیاهو در جریان تماس تلفنی با ترامپ متوجه شده که نمیتواند مانع از انعقاد توافق با ایران شود‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127523
+
+<div align="center">
+  <a href="telegram/content/alonews_127523_1781305241.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شیوه جدید لب گرفتن و بوسیدن همدیگه توی فیلمای ایرانی:
+
+[@AloTweet]
+</div>
+
+## alonews — post 127522
+
+<div align="center">
+  <a href="telegram/content/alonews_127522_1781305242.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امارات گزارش‌های مبنی بر انتقال میلیاردها دلار به ایران از جمله پرداخت ۳ میلیارد دلاری ادعایی را رد کرده و اعلام کرده است که هیچ دارایی مسدود شده ایران آزاد، انتقال یا پردازش نشده است و این اتهامات را نادرست و غیرقابل اثبات می‌داند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127521
+
+<div align="center">
+  <a href="telegram/content/alonews_127521_1781305242.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈استانداری هرمزگان: صدای انفجاری که دقایقی پیش تو بندر سیریک شنیده شد، بخاطر شلیک هشدار به کشتی‌های متخلف تو تنگه هرمز بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127520
+
+<div align="center">
+  <a href="telegram/content/alonews_127520_1781305242.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله شدید تندروها به قالیباف
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127519
+
+<div align="center">
+  <a href="telegram/content/alonews_127519_1781305242.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اعتراف عروس و معشوقه به قتل شوهر؛ راز گم شدن کیارش پس از دو سال فاش شد
+
+
+🔴دو سال پس از گزارش پدر کیارش مبنی بر ناپدید شدن پسرش، فیلمی از قرار مخفیانه عروس خانواده (ملینا) با مردی غریبه، راز این پرونده را فاش کرد.
+
+
+🔴پلیس هر دو را بازداشت و آنها بلافاصله به قتل کیارش با همدستی یکدیگر اعتراف کردند.
+
+
+🔴ملینا گفت که با همدستی بهروز (مرد مورد نظر)، شوهرش را به قتل رسانده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127517
+
+<div align="center">
+  <a href="telegram/content/alonews_127517_1781305242.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویری جدید از ابوطالب حسینی که خود را شبیه یکی از وحید جلیلی، قائم مقام صدا و سیما در آورده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127516
+
+<div align="center">
+  <a href="telegram/content/alonews_127516_1781305243.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈افزایش فعالیت نیروی هوایی آمریکا (USAF) بر فراز خلیج فارس و عربستان سعودی
+
+۵ فروند هواپیمای سوخت‌رسان نیروی هوایی آمریکا اکنون بر فراز خلیج فارس و عربستان سعودی در حال پرواز هستند
+
+۱ فروند هواپیمای هشدار زودهنگام و کنترل E-3B Sentry (آواکس) نیروی هوایی آمریکا در حال پرواز بر فراز شرق عربستان سعودی است
+
+۱ فروند هواپیمای شناسایی و شنود سیگنالی RC-135W Rivet Joint نیروی هوایی آمریکا در حال فعالیت بر فراز خلیج فارس است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127515
+
+
+
+
+## alonews — post 127514
+
+<div align="center">
+  <a href="telegram/content/alonews_127514_1781305243.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هواپیمای جنگ الکترونیک RC-135W و یک سوخت رسان آمریکایی در نزدیکی ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127513
+
+<div align="center">
+  <a href="telegram/content/alonews_127513_1781305243.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مراد ویسی: جمهوری اسلامی رهبرشو کشتن، ۵۲ مقامشو ترور کردن، بعد کشوندنش سر میز و گفتن حالت بتمرگ و امضا کن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127512
+
+<div align="center">
+  <a href="telegram/content/alonews_127512_1781305244.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای انفجار در قشم و سیریک 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127511
+
+<div align="center">
+  <a href="telegram/content/alonews_127511_1781305244.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای انفجار در قشم و سیریک
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127510
+
+<div align="center">
+  <a href="telegram/content/alonews_127510_1781305245.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فاینشنال تایمز: اورانیوم غنی شده ایران، نابود خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127509
+
+<div align="center">
+  <a href="telegram/content/alonews_127509_1781305245.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: یادداشت تفاهم کمتر از ۲ صفحه است و کلمه‌به‌کلمه آن بارها بالاپایین شده و وزارت خارجه با نهایت دقت تمام موارد خواسته شده را لحاظ کرده.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127508
+
+<div align="center">
+  <a href="telegram/content/alonews_127508_1781305245.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگن این ویدیو باعث شده ترامپ توافق رو قبول کنه
+
+[@AloTweet]
+</div>
+
+## alonews — post 127507
+
+<div align="center">
+  <a href="telegram/content/alonews_127507_1781305246.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گفت و گوی امیر قطر با ترامپ درباره پیشرفت مذاکرات بین آمریکا و ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127506
+
+<div align="center">
+  <a href="telegram/content/alonews_127506_1781305246.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نبویان: توافقی که با پخت و پز بانیان توافق ننگین برجام باشد حتما خسارت محض است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/22 23:11
 ---
 
