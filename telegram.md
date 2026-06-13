@@ -7,6 +7,926 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 00:55
+---
+
+## VahidOOnLine — post 245367
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245367_1781385937.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بدر عبدالعاطی، وزیر امور خارجه مصر، در تماس تلفنی با استیو ویتکاف، نماینده ویژه رئیس‌جمهوری آمریکا، آخرین تحولات مربوط به مذاکرات واشنگتن و تهران را برای دستیابی به توافق صلح جهت کاهش تنش‌های منطقه‌ای بررسی کرد. در این گفتگوی تلفنی که شنبه‌شب، ۲۳ خردادماه، انجام شد، وزیر خارجه مصر با تاکید بر حمایت قاطع قاهره از تلاش‌ها برای دست‌یابی به یک توافق جامع که دغدغه‌های همه طرف‌ها را در نظر بگیرد، بر اهمیت غنیمت شمردن فرصت کنونی برای پایان دادن به مناقشات و ورود خاورمیانه به مرحله جدیدی از امنیت و ثبات تاکید کرد. ویتکاف نیز با قدردانی از تلاش‌های فشرده کشورهای منطقه از جمله مصر در حمایت از روند این مذاکرات، ابراز امیدواری کرد که توافق احتمالی پیش‌رو به تقویت صلح و ثبات پایدار در منطقه کمک شایانی کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245366
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245366_1781385937.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیان عبداللهی، سردبیر خبرگزاری تسنیم، رسانه وابسته به سپاه پاسداران، در گفت‌وگو با صدا و سیمای جمهوری اسلامی گفت احتمال توافق نهایی با آمریکا پس از امضای یادداشت تفاهم «بسیار بسیار ضعیف» است.
+
+او افزود: «احتمال عهدشکنی آمریکا را در هر لحظه‌ای باید در نظر گرفت و حمله ناگهانی را مد نظر داشت.»
+
+عبداللهی تاکید کرد مسئولیت مفاد یادداشت تفاهم احتمالی میان آمریکا و جمهوری اسلامی و اجرای آن بر عهده تیم مذاکره‌کننده و دولت جمهوری اسلامی است؛ اظهاراتی که به‌نظر می‌رسد تلویحا مسئولیت این روند را از مجتبی خامنه‌ای دور می‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245365
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245365_1781385938.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پس از آنکه دونالد ترامپ، رئیس جمهوری آمریکا اعلام کرد که توافق صلح میان تهران و واشنگتن در روز یکشنبه امضا خواهد شد، تصویری از خودش در کنار کیم جونگ اون، رهبر کره‌شمالی را در سالگرد دیدار تاریخی‌شان منتشر کرد. او همزمان تصویر دیگر از خودش با عبارت «فقط ترامپ» را به اشتراک گذاشت که به نظر می‌رسد قصد اشاره به این موضوع را دارد که می‌تواند کارهای غیرممکنه را ممکن کند.
+دونالد ترامپ و کیم جونگ اون، صبح سه‌شنبه ۱۲ ژوئن ۲۰۱۸ در هتل «کپلا» واقع در جزیره سنتوزای در سنگاپور، پشت درهای بسته گفتگو کردند. این نخستین دیدار سران دو کشور پس از پایان جنگ کره در سال ۱۹۵۳ بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245364
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245364_1781385939.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در رسانه‌های اجتماعی نشان می‌دهد شامگاه شنبه ۲۳ خرداد، جمعی از حامیان تندروی جمهوری اسلامی در تهران تجمع کرده و شعارهایی همچون «قالیباف، عراقچی، پس خون رهبرم چی؟» و «عراقچی حیا کن، مملکت رو رها کن» سر دادند.
+بخشی از حامیان حکومت در روزهای اخیر، وزارت خارجه و تیم مذاکره‌کننده را به دادن امتیاز به آمریکا متهم کرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14755
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید کلیک کنید کارای‌ اداریش رو انجام بدید😁✌🏾
+
+https://www.instagram.com/reel/DZimqXCxxza/?igsh=Z3lhb2FhYWhlc2Yz
+
+بسیجی‌ در ‌برابر سرکوبگر برنامه امشب خیابان های‌ تهران 🥴
+استقبال زیاد باشه بازیشو میسازم 🤣
+</div>
+
+## WithYashar — post 14754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد اسرائیلی به وای نت:
+
+این یک توافق بد است. هیچ‌کس از آن راضی نیست. آنها می‌فهمند که این برای ما خوب نیست و به منافع اسرائیل آسیب می‌زند.
+چیزی که نگران‌کننده است این است که اسرائیل نمی‌تواند تأثیر بگذارد و صدایش شنیده نمی‌شود.
+این عمدتاً یک «توافق جام جهانی-جشن‌های ۲۵۰ سالگی تولد ۸۰ سالگی ترامپ» است.
+هدف این است که برای همه رویدادهای بزرگ فعلی در آمریکا کمی آرامش بخرد. واقعاً چیزی نیست که دوام بیاورد.
+@withyashar
+</div>
+
+## WithYashar — post 14753
+
+
+
+
+## WithYashar — post 14752
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق فایت با شما : میدون ابن سینا درگیری شده
+بین مامورا و تند روهاااا
+میدون ابن سینا رو کامل بستن
+@withyashar
+</div>
+
+## WithYashar — post 14751
+
+
+
+
+## WithYashar — post 14750
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نبویان: آمریکا پیروز شد
+@withyashar
+</div>
+
+## pm_afshaa — post 93829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شعارهای فراخوان فردا :
+
+1- تا باقر کفن نشود این وطن وطن نشود.
+2- مرگ بر سه لاشی، قالی مسعود عراقچی.
+3- این توافق خونیه، باقر خودش کونیه.
+4- عدس پلو با ماستش، تسبیحم تو دست راستش.
+5- دلای ما خونیه، عراقچی‌مون کونیه.
+6- باقالی پلو با گردن، قالیبافو کردن.
+7- باقالی پلو با گردن، سازشگرا رو کردن.
+8- خون رهبر می‌جوشه، عباس وطن فروشه.
+9- آقا فکر شهادت، باقر فکر سیاست.
+
++ نکات امنیتی رو حتما رعایت کنید:
+با چفیه صورت خودتونو بپوشونید، اپ‌های جاسوسی داخلی رو حذف کنید، عطر مشهدی نزنید شناسایی نشید.
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93828
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93828_1781385940.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عبداللهی، سردبیر خبرگزاری تسنیم:
+احتمال توافق نهایی با آمریکا بسیار بسیار ضعیفه؛ باید برای حمله ناگهانی آماده بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سهام ساندیس سقوط کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من خودم بسیجی‌ام ولی الان بحث بحث وطنه.
+</div>
+
+## pm_afshaa — post 93825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو رستم تهمتنی امضا بزن که خوب میزنی
+</div>
+
+## pm_afshaa — post 93824
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93824_1781385940.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آخوند نبویان، نایب رئیس کمیسیون امنیت ملی: با این توافق جمهوری اسلامی مستعمره آمریکا خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93823
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93823_1781385941.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آخوند نبویان: طبق متن توافق، همه چیز از دست جمهوری اسلامی خارج خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93822
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93822_1781385943.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با این حرفا به خودشونم دیس میدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93821
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93821_1781385943.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک منبع ارشد اسرائیلی به اسرائیل هیوم:
+در صورت شکست توافق، موضوع تغییر حکومت ایران روی میز قرار میگیره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87975
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87975_1781385943.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴احتمالا با وضعیت امشب در مشهد و قم و تهران اگر مختار زنده بود میگفت
+زبیریان علیه امام عصر شوریده اند
+مالک اشتر به میدان برو و تار و مارشان کن
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342146
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342146_1781385944.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروهی از حامیان تندروی جمهوری اسلامی در تجمع خود در شامگاه شنبه ۲۳ خرداد، با متهم کردن محمدباقر قالیباف، رییس مجلس، و عباس عراقچی، وزیر خارجه، به دادن امتیازهای بیش از حد به آمریکا در مذاکرات، خواستار کناره‌گیری آن‌ها شدند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 342145
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342145_1781385945.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال سوئیس در اولین مسابقه خود در جام جهانی ۲۰۲۶ برابر قطر با تساوی یک بر یک متوقف شد.
+
+🔹شاگردان یاکین با گل دقیقه ۱۷ امبولو از روی نقطه پنالتی از عنابی‌ها پیش افتادند اما شاگردان لوپتگی با گل دقیقه ۵+۹۰ بوعلام خوخی یک امتیاز طلایی را کسب کردند.
+
+🔹به این ترتیب هر چهار تیم کانادا، سوئیس، قطر و بوسنی و هرزگوین با یک امتیاز به کار خود در دور اول بازی‌های گروه B پایان دادند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342143
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342143_1781385946.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیان عبداللهی، سردبیر خبرگزاری تسنیم، رسانه وابسته به سپاه پاسداران، در گفت‌وگو با صدا و سیمای جمهوری اسلامی گفت احتمال توافق نهایی با آمریکا پس از امضای یادداشت تفاهم «بسیار بسیار ضعیف» است.
+
+او افزود: «احتمال عهدشکنی آمریکا را در هر لحظه‌ای باید در نظر گرفت و حمله ناگهانی را مد نظر داشت.»
+
+عبداللهی تاکید کرد مسئولیت مفاد یادداشت تفاهم احتمالی میان آمریکا و جمهوری اسلامی و اجرای آن بر عهده تیم مذاکره‌کننده و دولت جمهوری اسلامی است؛ اظهاراتی که به‌نظر می‌رسد تلویحا مسئولیت این روند را از مجتبی خامنه‌ای دور می‌کند.
+https://iranintl.com/202606130530
+</div>
+
+## IranIntlTV — post 342142
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342142_1781385946.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در رسانه‌های اجتماعی نشان می‌دهد شامگاه شنبه ۲۳ خرداد، جمعی از حامیان تندروی جمهوری اسلامی در تهران تجمع کرده و شعارهایی همچون «قالیباف، عراقچی، پس خون رهبرم چی؟» و «عراقچی حیا کن، مملکت رو رها کن» سر دادند.
+بخشی از حامیان حکومت در روزهای اخیر، وزارت خارجه و تیم مذاکره‌کننده را به دادن امتیاز به آمریکا متهم کرده‌اند.
+</div>
+
+## FarsiVOA — post 220621
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220621_1781385947.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حاشیه‌های روز دوم و روز سوم جام جهانی ۲۰۲۶
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220620
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نهاد حکومتی در ایران حمله سایبری به چهار بانک بزرگ را تائید کرد
+
+▪️در ایران، «شورای هماهنگی بانک‌ها» که یک نهاد دولتی است، روز شنبه ۲۳ خرداد حمله سایبری به چهار بانک ملی، تجارت، صادرات و توسعه صادرات را تائيد کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/the-coordination-council-of-state-owned-banks-confirmed-a-cyberattack-on-fiur-iranian-banks/8160495.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16988
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16988_1781385948.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نبویان: طبق متن توافق، همه چیز از دست جمهوری اسلامی خارج خواهد شد.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16987
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16987_1781385950.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👥خونخواهی کاروان انتقام در دفتر آیه الله جوادی آملی
+
+
+✊ این کاروان پاشدن پیاده از تهران به قم رفتن😳
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16986
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16986_1781385950.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۱۰۰ نفر اما پر سر و صدا!
+
+طبق مشاهدات میدانی خبرنگار «انتخاب» در مشهد، جمعیت سازماندهی شده جریان جلیلی، پایداری و بقایای دولت مرحوم رئیسی جهت تجمع علیه مذاکرات و توافق، از صد نفر هم تجاوز نمی‌کند
+
+همزمان، این جریان از تاکتیکی نخ‌نما جهت القای تعداد بالای حامیان خود استفاده کرده است
+
+بدین منظور، دسته های صدنفره را در سه شهر قم، مشهد و تهران سازماندهی کرده و به آن‌ها ماموریت داده تا برای یک ساعت در مقابل تعدادی از نهادها و دفاتر مختلف از جمله دفاتر مراجع تجمع کنند
+</div>
+
+## Persian_Trend_Official — post 16985
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16985_1781385951.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشدار حمله راکتی حزب‌الله لبنان به متولا اسرائیل
+
+مقامات اسرائیلی تا پیش از این اعلام کرده بودن هرگونه حمله موشکی به شهرک های شمالی اسرائیل را با حمله به ضاحیه بیروت پاسخ خواهند داد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22498
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22498_1781385951.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## IranianMinds — post 22497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واکنش ترامپ به دعواهای حکومتی‌ها:
+
+همینطور ادامه دهید، کمک در راه است.
+</div>
+
+## IranianMinds — post 22496
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نکات ایمنی برای حضور در اعتراضات
+
+۱ - چفیه نذارید ماسک بزنین به صورتتون
+۲ - عطر مشهد و گلاب نزنین تا شناسایی نشین
+۳ - اپلیکیشن بله و ایتا و روبیکا رو حذف کنین برای ساعاتی
+</div>
+
+## IranianMinds — post 22495
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو رستم تهمتنی امضا بزن که خوب میزنی
+</div>
+
+## IranianMinds — post 22494
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22494_1781385952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عرزشیا درخواست تجمع برای نجات مجتبی از اسارت قالیباف و پزشکیان رو دادن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22493
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش من بسیجی ام یه ماه دارم تو خیابون پرچم دستم میگیرم تکون میدم رهبرمم هنوز خاک نشده بعد این حرومیا رفتن توافق کردن
+</div>
+
+## IranianMinds — post 22492
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اقا نظرتون چیه بریم توی نیرو سرکوب ثبت نام کنیم اعتراضات رو سرکوب کنیم؟
+</div>
+
+## IranianMinds — post 22491
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22491_1781385952.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حجت‌السلام نبویان: طبق متن توافق، ما مستعمره آمریکا میشیم. آقای عراقچی هرچی آمریکا گفته رو گفته چشم، رد نکرده.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283737
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283737_1781385954.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊پوریا ژافره، خبرنگار اعزامی بی‌بی‌سی فارسی، لس‌آنجلس
+
+⚽️گزارش شده از ۱۵ عضو فنی و اداری هیئت همراه تیم ملی ایران که درخواست ویزای آمریکا آنها در ترکیه رد شده بود، ۱۰ نفر درخواست تجدیدنظر داده‌اند و حالا چهار نفر موفق به دریافت ویزا شده‌اند؛ دو نفر از اعضای دپارتمان بین‌الملل فدراسیون، یک نماینده حراست و یکی از آنالیزورهای کادر فنی تیم ملی.
+
+اما درخواست شش نفر دیگر بار دیگر رد شده است؛ از جمله مهدی تاج، رئیس فدراسیون فوتبال ایران، مهدی محمدنبی، سرپرست تیم ملی و یکی از مدیران رسانه‌ای فدراسیون.
+
+با وجود این تاییدیه‌های جدید، هنوز مشخص نیست تیم ملی ایران چگونه وارد خاک آمریکا خواهد شد. منابع نزدیک به من گفتند که یکی از گزینه‌های مورد بررسی، انتقال کاروان ایران از تیخوانا در مکزیک به سن‌دیگو از طریق مرز زمینی و سپس حرکت به سمت لس‌آنجلس است، هرچند هنوز احتمال تغییر برنامه‌ها در آخرین لحظات وجود دارد.
+
+فعلا به نظر می‌رسد تیم ملی ایران قصد دارد روز یکشنبه، پیش از دیدار با نیوزیلند، وارد لس‌آنجلس شود تا در برنامه‌های رسمی فیفا پیش از مسابقه، از جمله نشست خبری و تمرین رسمی تیم، شرکت کند.
+📷AFP via Getty
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شعارها برای تجمعات: ۱_ نتم شده تیری‌جی، کص ننت عراقچی ۲_ مرگ بر سه لاشی، قالی مسعود عراقچی. ۳_ این توافق خونیه، باقر خودش کونیه. ۴_ خایه بخور با سینی/ عباس بچه قینی. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با فیلترشکن «الله و عمامه» میتونید وصل بشید به آی‌پی قم و وارد روبیکا و بله بشید
+
+اینو وارد کنید👇
+
+90.90.ko3e.nanat.arzeshi
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391955
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391955_1781385954.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون جاسوسای روسیه و پوتین در خرم‌آباد: شعار کل کشور، فقط شروط رهبر.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شعارها برای تجمعات:
+
+۱_ نتم شده تیری‌جی، کص ننت عراقچی
+
+۲_ مرگ بر سه لاشی، قالی مسعود عراقچی.
+
+۳_ این توافق خونیه، باقر خودش کونیه.
+
+۴_ خایه بخور با سینی/ عباس بچه قینی.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391953
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نکات ایمنی برای اعتراضات:
+
+۱ـ چفیه نذارین، ماسک بزنین به صورتتون.
+۲ـ عطر مشهد و گلاب نزنین تا شناسایی نشین.
+۳ـ اپلیکیشن بله، ایتا و روبیکا رو برای ساعاتی حذف کنین.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391952
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باقالی پلو با گردن/  قالیبافو کردن
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391951
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391951_1781385956.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏+بابام دلش خواسته برینه تو خون رهبری..
+
+این جُرمِههههه؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزند جمهوری اسلامی و جان فدای اسلام
+
+عبدالله محمدی ۸۰ ساله، ۸۰ ساله، ۸۰ ساله ۲۴ خرداد قم عزیز
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391949
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391949_1781385956.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریدممممم، عرزشیا چه دیسی به خودشون میدن😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعضی از کانال‌های حکومتی قحبه خبر از بستن کانال‌های خبری‌ مخالفان تفاهم‌نامه در اپ‌های کیری بله مله می‌دن و خود بله مله رو هم مختل کردن،
+
+ضمن اینکه خبر از گلاویزی بین کسمغزای شیعه‌سان کف خیابونی با نیروهای امنیتی روافظ هزارپدر در شهرهای تهران، مشهد و قم دادن‌.
+</div>
+
+## Dirty_Kids — post 391947
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391947_1781385956.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عاقا موشتبی بَمِرده،رهبر مویوم
+
+همه چیز هم الکترونیکی امضا موکونوم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391946
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391946_1781385957.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشیا رفتن شعار میدن: قالیباف عراقچی پس خون رهبرم چی؟
+والا شاشیدن تو خون رهبرتون تموم شد رفت دیگه. سخت نگیرید.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391945
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391945_1781385957.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واقعنی جدی جدی من کیرتونم نبودم 😭😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391944
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391944_1781385957.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بیانیه فوری قالیباف در مورد تجمعات امشب:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391943
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میزاشتید یخ‌ش اب بشه بعد توافق میکردید😭😭😭😭
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127757
+
+<div align="center">
+  <img src="telegram/content/alonews_127757_1781385958.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حسین طاهری مداح در میدان انقلاب: تندروهایی که امروز شلوغ‌کاری کردن هم ردیف طرفدارای پهلوی هستن که شلوغ کردن، باید مطیع رهبر بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127756
+
+<div align="center">
+  <a href="telegram/content/alonews_127756_1781385959.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شعار در تجمعات امروز: اگر چیزی امضا شه، مسئول باید کشته شه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127755
+
+<div align="center">
+  <img src="telegram/content/alonews_127755_1781385960.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بدون شرح از روبیکا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127754
+
+<div align="center">
+  <img src="telegram/content/alonews_127754_1781385961.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست یک کانال مطرح عبری در تلگرام در واکنش به تجمعات پرحاشیه امشب:
+خشم بی‌سابقه‌ای در این ساعات خیابان‌های پایتخت ایران را فرا گرفته است. هزاران معترض حامی رژیم به درگیری‌های مستقیم با نیروهای امنیتی برخاسته‌اند
+
+
+🔴وضعیت بحرانی – فریادهای مستقیم علیه رده‌های بالای حکومت:
+معترضان در تهران سد ترس را می‌شکنند و خشم خود را مستقیماً به مقامات ارشد رژیم معطوف می‌کنند. فریادهای شدید توهین‌آمیز اکنون در خیابان‌ها علیه وزیر امور خارجه عباس عراقچی و رئیس پارلمان محمدباقر قالیباف شنیده می‌شود.
+
+
+🔴توافق با آمریکا در خیابان های ایران به عنوان «توافق تسلیم» شرم‌آور و خیانت کامل تلقی می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127753
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واشنگتن پست:
+قطر به ایران پیشنهاد یک معامله مخفی علیه اسرائیل و آمریکا را داد که بر اساس آن ایران به قطر حمله نخواهد کرد و در عوض قطر تولید گاز را متوقف خواهد کرد تا قیمت انرژی را افزایش دهد و غرب را برای پایان دادن به جنگ تحت فشار قرار دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127752
+
+<div align="center">
+  <a href="telegram/content/alonews_127752_1781385961.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نبویان، عضو کمیسیون امنیت ملی مجلس که متن نهایی رو دیده :
+
+با امضای این توافق، رسما مستعمره آمریکا می‌شیم!
+هر بار که ترامپ بند جدید اضافه کرد، آقایان عقب‌نشینی کردن و گفتن چشم.
+تنگه‌ی هرمز بلافاصله و بدون محدودیت و عوارض، باز میشه؛ حتی واسه اسرائیل.
+مواد هسته‌ای باید رقیق بشه.
+کوچک‌ترین غنی سازی بخوایم انجام بدیم، قبلش باید از آمریکا اجازه بگیریم! حتی واسه ساختن دارو و برق و...
+آزادسازی پول‌های مسدود شده؟ معلوم نیست.
+منفعت ایران از صندوق 300 میلیارد دلاری؟ معلوم نیست.
+رفع تحریم ها ؟ معلوم نیست.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127751
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گویا تندروها فردا هم فراخوان دادن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127750
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام ارشد اسرائیلی به وای نت:
+
+
+🔴این یک توافق بد است. هیچ‌کس از آن راضی نیست. آنها می‌فهمند که این برای ما خوب نیست و به منافع اسرائیل آسیب می‌زند.
+
+
+🔴چیزی که نگران‌کننده است این است که اسرائیل نمی‌تواند تأثیر بگذارد و صدایش شنیده نمی‌شود.
+
+
+🔴این عمدتاً یک «توافق جام جهانی-جشن‌های ۲۵۰ سالگی تولد ۸۰ سالگی ترامپ» است.
+
+
+🔴هدف این است که برای همه رویدادهای بزرگ فعلی در آمریکا کمی آرامش بخرد. واقعاً چیزی نیست که دوام بیاورد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127749
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈انتخاب: تو مشهد کلا ۱۰۰نفر تندرو تجمع کردن اما هیاهو راه انداختن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127748
+
+<div align="center">
+  <img src="telegram/content/alonews_127748_1781385963.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری فارس گرای ادامه شلوغی‌ها داد
+
+
+🔴۸۰ درصد شرکت‌کنندگان توافق را به ضرر کشور می‌دانند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127746
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈درگیری به روزنامه‌ها کشیده شد
+
+
+🔴دیس و دیسبک دو روزنامه نوبنیاد و سازندگی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127745
+
+<div align="center">
+  <a href="telegram/content/alonews_127745_1781385964.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شعار مرگ بر قالیشاه در تجمع پایداری‌ها
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127744
+
+<div align="center">
+  <img src="telegram/content/alonews_127744_1781385966.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیافه یه پایدارچی رندوم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127743
+
+<div align="center">
+  <a href="telegram/content/alonews_127743_1781385966.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤴رضاشاه روحت شاد🔴فقط تو میدونستی این جماعت چه احمقین.✅@AloNews
+</div>
+
+## alonews — post 127742
+
+<div align="center">
+  <img src="telegram/content/alonews_127742_1781385967.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت کامنتا😂
+
+
+🔴من خودم بسیجیم ولی الان بحث بحث انتقام رهبر شهیده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127741
+
+<div align="center">
+  <img src="telegram/content/alonews_127741_1781385967.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نبویان: آمریکا پیروز شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127740
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نکات ایمنی برای تندروها:
+
+۱ـ چفیه نذارین، ماسک بزنین به صورتتون.
+۲ـ عطر مشهد و گلاب نزنین تا شناسایی نشین.
+۳ـ اپلیکیشن بله، ایتا و روبیکا رو برای ساعاتی حذف کنین.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127739
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خطاب به تندروها:
+
+
+🔴هر کی ناراحته از ایران میتونه جمع کنه بره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127738
+
+<div align="center">
+  <a href="telegram/content/alonews_127738_1781385968.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یکی از مخالفان توافق:
+بر پدر و مادرتون لعنت غرب گراهای بدبخت. عراقچی خاک بر سرت. مردم دارن سکته میکنن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 23:45
 ---
 
