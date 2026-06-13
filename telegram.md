@@ -7,6 +7,1441 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/23 22:08
+---
+
+## VahidOOnLine — post 245351
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245351_1781375911.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان به نقل از منابع امنیتی اسرائیلی گزارش داد که در سایه تفاهم احتمالی آمریکا و جمهوری اسلامی، ارتش اسرائیل برای احتمال صدور دستور از سوی مقام‌های سیاسی این کشور به‌منظور توقف پیشروی زمینی در جنوب لبنان آماده می‌شود اما از نوار امنیتی در جنوب لبنان عقب‌نشینی نخواهد کرد.
+
+بر اساس این گزارش، اسرائیل همچنین در حال برنامه‌ریزی برای کاهش حملات در عمق خاک لبنان است تا از آسیب دیدن تفاهم میان آمریکا و جمهوری اسلامی جلوگیری شود.
+
+یک منبع آگاه به کان گفت ارتش اسرائیل همچنان به حملات خود در جنوب لبنان ادامه می‌دهد، اما این حملات هدفمند و محدود هستند. به گفته این منبع، فعالیت ارتش این کشور در بیروت نیز همچنان با محدودیت‌هایی همراه است.
+
+به گفته این منابع، موضوع نوار امنیتی قرار است در مذاکرات مستقیم میان اسرائیل و لبنان که حدود یک هفته و نیم دیگر در آمریکا برگزار می‌شود، مورد بررسی قرار گیرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245350
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245350_1781375912.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با جاری شدن دوباره آب در زاینده‌رود، قایق‌های پدالی خاطره‌انگیز بار دیگر به این رودخانه تاریخی بازگشتند و شماری از مردم اصفهان با قایق‌سواری در نزدیکی پل تاریخی خواجو و سی‌سه پل  بازگشت آب را جشن گرفتند.
+بسیاری از مردم اصفهان با حضور در کنار پل‌های تاریخی شهر و انجام ورزش‌ها و تفریحات آبی، از جمله قایق‌سواری، از بازگشت آب به زاینده‌رود استقبال کردند.
+پس از ۱۱ ماه خشکی، جریان آب زاینده‌رود چهارشنبه‌شب ۱۳ خردادماه بار دیگر به شهر اصفهان رسید و در بستر این رودخانه جاری شد.
+زاینده‌رود، مهم‌ترین رودخانه فلات مرکزی ایران، در سال‌های اخیر بارها با خشکی و کاهش شدید جریان آب روبه‌رو بوده و بازگشت آب به بستر آن همواره با شادی و استقبال گسترده مردم همراه شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245340
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جام جهانی ۲۰۲۶ برای ایران فقط یک رویداد ورزشی نیست. هم‌زمان با حضور تیم ملی در بزرگ‌ترین صحنه فوتبال جهان، بحث بر سر هویت ملی، پرچم شیر و خورشید، جمهوری اسلامی و نمایندگی ایران نیز وارد ورزشگاه‌ها شده است.
+
+آیا تیم ملی صرفاً یک تیم فوتبال است؟ آیا می‌توان از ایران حمایت کرد بدون آنکه از حکومت حمایت کرد؟ و در نهایت، چه کسی حق دارد به نام ایران سخن بگوید؟
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245339
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245339_1781375915.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ کی‌یر استارمر، نخست‌وزیر بریتانیا، روز شنبه ۲۳ خرداد در گفتگویی تلفنی با دونالد ترامپ، رئیس‌جمهوری آمریکا، تلاش‌های جاری برای پایان دادن به درگیری‌ها با ایران را مورد بحث و بررسی قرار داد.
+
+بر اساس بیانیه منتشرشده از این تماس تلفنی، استارمر بر اهمیت «تضمین دست‌یابی به توافقی که به یک صلح پایدار و ماندگار منجر شود»، تاکید کرد.
+
+نخست‌وزیر بریتانیا در این گفتگو بار دیگر یادآور شد که «لندن آماده است تا از اجرای هرگونه توافق صلح حمایت کند و برای تضمین موفقیت آن، با شرکای بین‌المللی همکاری نزدیکی داشته باشد.»
+
+به گفته سخنگوی دفتر نخست‌وزیری بریتانیا، رهبران دو کشور توافق کردند که در آستانه برگزاری اجلاس سران گروه هفت (G7) در هفته آینده، تماس‌های خود را حفظ کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245338
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245338_1781375915.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که زادروز جاویدنام حجت‌الله فیروزی کنار آرامگاهش گرامی داشته شد. او که ۱۸ دی‌ماه در جریان اعتراضات «انقلاب ملی» در محله نظام‌آباد تهران بازداشت شده بود، بر اثر شکنجه در بازداشتگاه جان باخت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245337
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245337_1781375917.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وب‌سایت خبری اکسیوس به نقل از منابع آگاه نوشت که دلیل امضای ویدیویی توافق آمریکا و جمهوری اسلامی، «ملاحظات اجرایی و لجستیکی» و عدم امکان سفر جی‌دی‌ونس به پاکستان است.
+
+اکسیوس نوشت که یکی از دلایل اصلی امضای ویدیویی توافق آمریکا و جمهوری اسلامی این است که ونس در صورت سفر برای امضای توافق، نمی‌توانست قبل از عزیمت ترامپ برای شرکت در اجلاس گروه ۷ در فرانسه در صبح دوشنبه به آمریکا بازگردد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245336
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245336_1781375917.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ به رغم آنکه به نظر می‌رسد مذاکرات میان جمهوری اسلامی و آمریکا به مراحل پایانی و سرنوشت‌ساز خود نزدیک می‌شود، محاصره بنادر ایران در تنگه هرمز توسط ارتش ایالات متحده همچنان با قاطعیت ادامه دارد.
+
+بر اساس گزارش روز شنبه ۲۳ خرداد، فرماندهی مرکزی ارتش آمریکا (سنتکام)، نیروهای نظامی این کشور از زمان آغاز اجرای این طرح، مسیر ۱۴۱ فروند کشتی را تغییر داده‌اند که این آمار نشان‌دهنده افزایش دو کشتی نسبت به روز گذشته است. طبق ضوابط این محاصره، از ورود تمامی شناورها به بنادر ایران یا خروج از آن‌ها جلوگیری می‌شود.
+
+سنتکام در به‌روزرسانی جدید خود تاکید کرد در صورتی که کشتی‌ها از دستورات پیروی نکنند، نیروهای آمریکایی برای متوقف و غیرفعال کردن آن‌ها اقدام به شلیک موشک می‌کنند. آمار شناورهای غیرفعال‌شده در گزارش امروز بدون تغییر نسبت به روزهای گذشته، همان ۹ فروند اعلام شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245335
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245335_1781375917.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، رسانه وابسته به سپاه پاسداران، شامگاه شنبه ۲۳ خرداد اصرار دونالد ترامپ بر امضای یادداشت تفاهم با جمهوری اسلامی در روز یکشنبه را «عجیب» و «فشار نمایشی» خواند.
+
+فارس نوشت: «سرنوشت امضای یکشنبه نه‌فقط یک آزمون فنی برای محتوای تفاهم، بلکه آزمونی برای صداقت و ایستادگی مسئولان ایرانی در برابر فشارهای نمایشی نیز خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245334
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245334_1781375918.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، رسانه وابسته به سپاه پاسداران، شامگاه شنبه ۲۳ خرداد اصرار دونالد ترامپ بر امضای یادداشت تفاهم با جمهوری اسلامی در روز یکشنبه را «عجیب» و «فشار نمایشی» خواند.
+
+فارس نوشت: «سرنوشت امضای یکشنبه نه‌فقط یک آزمون فنی برای محتوای تفاهم، بلکه آزمونی برای صداقت و ایستادگی مسئولان ایرانی در برابر فشارهای نمایشی نیز خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14740
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان روبیکا ، بله و سروش فیلتر‌ میشه 😂 @withyashar
+</div>
+
+## WithYashar — post 14739
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای هماهنگی بانک‌های دولتی:
+
+اختلال در سامانه‌های چهار بانک ناشی از یک حمله سایبری محدود بوده، اما هیچ‌گونه نشت اطلاعات یا دسترسی غیرمجاز به داده‌های مشتریان رخ نداده است
+@withyashar
+</div>
+
+## WithYashar — post 14738
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام ارشد اسرائیلی به کانال ۱۲ اسرائیل: این یه توافق مزخرفه
+@withyashar
+</div>
+
+## WithYashar — post 14737
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردم طرفدار حکومت اعتراضاتی رو در چند استان شروع کردند @withyashar
+</div>
+
+## WithYashar — post 14736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناس شبکه افق:به زودی جنگ را به خاک آمریکا می‌بریم و دیگر قرار نیست در خاک خودمان با دشمن بجنگیم جمهوری‌ اسلامی هنوز کارت های خود را رو نکرده
+@withyashar
+</div>
+
+## WithYashar — post 14735
+
+<div align="center">
+  <a href="telegram/content/WithYashar_14735_1781375918.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردم طرفدار حکومت اعتراضاتی رو در چند استان شروع کردند
+@withyashar
+</div>
+
+## WithYashar — post 14734
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادان : هرکس در تجمعات علیه وحدت ملی و مذاکرات شعار یا حرفی بزند بعنوان تفرقه‌افکن باهاش برخورد میکنیم.
+@withyashar
+</div>
+
+## WithYashar — post 14733
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم: اسرائیل ملزم به امضای توافق با ایران نخواهد بود و قادر به دفاع از خود است، اما رفتار آن باید با ایالات متحده هماهنگ شود
+@withyashar
+</div>
+
+## WithYashar — post 14732
+
+<div align="center">
+  <img src="telegram/content/WithYashar_14732_1781375920.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : «کتابخانه اوباما، ده سال دیگر، به “مکه” کسانی تبدیل خواهد شد که از آمریکا نفرت دارند.»
+
+دونالد جی. ترامپ
+
+نکته: واژه “Mecca” در زبان انگلیسی در این‌گونه کاربردها به‌صورت استعاری به معنای «مرکز تجمع»، «کانون» یا «مقصد اصلی» است و لزوماً اشاره مذهبی مستقیم ندارد
+@withyashar
+</div>
+
+## WithYashar — post 14731
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس: انتظار می‌رود ایالات متحده و ایران، با میانجیگری پاکستان و قطر، روز یکشنبه یک نشست مجازی برگزار کنند تا به صورت الکترونیکی تفاهم‌نامه‌ای را امضا کنند که آتش‌بس را به مدت ۶۰ روز تمدید می‌کند، تنگه هرمز را بازگشایی می‌کند و مذاکرات در مورد برنامه هسته‌ای ایران را آغاز می‌کند.
+@withyashar
+</div>
+
+## WithYashar — post 14730
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: با توجه به اینکه فردا تولد ترامپ است مسئولان ایران اجازه نخواهند داد توافق فردا امضا شود
+@withyashar 😂
+</div>
+
+## FoxNewsTwitter — post 342938
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342938_1781375921.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Trump says a deal with Iran is scheduled to be signed tomorrow.
+
+“Immediately after it is signed, the Hormuz Strait is OPEN TO ALL.”
+
+The president says the agreement will permanently prevent Iran from obtaining a nuclear weapon and described it as the exact opposite of the Obama-era nuclear deal.
+
+Trump also said no money will exchange hands under the agreement and warned that if the process falls apart, the U.S. has “the ultimate alternative.”
+</div>
+
+## pm_afshaa — post 93797
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93797_1781375921.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام آمریکایی به کانال 12 اسرائیل:
+این قرارداد احتمالی صلح با ایران مزخرفه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93796
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ نخواهد شد و مذاکره هم نخواهیم کرد
+
+هم جنگ شد هم مذاکره و توافق😂
+</div>
+
+## pm_afshaa — post 93795
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناس شبکه افق:به زودی جنگ را به خاک آمریکا می‌بریم و دیگر قرار نیست در خاک خودمان با دشمن بجنگیم جمهوری‌ اسلامی هنوز کارت های خود را رو نکرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93794
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع عرزشی‌ها با شعار مرگ بر سازشگر 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93793
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع عرزشی‌ها با شعار مرگ بر سازشگر 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93792
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93792_1781375922.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سر دبیر مشرق شروط رهبری رو انکار کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93791
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93791_1781375922.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع عرزشی‌ها با شعار مرگ بر سازشگر
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93789
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93789_1781375924.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عرزشی‌ها دارن تو تجمعات شبانه علیه قالیباف و عراقچی شعار میدن :
+
+قالیباف، عراقچی/ پس خون رهبرم چی.
+عراقچی، حیا کن / آمریکا رو رها کن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادان :هرکس در تجمعات علیه وحدت ملی و‌ مذاکرات شعار دهد، بعنوان تفرقه‌افکن با او برخورد جدی میشود 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93787
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادان :هرکس در تجمعات علیه وحدت ملی و‌ مذاکرات شعار دهد، بعنوان تفرقه‌افکن با او برخورد جدی میشود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93786
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93786_1781375925.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف، عراقچی، استعفا استعفا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93785
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93785_1781375927.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل هیوم:
+اسرائیل ملزم به امضای توافق با ایران نخواهد بود و میتونه از خودش دفاع کنه، اما این رفتار باید با آمریکا هماهنگ بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93784
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93784_1781375927.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: انتظار میره آمریکا و ایران، با میانجیگری پاکستان و قطر، روز یکشنبه (فردا) یک نشست مجازی برگزار کنن تا به صورت الکترونیکی تفاهم‌نامه‌ای رو امضا کنن که آتش‌بس رو به مدت 60 روز تمدید میکنه، تنگه هرمز رو کامل بازگشایی میکنه و مذاکرات در مورد برنامه هسته‌ای ایران رو آغاز میکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93783
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_93783_1781375928.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به به عالیه ادامه بدید
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیچ وقت فکر نمیکردم یه روزی نظرمون با عرزشی‌ها یکی بشه
+</div>
+
+## pm_afshaa — post 93781
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93781_1781375928.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اطلاعیه و فراخوان تجمع شبانه منتشر شده در کانال ثابتی در اعتراض به تیم مذاکره‌ کننده، با حضور 16 نماینده مجلس! 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93780
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93780_1781375929.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری فارس: با توجه به اینکه فردا تولد ترامپ است، مسئولان ایران اجازه نخواهند داد توافق فردا امضا بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93779
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93779_1781375929.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اطلاعیه و فراخوان تجمع شبانه منتشر شده در کانال ثابتی در اعتراض به تیم مذاکره‌ کننده، با حضور 16 نماینده مجلس!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## iaghapour — post 2672
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎶 جدیدترین ریمیکس‌ها و آهنگ‌ها
+       فقط یه کلیک با تو فاصله دارن؛
+       ریمیکسایی که ماشینو تبدیل به
+کنسرت میکنه
+
+       پلی‌لیستت رو با ما همیشه به‌روز نگه دار
+
+
+👇
+👇
+👇
+https://t.me/noxbeatx
+https://t.me/noxbeatx
+</div>
+
+## iaghapour — post 2671
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2671_1781375929.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌐 درخواست حمید رسایی و ۱۱۹ استاد برای انحلال «ستاد ویژه فضای مجازی»
+
+بیش از ۱۲۰ تن از اساتید حوزه و دانشگاه، و چهره‌های سیاسی از جمله حمید رسایی در نامه‌ای به رئیس قوه قضائیه و فقهای شورای نگهبان، خواستار ابطال فوری مصوبه دولت برای تشکیل «ستاد ویژه ساماندهی و راهبری فضای مجازی» شدند.
+
+🔹 مهم‌ترین دلایل مخالفان:
+🔸 تشکیل این ستاد ناقض جایگاه «شورای عالی فضای مجازی» به عنوان تنها نقطه کانونی سیاست‌گذاری است و یک ساختار موازی محسوب می‌شود.
+
+🔸 به اعتقاد نویسندگان نامه، رئیس‌جمهور صلاحیت ایجاد نهادهای فراقوه‌ای با کارکردهای کلان حاکمیتی را ندارد.
+
+🔸 واگذاری اختیار محدودسازی اینترنت به ستاد جدید، با صلاحیت قانونی (کمیته فیلترینگ) و دادستانی کل کشور در تعارض است.
+
+🔸 ایجاد این ساختار جدید، مصداق تشکیلات غیرضروری بوده و تنها باعث افزایش لایه‌های تصمیم‌گیری در فضای مجازی می‌شود.
+
+پ.ن: جالبه تو این مملکت انگار با فساد و رانتِ کسی کاری ندارن؛ اما وای به روزی که بخوان اینترنتی رو که دست مفسدها رو رو می‌کنه، یه ذره آزاد کنن!
+
+🆔 @iAghapour
+</div>
+
+## DEJradio — post 5661
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5661_1781375930.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 تفکیک مردم و حکومت؛ مخالفت با تخریب زیرساخت‌های عمومی؛
+
+*پژمان گلچین، پژوهشگر فلسفه
+
+#جنگ #زیرساخت
+@DEJradio
+</div>
+
+## mamlekate — post 103704
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ترامپ: توافق من با تهران یکشنبه امضا می‌شود و دیواری محکم در برابر سلاح هسته‌ای است
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، گفت که توافق او با تهران دیواری محکم در برابر هرگونه سلاح هسته‌ای است و جمهوری اسلامی دیگر نه خواهان سلاح هسته‌ای است و نه به آن دست خواهند یافت؛ چه از طریق خرید، چه توسعه، و چه از طریق هر شکل دیگری از تامین آن.
+
+@mamlekate
+</div>
+
+## mamlekate — post 103703
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدئو از لویزان #الو غرب تهران اول صدای جت اومد بعد ۵ بار صدای بمب. صدای آژیر ماشینا دراومد. اکسیوس زده اسرائیل به ایران حمله کرده شرق تهرانو زدن ۷-۸ تا صدای انفجار اومد دو تاش خیلی مهیب بود دودم بلند شده ولی خوب معلوم نیست شرق تهرانو زدن فکر کنم سمت…
+</div>
+
+## kianmeli1 — post 87972
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اکسیوس به نقل از منابعی نوشت که دلیل امضای ویدیویی توافق آمریکا و جمهوری اسلامی، موضوعات لجستیکی و عدم امکان سفر جی‌دی‌ونس به پاکستان همزمان با سفر ترامپ برای شرکت در نشست گروه۷ است
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342126
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342126_1781375930.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز ویدیویی از شهر نبطیه در جنوب لبنان منتشر کرده است که نشان می‌دهد روز شنبه ۲۳ خرداد در پی حمله اسرائیل به مواضع حزب‌الله، گروه مورد حمایت جمهوری اسلامی، چند انفجار مهیب رخ داد و پس از آن دود غلیظی به هوا برخاست.
+@iranintltv
+</div>
+
+## IranIntlTV — post 342125
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342125_1781375931.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان به نقل از منابع امنیتی اسرائیلی گزارش داد که در سایه تفاهم احتمالی آمریکا و جمهوری اسلامی، ارتش اسرائیل برای احتمال صدور دستور از سوی مقام‌های سیاسی این کشور به‌منظور توقف پیشروی زمینی در جنوب لبنان آماده می‌شود اما از نوار امنیتی در جنوب لبنان عقب‌نشینی نخواهد کرد.
+
+بر اساس این گزارش، اسرائیل همچنین در حال برنامه‌ریزی برای کاهش حملات در عمق خاک لبنان است تا از آسیب دیدن تفاهم میان آمریکا و جمهوری اسلامی جلوگیری شود.
+
+یک منبع آگاه به کان گفت ارتش اسرائیل همچنان به حملات خود در جنوب لبنان ادامه می‌دهد، اما این حملات هدفمند و محدود هستند. به گفته این منبع، فعالیت ارتش این کشور در بیروت نیز همچنان با محدودیت‌هایی همراه است.
+
+به گفته این منابع، موضوع نوار امنیتی قرار است در مذاکرات مستقیم میان اسرائیل و لبنان که حدود یک هفته و نیم دیگر در آمریکا برگزار می‌شود، مورد بررسی قرار گیرد.
+https://iranintl.com/202606132065
+</div>
+
+## IranIntlTV — post 342124
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342124_1781375932.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» می‌گوید اگر گزارش رویترز درباره برچیده شدن برنامه هسته‌ای جمهوری اسلامی بر اساس توافق احتمالی درست باشد، این پرسش مطرح می‌شود که چرا حکومت سال‌ها پیش چنین توافقی را نپذیرفت و اجازه داد ده‌ها میلیارد دلار از سرمایه ایران از بین برود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 342123
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342123_1781375933.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوشنگ حسن‌یاری، کارشناس خاورمیانه و امور نظامی، در گفت‌وگو با ایران‌اینترنشنال گفت مسئله هسته‌ای و سرنوشت ذخایر اورانیوم، گره اصلی هرگونه توافق میان تهران و واشینگتن است. او افزود از نگاه جمهوری اسلامی، واگذاری این ظرفیت به منزله «خودکشی جمعی» است و شکاف‌های داخلی حکومت نیز نشان می‌دهد پرونده هسته‌ای همچنان مهم‌ترین موضوع برای حاکمیت به شمار می‌رود و عقب‌نشینی از آن به معنای نادیده گرفتن هزینه‌های سنگینی است که جمهوری اسلامی برای این برنامه پرداخته است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 342122
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342122" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: ترامپ: فردا با ایران تفاهم‌نامه امضا می‌کنیم، بعدا سراغ اورانیوم می‌آییم
+@iranintlTV
+</div>
+
+## IranIntlTV — post 342121
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342121_1781375935.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال برزیل، پرافتخارترین تیم ادوار جام جهانی، در نخستین بازی خود بامداد یکشنبه به مصاف مراکش می‌رود.
+
+🔹توضیحات کوشاد دلشاد، مربی فوتبال در برزیل
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342120
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342120_1781375936.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که زادروز جاویدنام حجت‌الله فیروزی کنار آرامگاهش گرامی داشته شد. او که ۱۸ دی‌ماه در جریان اعتراضات «انقلاب ملی» در محله نظام‌آباد تهران بازداشت شده بود، بر اثر شکنجه در بازداشتگاه جان باخت.
+</div>
+
+## IranIntlTV — post 342119
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342119_1781375938.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وب‌سایت خبری اکسیوس به نقل از منابع آگاه نوشت که دلیل امضای ویدیویی توافق آمریکا و جمهوری اسلامی، «ملاحظات اجرایی و لجستیکی» و عدم امکان سفر جی‌دی‌ونس به پاکستان است.
+
+اکسیوس نوشت که یکی از دلایل اصلی امضای ویدیویی توافق آمریکا و جمهوری اسلامی این است که ونس در صورت سفر برای امضای توافق، نمی‌توانست قبل از عزیمت ترامپ برای شرکت در اجلاس گروه ۷ در فرانسه در صبح دوشنبه به آمریکا بازگردد.
+https://iranintl.com/202606136016
+</div>
+
+## IranIntlTV — post 342118
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342118_1781375938.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهیر شهیدثالث، تحلیل‌گر روابط بین‌الملل، درباره توافق احتمالی تهران و واشینگتن گفت: «آلترناتیو واقعی هر دو طرف، توافق است. نه اینکه توافق الزاما بهترین گزینه باشد، بلکه جنگ راه‌حلی برای مشکلات هیچ‌یک از آنها نیست.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 342117
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342117_1781375940.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، رسانه وابسته به سپاه پاسداران، شامگاه شنبه ۲۳ خرداد اصرار دونالد ترامپ بر امضای یادداشت تفاهم با جمهوری اسلامی در روز یکشنبه را «عجیب» و «فشار نمایشی» خواند.
+
+فارس نوشت: «سرنوشت امضای یکشنبه نه‌فقط یک آزمون فنی برای محتوای تفاهم، بلکه آزمونی برای صداقت و ایستادگی مسئولان ایرانی در برابر فشارهای نمایشی نیز خواهد بود.»
+https://iranintl.com/202606134488
+</div>
+
+## IranIntlTV — post 342116
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342116_1781375940.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، رسانه وابسته به سپاه پاسداران، شامگاه شنبه ۲۳ خرداد اصرار دونالد ترامپ بر امضای یادداشت تفاهم با جمهوری اسلامی در روز یکشنبه را «عجیب» و «فشار نمایشی» خواند.
+
+فارس نوشت: «سرنوشت امضای یکشنبه نه‌فقط یک آزمون فنی برای محتوای تفاهم، بلکه آزمونی برای صداقت و ایستادگی مسئولان ایرانی در برابر فشارهای نمایشی نیز خواهد بود.»
+https://iranintl.com/202606134488
+</div>
+
+## Shin_Persian — post 7022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 13 Jun 2026 18:17:41 UTC
+
+Watching regime fans in 2 groups of pro-deal and anti-deal fighting each other on X is like watching The Purge, except that it's ACTUAL FUN while you're rooting for neither of the side
+
+ترجمه خودکار فارسی
+
+تماشای درگیری طرفداران رژیم در دو گروهِ موافق توافق و مخالف توافق با یکدیگر در X (توییتر سابق) مانند تماشای فیلم «پاکسازی» (The Purge) است، با این تفاوت که واقعاً سرگرم‌کننده است در حالی که طرف هیچ‌کدام از گروه‌ها را نمی‌گیری.
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 106051
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_106051_1781375941.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جام جهانی ۲۰۲۶ برای ایران فقط یک رویداد ورزشی نیست. هم‌زمان با حضور تیم ملی در بزرگ‌ترین صحنه فوتبال جهان، بحث بر سر هویت ملی، پرچم شیر و خورشید، جمهوری اسلامی و نمایندگی ایران نیز وارد ورزشگاه‌ها شده است.
+
+آیا تیم ملی صرفاً یک تیم فوتبال است؟ آیا می‌توان از ایران حمایت کرد بدون آنکه از حکومت حمایت کرد؟ و در نهایت، چه کسی حق دارد به نام ایران سخن بگوید؟
+</div>
+
+## FarsiVOA — post 220613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺فعالان و نهادهای حقوق ‌‌بشری در مورد اعدام زود هنگام چند جوان مخالف توسط جمهوری اسلامی هشدار می‌دهند
+
+▪️همزمان با افزایش احتمال امضای توافقنامه‌ای میان جمهوری اسلامی و آمریکا برای توقف درگیری‌ها، رژیم ایران چند جوان دیگر را به دلیل مخالفت و اعتراض به شرایط کشور زیر تیغ اعدام قرار داده است. فعالان و نهادهای حقوق بشری روز شنبه ۲۳ خرداد ۱۴۰۵ نسبت به افزایش خطر اجرای حکم اعدام آرمین نورمحمدی، ایمان گنجی و علی کمالی هشدار دادند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-execution-prison-protest-america-day-war-/8160464.html/?nocach=1
+</div>
+
+## FarsiVOA — post 220612
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220612_1781375941.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل می‌گوید نیروهایش در ادامه عملیات پاکسازی شبکه گسترده تونل‌های زیرزمینی در ارتفاعات بوفور «نقشه‌هایی تهدیدآمیز» کشف کرده‌اند؛ شبکه‌ای که به گفته ارتش اسرائيل، با طراحی و تأمین مالی جمهوری اسلامی ایران ساخته شده است.
+
+ارتش اسرائیل اعلام کرد در یکی از مسیرهای زیرزمینی، محلی که چندی پیش تروریست‌هایی شناسایی و حذف شده بودند، نقشه‌هایی روی دیوار کشف شد که کنترل بر فراز شهرک‌های شمالی اسرائیل را نشان می‌دهد.
+
+به گفته ارتش اسرائیل، این شبکه از تونل‌ها در منطقه‌ای غیرنظامی و در حدود شش کیلومتری شهر مرزی متولا قرار دارد و حزب‌الله از آن به‌عنوان یک مرکز عملیاتی در جنوب لبنان استفاده می‌کرده است.
+</div>
+
+## FarsiVOA — post 220611
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گام تاریخی اتحادیه اروپا؛ پیشروی دیپلماتیک با اوکراین و بازآرایی اضطراری ناتو
+</div>
+
+## FarsiVOA — post 220610
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220610_1781375943.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش نرگس صبا در برنامه تفسیر خبر از سالگرد جنگ ۱۲ روزه و تاثیر این جنگ بر رویدادهای بعد از آن
+</div>
+
+## FarsiVOA — post 220609
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ: توافق جدید با جمهوری اسلامی یکشنبه امضا می‌شود؛ اگر این مسیر سریع پیش‌ نرود گزینه «جایگزین نهایی» را در اختیار داریم
+
+▪️دونالد ترامپ، رئیس‌جمهوری آمریکا، در پیامی در شبکه اجتماعی تروت سوشال اعلام کرد که توافق جدید با جمهوری اسلامی ایران قرار است «فردا» امضا شود و بلافاصله پس از آن، «تنگه هرمز به روی همه باز خواهد بود.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/trump-announces-new-iran-deal/8160479.html/?nocach=1
+</div>
+
+## FarsiVOA — post 220608
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب الله لبنان، پاشنه آشیل مذاکره های صلح جمهوری اسلامی و آمریکا است؛ گفت‌و‌گو با محمد قائدی
+</div>
+
+## FarsiVOA — post 220607
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220607_1781375944.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خواهر دادخواه بابک صادقی محسنی، با انتشار این ویدیو نوشته است به مادرش که تصمیم داشت ۲۲ خرداد تولد ۳۲ سالگی بابک را بر آرامگاه او برگزار کند چند ساعت اجازه خروج از خانه را ندادند.
+
+او با اشاره به اینکه ماموران حاضر در باغ بهشت همدان، گل‌های آرامگاه براردش را تخریب کردند نوشته است: «چرا باید مادرم در خانه خودش زندانی شود و اجازه نداشته باشد به آرامگاه فرزندش برود...»
+
+بابک صادقی محسنی، ۱۹ دی ۱۴۰۴ با شلیک گلوله ماموران حکومتی به سرش در تهرانپارس کشته شد.
+</div>
+
+## DW_Farsi — post 125937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶قزلحصار از درون: گزارش اختصاصی دویچه وله از داخل زندان
+🔻گزارشی از آتفه چهارمحالیان
+📌این گزارش حاوی محتوای ناخوشایند است.
+
+«آنچه نوشته‌ام تنها بخشی از آن چیزی است که این ماه‌ها بر ما گذشت. فجایع، تحقیرها، شکنجه‌ها و رنج‌هایی که زندانیان در قزل‌حصارتحمل می‌کنند بسیار فراتر از آن چیزی است که در این نامه آمده است.»
+
+این جملات بخشی از نامه سهیل عربی، زندانی سیاسی تازه آزادشده از ندامتگاه قزلحصار کرج است؛ زندانی که طی دهه‌ها نام آن بارها در گزارش‌های مربوط به سرکوب سیاسی، اجرای احکام اعدام، اعتراضات زندانیان و شرایط وخیم نگهداری زندانیان، به ویژه متهمان سیاسی، امنیتی و محکومان به اعدام، تکرار شده است.
+
+زندان قزلحصار در دهه چهل خورشیدی برای نگهداری حدود پنج هزار زندانی طراحی شده بود، اما بر اساس گزارش‌های رسیده از درون زندان، این مجموعه اکنون با تراکمی چندین برابر ظرفیت خود مواجه است.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 125936
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125936_1781375946.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶ارتش اسرائیل: در ۲۴ ساعت گذشته بیش از ۷۰ موضع حزب‌الله را هدف قرار دادیم
+
+ارتش اسرائیل اعلام کرد در یک شبانه‌روز گذشته، بیش از ۷۰ موضع حزب‌الله را در جنوب لبنان هدف حمله قرار داده است.
+
+به گفته ارتش، این حملات سکوهای پرتاب راکت و ساختمان‌هایی را شامل می‌شد که حزب‌الله از آن‌ها برای پیشبرد حملات خود استفاده می‌کرد.
+
+ارتش اسرائیل همچنین اعلام کرد چند نیروی حزب‌الله را که در مناطقی از جنوب لبنان، محل حضور نیروهای اسرائیلی، شناسایی شده بودند، کشته است.
+
+بر اساس گزارش رسانه‌های لبنانی، ارتش لبنان از مواضع خود در شهر کفر تبنیت، در نزدیکی نبطیه، عقب‌نشینی کرده است. این عقب‌نشینی در حالی گزارش شده که ارتش اسرائیل در این منطقه در حال پیشروی است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 16973
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل ویدیویی از تونل حزب‌الله لبنان در زیر قلعه بوفور منتشر کرد.
+
+این تونل قرار است پس از بازرسی و برسی کامل توسط ارتش اسرائیل تخریب شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16972
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16972_1781375946.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ صداوسیما: یه نفتکش غول‌پیکر از محاصره دریایی آمریکا رد شده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16971
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16971_1781375947.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+و در آخر پس از گذشت تقریبا 19 ساعت از آغاز عملیات طلوع شیران اسرائیل، سپاه پاسداران اولین موج موشکی عملیات وعده صادق-3 را حدودا در همین ساعات انجام داد.
+
+ویدیو متعلق به اصابت یک موشک سپاه به نزدیکی یک لانچر سیستم پدافندی گنبد آهنین است که در بین چند ساختمان در یک پارکینگ پنهان شده بود، هر چند جمهوری اسلامی ادعا داشت در این موج یک مقر زیرزمینی فرماندهی کنترل اسرائیل را هدف قرار داده است ولی مدرکی برای اثبات این ادعای خود منتشر ننمود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16970
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16970_1781375947.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 12 اسرائیل: مقامات ارشد اسرائیلی هشدار داده‌اند که توافق نوظهور آمریکا و ایران، عمیق‌ترین منافع امنیتی اسرائیل را به خطر می‌اندازد.
+
+آنها گفتند: ایرانی‌ها بی‌دلیل با این چارچوب موافقت نکردند. طرف آمریکایی شرایط اصلی آنها را پذیرفت. این مقامات گفتند که قابلیت‌های هسته‌ای بعداً بر اساس اعتبار بررسی خواهد شد، مشابه آتش‌بس غزه که در آن حماس هرگز خلع سلاح نشد.
+
+اگر ایران اقدامات لازم را انجام ندهد، آمریکایی‌ها پس از 60 روز چه اهرمی خواهند داشت؟ تهدید نظامی معتبر از بین خواهد رفت.
+
+این مقامات هشدار دادند: ایران نه تنها ملزم به توقف حمایت از گروه‌های نیابتی نیست، بلکه از طریق این توافق با حزب‌الله دوباره ارتباط برقرار می‌کند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16969
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16969_1781375948.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم: یک منبع ارشد دیپلماتیک گفته است که اسرائیل ملزم به امضای توافق با ایران نخواهد بود و قادر به دفاع از خود خواهد بود، ولی رفتار آن باید با ایالات متحده هماهنگ شود.
+
+اگر توافقی حاصل نشود و ایران به محاصره تنگه هرمز و اقدامات جنگی خود ادامه دهد، سرنگونی رژیم روی میز خواهد بود.
+
+در مورد لبنان، این تفاهم‌نامه به آتش‌بس منطقه‌ای تحت شرایط از پیش موجود اشاره دارد که حق اسرائیل برای دفاع از خود و هدف قرار دادن تهدیدها، از جمله تهدیدهای نوظهور را حفظ می‌کند.
+
+ایران در این مرحله خواستار عقب‌نشینی اسرائیل از جنوب لبنان شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16968
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16968_1781375948.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش اکسیوس، انتظار می‌رود ایالات متحده و ایران، با میانجیگری پاکستان و قطر، روز یکشنبه یک نشست مجازی برگزار کنند تا به صورت الکترونیکی تفاهم‌نامه‌ای را امضا کنند که آتش‌بس را به مدت 60 روز تمدید می‌کند.
+
+پس از امضا، تنگه هرمز را بازگشایی می‌شود و مذاکرات در مورد برنامه هسته‌ای ایران آغاز می‌شود. این قالب مجازی به دلایل لجستیکی انتخاب شده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 16967
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_16967_1781375949.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر ماهواره ای با کیفیت از انهدام سیستم راداری TPS-59 در کوه الدخان و دو مخزن سوخت در پایگاه شیخ عیسی بحرین طی حملات موشکی و پهپادی نیروی های مسلح جمهوری اسلامی 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از قدس تا دریای مدیترانه؛ محورهای تنش میان ترکیه و اسرائیل
+
+🔸رجب طیب اردوغان، رئیس‌جمهور ترکیه، که پیش از این بارها در دو سال و نیم گذشته دربارهٔ «پیامدهای منطقه‌ای جنگ‌های اسرائیل» هشدار داده بود، اخیراً در اظهاراتی بی‌سابقه اعلام کرد: «حملات اسرائیل به سوریه و لبنان به سطحی رسیده که امنیت ترکیه را نیز تهدید می‌کند».
+
+🔸اردوغان روز ۲۰ خرداد تأکید کرد که «امنیت ترکیه نه از حاتای (مرزهای این کشور)، بلکه از حلب، دمشق و بیروت آغاز می‌شود» و متوقف کردن اسرائیل را یک «وظیفه بشری» دانست.
+
+🔸این سخنان با پاسخ تند و فوری بنیامین نتانیاهو روبه‌رو شد. نخست‌وزیر اسرائیل، اردوغان را «دیکتاتوری یهودستیز» خواند که «مخالفانش را سرکوب می‌کند، در حال نسل‌کشی علیه کردها است، از حماس حمایت می‌کند، مردم خود را سرکوب می‌کند و مخالفان سیاسی را زندانی می‌کند» و لذا آخرین کسی است که می‌تواند به او و اسرائیل درس اخلاق بدهد.
+
+🔸وزارت خارجه ترکیه نیز بلافاصله این اتهامات را تلاش نتانیاهو برای گمراه کردن افکار عمومی جهان دانست.
+
+🔸گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 22483
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جدی دلم میخواد این عرزشیایی که قراره به مذاکره اعتراض کنن رو با همون نیروهایی سرکوب کنن که مردمو تو دی‌ماه کشتن
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22482
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22482_1781375949.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مرگ بر سازشگر.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22481
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22481_1781375951.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف، عراقچی، استعفاء استعفاء.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22480
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22480_1781375952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست ترامپ:
+
+توافق باراک حسین اوباما با ایران، برجام، مسیری آسان، زیبا و هموار به سوی سلاح هسته‌ای بود که ایران شش سال پیش آن را داشت و مدت‌ها پیش از آن استفاده می‌کرد. توافق من با ایران دقیقاً برعکس است، دیواری برای نداشتن سلاح هسته‌ای! در واقع، آنها دیگر سلاح هسته‌ای نمی‌خواهند و نخواهند داشت، نه از طریق خرید، توسعه یا هر شکل دیگری از تهیه. قرار است این توافق فردا امضا شود و بلافاصله پس از امضای آن، تنگه هرمز به روی همه باز است. رابطه ما با ایران بسیار متفاوت و بهتر از دولت‌های قبلی است. برخلاف صدها میلیارد دلار پرداخت اوباما به آنها، از جمله ۱.۷ میلیارد دلار پول نقد، هیچ پولی رد و بدل نخواهد شد. در زمان مناسب، وقتی همه چیز آرام باشد، ما به لطف بمب‌افکن‌های زیبای B-2 و خلبانان درخشانشان، وارد عمل می‌شویم و غبار هسته‌ای را که در اعماق کوه‌های گرانیتی قدرتمند و غرق شده دفن شده است، جمع‌آوری و نابود می‌کنیم، چه در ایران و چه در ایالات متحده. امیدواریم که این روند به سرعت به راحتی انجام شود. اگر اینطور نشود، ما جایگزین نهایی را داریم، امیدواریم که دیگر هرگز مورد استفاده قرار نگیرد!
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 283726
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283726_1781375953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️کری‌خوانی نیوزیلندی‌ها برای تیم ملی ایران در حاشیه برد ۴-۱ آمریکا.
+
+دو هوادار نیوزیلندی که برای تماشای مسابقه‌های تیم ملی کشورشان به آمریکا رفته‌اند، در حاشیه تماشای بازی آمریکا و پاراگوئه برای تیم ملی ایران کری‌ خواندند. یکی از آنها اسم بازیکنانی را فهرست کرد که پیش‌بینی می‌کرد در بازی با ایران گل بزنند. در میان آنها هم بازیکن حمله بود، هم هافبک، هم مدافع و هم دروازه‌بان.
+
+مسابقه آمریکا با چهار گلی که این تیم به پاراگوئه زد، بیشتر کسانی که برای تماشا به محوطه هواداران فیفا آمده بودند را خوشحال کرد.
+
+خبرنگارمان سام فرزانه به این محدوده هواداران رفته و این گزارش را تهیه کرده است.
+
+😏راستی پاسخ شما به کری آن نیوزیلندی‌ها چیست؟ در کامنت‌های این پست اینستاگرام بنویسید.
+instagram.com/reel/DZiT5PyIcbv/
+@bbcpersian
+</div>
+
+## BBCPersian — post 283717
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️گروه اف ‌(F) جام جهانی؛ فوتبال یا شطرنج
+
+«سامورایی‌های آبی» ژاپن با اعتمادبه‌نفسی بی‌سابقه وارد جام جهانی ۲۰۲۶ می‌شود. ژاپن نخستین تیمی بود که جواز حضور در جام جهانی ۲۰۲۶ را گرفت. هاجیمه موریاسو از سال ۲۰۱۸ هدایت ژاپن را بر عهده دارد. با وجود انتقادهایی که او را مربی‌ای محافظه‌کار می‌دانند، توانسته تیمی منسجم، با اعتمادبه‌نفس و هویت مشخص بسازد که توان رقابت با بهترین تیم‌های جهان را دارد.
+
+تاکه‌فوسا کوبو، ستاره ۲۴ ساله تیم ملی ژاپن که به تکنیک بالا، خلاقیت و دید خوب در بازی شناخته می‌شود، در سال‌های اخیر یکی از چهره‌های برجسته لالیگا شده است و بسیاری او را «مسی ژاپنی» می‌نامند.
+
+هلند با ترکیبی از تجربه، کیفیت فنی و عمق قابل‌توجه در ترکیب، یکی از مدعیان پنهان جام جهانی ۲۰۲۶ است. «نارنجی‌ها» تیمی متعادل با خط دفاعی قدرتمند، هافبک‌های باکیفیت و بازیکنان باتجربه است که می‌تواند در مراحل حذفی برای هر حریفی خطرناک باشد.
+
+فرانکی دی‌یونگ، ستاره تیم همچنان رهبر فنی هلند محسوب می‌شود.
+
+📲در لینک زیر بیشتر بخوانید⬇️
+
+
+📸GettyImages
+
+https://bbc.in/4xwxM44
+@BBCPersian
+</div>
+
+## BBCPersian — post 283716
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_283716_1781375955.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این تصاویر امروز ۱۳ ژوئن/ ۲۳ خرداد از تجمع گروهی از ایرانیان در هامبورگ، برلین و بروکسل به دست بی‌بی‌سی فارسی رسیده است.
+
+در هامبورگ تجمع‌کنندگان در کنار پرچم شیروخورشید و عکس محمدرضا شاه، عکس مجیدرضا رهنورد را هم به همراه داشتند و به مناسبت زادروزش یادش را گرامی داشتند.
+
+آن‌ها همچنین در شعارهایشان گفتند که «رژیم فاشیست در ایران باید برود.»
+
+مجیدرضا رهنورد، متولد ۲۶ خرداد ۱۳۷۸، در اعتراضات ۱۴۰۱ بازداشت و در مشهد اعدام شد.
+
+همچنین گروه دیگری در برلین علیه جمهوری اسلامی، اعدام و جنگ تجمع و بیانیه‌ای صادر کردند.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 283715
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/283715" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه جام جهان‌نما، شنبه ۲۳ خرداد ۱۴۰۵
+
+این برنامه رادیویی را می‌توانید هر شب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.
+تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+@bbcpersian
+</div>
+
+## BBCPersian — post 283714
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283714_1781375957.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+🔻دونالد ترامپ می‌گوید که تفاهم‌نامه ایران و آمریکا قرار است یکشنبه امضا شود و سپس تنگه هرمز فورا باز می‌شود.
+
+رئیس‌جمهور آمریکا در پستی در شبکه اجتماعی خود نوشت: «در زمان مناسب، وقتی که آرامش برقرار شد، می‌رویم (داخل ایران) و غبار هسته‌ای (ذخایر اورانیوم غنی‌شده با خلوص بالا) را که زیر سنگ‌های خارای کوهستان مدفون شده بیرون می‌آوریم.»
+
+آقای ترامپ گفت که این مواد هسته‌ای در ایران یا در آمریکا «رقیق و نابود» خواهد شد.
+
+پاکستان هم پیشتر گفته بود که تفاهمنامه ایران و آمریکا تا روز یکشنبه نهایی و سپس امضا خواهد شد.
+
+این در حالی است که اسماعیل بقایی، سخنگوی وزارت خارجه ایران، ساعاتی پیش، امضای توافقنامه در روز یکشنبه را رد کرده بود.
+
+
+📷 AFP via Getty Images
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391916
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391916_1781375957.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شعار امشب تجمعات حکومتی: قالیباف، عراقچی، استعفاء استعفاء😂😂
+
+منتظرم بریزن سرکوبشون کنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391914
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391914_1781375959.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشی‌های شیعه‌سان رافضی تندرو خرمسلک ریختن تو تجمعات شبانه دارن عرعر میکنن علیه قالیباف و عراقچی شعار میدن؛
+
+قالیباف، عراقچی/ پس خون رهبرم چی.
+عراقچی، حیا کن / آمریکا رو رها کن.:)))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391913
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391913_1781375960.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی گفته: مقاومت منجر به جنگ میشه، نه مذاکره 😂😂
+
+یعنی با یه جمله یه تنه رید به ۴۷سال آرمان‌های عمام راحل و موشعلی گور به گور شده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391911
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391911_1781375960.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این دوتا ویدیو از این پسربچه‌ی عاشق درس و مشق کلی تو اینستاگرام ویو خورده؛
+
+
+خیلیا معتقدن که با این علاقه‌ی خاصش به تحصیل، میتونه یکی از آینده‌دارهای کشور باشه...
+
+🔞هندزفری
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391910
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391910_1781375962.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+فردا توافق امضا میشه؛
+
+توافق باراک حسین اوباما با روافض قحبه یعنی همون برجام، یک مسیر ساده، شیک و هموار برای رسیدن به سلاح هسته‌ای بود، مسیری که اگه جلودارش نمی‌شدیم روافض پدرخراب ۶ سال پیش به بمب اتم رسیده بود و خیلی قبل‌تر از این‌ها ازش استفاده می‌کرد.
+اما توافق من با شیعه‌سانان رافضی دقیقاً نقطه‌ مقابل اونه: یک دیوار بتنی محکم در برابر رسیدن به هرگونه سلاح هسته‌ای.
+در واقع، اونا دیگه نه سلاح هسته‌ای می‌خوان و نه بهش دست پیدا می‌کنن، چه از طریق خرید، چه توسعه و چه هر روش دیگه‌ای برای تامینش.
+طبق برنامه این توافق فردا امضا می‌شه و بلافاصله بعد از امضا، تنگه‌ی هرمز به روی همه باز خواهد بود.
+رابطه ما با روافض قحبه کاملاً متفاوت و بسیار بهتر از چیزیه که دولت‌های قبلی داشتن. برعکس دوران اوباما که صدها میلیارد دلار بهشون پرداخت شد، از جمله ۱.۷ میلیارد دلار پول نقد تانخورده و سبز رنگ، این‌بار قرار نیست هیچ پولی رد و بدل بشه.
+در زمان مناسب وقتی همه‌جا آروم شد، ما به لطف بمب‌افکن‌های زیبای بی‌۲ و خلبان‌های فوق‌العاده‌شون، می‌ریم و اون غبارهای هسته‌ای رو که عمیقاً زیر کوه‌های گرانیتی قدرتمند و فرورفته دفن شدن بیرون می‌کشیم، رقیق می‌کنیم و نابودشون می‌کنیم، چه در داخل ایران باشه و چه در ایالات متحده.
+ما مشتاقانه منتظر همکاری با روافض قحبه و کل خاورمیانه در آینده‌ای طولانی هستیم.
+امیدوارم این فرآیند سریع، ساده و روان پیش بره.
+اگه هم این‌طور نشه، ما اون گزینه نهایی و جایگزین رو داریم که البته امیدوارم هیچ‌وقت مجبور به استفاده دوباره ازش نشیم.
+از توجهتون به این موضوع خیلی ممنونم.
+رئیس‌جمهور، دونالد جی. ترامپ
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391909
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391909_1781375962.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏❌باور نمیکنین❌
+
+بچه شیعه بالاخره باخت داد!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391908
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391908_1781375963.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بَـــه آقای جوان نگرانتون بودیم
+خوبه كه بيدار شدین...
+خوبه كه وسط نيستین…
+تكليفتون روشنه.… «حكومتى كامل»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391907
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391907_1781375964.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به‌به تو رستم و تهمتنی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدور و تایید حکم اعدام برای ۳ متهم/ رهایی یک زندانی از مجازات مرگ
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– دو متهم در پرونده‌های مجزا توسط دادگاه کیفری تهران بابت اتهام قتل به اعدام محکوم شدند. حکم اعدام یک متهم نیز در پرونده‌ای با اتهام تجاوز، توسط دیوان عالی کشور تایید شد. از سوی دیگر، یک زندانی در استان خراسان رضوی که پیشتر از بابت اتهام قتل به #اعدام محکوم شده بود، با اعلام رضایت اولیای دم از مجازات مرگ رهایی یافت.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرگ و مصدومیت ۲ کارگر از جمله یک زن در سایه فقدان ایمنی کار
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– در سایه فقدان ایمنی محیط و شرایط نامناسب کار، دو #کارگر در شهرهای کاشان و دماوند، حین انجام کار دچار حادثه شدند. طی این حوادث یک کارگر جان باخت و یک کارگر زن مصدوم شد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## manototv — post 106051
+
+<div align="center">
+  <a href="telegram/content/manototv_106051_1781375965.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جام جهانی ۲۰۲۶ برای ایران فقط یک رویداد ورزشی نیست. هم‌زمان با حضور تیم ملی در بزرگ‌ترین صحنه فوتبال جهان، بحث بر سر هویت ملی، پرچم شیر و خورشید، جمهوری اسلامی و نمایندگی ایران نیز وارد ورزشگاه‌ها شده است.
+
+آیا تیم ملی صرفاً یک تیم فوتبال است؟ آیا می‌توان از ایران حمایت کرد بدون آنکه از حکومت حمایت کرد؟ و در نهایت، چه کسی حق دارد به نام ایران سخن بگوید؟
+</div>
+
+## alonews — post 127697
+
+<div align="center">
+  <a href="telegram/content/alonews_127697_1781375965.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره به نقل از سازمان پخش اسرائیل: ارتش برای احتمال صدور دستور توقف پیشروی زمینی در جنوب لبنان از سوی فرماندهی سیاسی آماده می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127696
+
+<div align="center">
+  <a href="telegram/content/alonews_127696_1781375965.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مقام ارشد اسرائیلی به کانال ۱۲ اسرائیل: این یه توافق مزخرفه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127695
+
+<div align="center">
+  <a href="telegram/content/alonews_127695_1781375965.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نشست اضطراری کابینه امنیتی اسرائیل در پی آخرین تحولات ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127694
+
+<div align="center">
+  <a href="telegram/content/alonews_127694_1781375966.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ یه عکس از خودش و رهبرِ کره شمالی، کیم جونگ اون، پست کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127693
+
+<div align="center">
+  <a href="telegram/content/alonews_127693_1781375966.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سران کانادا و ایرلند: آتش بس در لبنان باید در توافق ایران و آمریکا لحاظ شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127692
+
+<div align="center">
+  <a href="telegram/content/alonews_127692_1781375966.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسرائیل هیوم: اسرائیل ملزم به امضای توافق با ایران نخواهد بود و قادر به دفاع از خود است، اما رفتار آن باید با ایالات متحده هماهنگ شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127691
+
+<div align="center">
+  <a href="telegram/content/alonews_127691_1781375966.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری فارس: ترامپ در تلاش است تا یادداشتی بین آمریکا و ایران روز یکشنبه امضا شود، هرچند مقامات ایرانی می‌گویند که توافق نهایی نشده و امضایی در کار نیست.
+
+
+🔴برخی معتقدند او می‌خواهد این اعلامیه با تولدش همزمان شود و آن را به یک پیروزی نمادین سیاسی تبدیل کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127690
+
+<div align="center">
+  <a href="telegram/content/alonews_127690_1781375966.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی مرکزی ایالات متحده اعلام کرد که کشتی‌های جنگی نیروی دریایی و دارایی‌های هوایی ایالات متحده همچنان در حمایت از محاصره علیه ایران گشت‌زنی می‌کنند و عملیات‌های مداوم را از سوی ناوچه یواس‌اس دلبرت دی. بلک (DDG‑119) در دریای عرب برجسته می‌سازند.
+
+
+🔴بر اساس گفته‌های فرماندهی مرکزی، تا تاریخ ۱۳ ژوئن، نیروهای ایالات متحده ۱۴۱ کشتی تجاری را به مسیرهای دیگر هدایت کرده و ۹ کشتی را غیرفعال کرده‌اند تا به رعایت محاصره اجبار شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127689
+
+<div align="center">
+  <a href="telegram/content/alonews_127689_1781375966.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۳ اسراییل: در اسرائیل اعتراف می‌کنند که میزان تأثیرگذاری بنیامین نتانیاهو بر توافقی که در حال حاضر میان ایران و ایالات متحده در حال شکل‌گیری است، بسیار محدود بوده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127688
+
+<div align="center">
+  <a href="telegram/content/alonews_127688_1781375967.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: انتظار می‌رود ایالات متحده و ایران، با میانجیگری پاکستان و قطر، روز یکشنبه یک نشست مجازی برگزار کنند تا به صورت الکترونیکی تفاهم‌نامه‌ای را امضا کنند که آتش‌بس را به مدت ۶۰ روز تمدید می‌کند، تنگه هرمز را بازگشایی می‌کند و مذاکرات در مورد برنامه هسته‌ای ایران را آغاز می‌کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127687
+
+<div align="center">
+  <a href="telegram/content/alonews_127687_1781375967.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرهنگستان ادب و زبان فارسی: از این به بعد به جای هدفون بگید گوشینه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127685
+
+<div align="center">
+  <a href="telegram/content/alonews_127685_1781375967.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملهِ هوایی اسرائیل به شهرک الزراریه، جنوب لُبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127684
+
+<div align="center">
+  <a href="telegram/content/alonews_127684_1781375967.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما : یه نفتکش غول‌پیکر از محاصره دریایی آمریکا، رد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127683
+
+<div align="center">
+  <a href="telegram/content/alonews_127683_1781375967.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارس: با توجه به اینکه فردا تولد ترامپ است مسئولان ایران اجازه نخواهند داد توافق فردا امضا شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/23 20:52
 ---
 
