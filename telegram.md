@@ -7,6 +7,993 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/24 02:26
+---
+
+## VahidOOnLine — post 245375
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245375_1781391417.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش روزنامه «سان» بریتانیا، غفلت و بی‌احتیاطی تکان‌دهنده کارکنان یک مرکز ورزش‌های هیجانی در برزیل، باعث سقوط مرگبار و دلهره‌آور یک دختر ۲۱ ساله از فراز یک پل مرتفع شد. ماریا ادواردا رودریگز، فارغ‌التحصیل رشته تربیت‌بدنی، صبح روز شنبه برای تجربه پرش از روی «پل اسکلتون» در حومه سائوپائولو به این مکان رفته بود، اما دو تن از کارکنان مجموعه بدون آنکه متوجه شوند طناب ایمنی به جلیقه محافظ او متصل نشده است، او را بلند کرده و از لبه پل به پایین پرتاب کردند. تصاویر هولناک ضبط‌شده از این صحنه نشان می‌دهد که تنها ثانیه‌هایی پس از پرتاب، صدای فریاد وحشت‌زده حاضران بلند می‌شود که می‌گویند «طناب! طناب کو؟»، اما این دختر جوان پیش از چشم مربیان خود از ارتفاع بیش از ۴۰ متری به زمین سقوط کرد و در دم جان باخت. نکته تکان‌دهنده این حادثه، تصاویری بود که ماریا تنها چند ساعت پیش از مرگش در اینستاگرام منتشر کرده و به شوخی نوشته بود: «کدام دیوانه‌ای به من اجازه داد از روی پل بپرم؟». در پی این فاجعه و با حضور نیروهای امدادی، پلیس نظامی برزیل ۶ نفر از کارکنان دو شرکت مسئول این رویداد را در محل حادثه بازداشت کرد. این در حالی است که با وجود وقوع این «قتل شبه‌عمد»، وب‌سایت این مجموعه‌ها همچنان به فروش بلیت‌های ۲۶ پوندی خود برای برنامه‌های ماه‌های آینده ادامه می‌دهند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245374
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245374_1781391417.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامران غضنفری، نماینده مجلس جمهوری اسلامی، در پیامی با عنوان «هشدار به تیم مذاکره‌کننده» اعلام کرد مقام‌های جمهوری اسلامی در مذاکرات از «خطوط قرمز» رهبر جمهوری اسلامی عبور کرده‌اند و به همین دلیل هرگونه توافقی با آمریکا فاقد مشروعیت است و قابلیت اجرا نخواهد داشت.
+
+او افزود آمریکا در طول دو ماه مذاکرات، جمهوری اسلامی و برخی اعضای تیم مذاکره‌کننده را بارها تهدید کرده است و به همین دلیل هر توافقی که در این شرایط حاصل شود، از نظر حقوق بین‌الملل فاقد اعتبار خواهد بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245373
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245373_1781391418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یائیر لاپید، نخست‌وزیر سابق و رهبر اپوزیسیون در اسرائیل، در شبکه اجتماعی ایکس نوشت یادداشت تفاهم احتمالی بین آمریکا و ایران، یک شکست استراتژیک برای بنیامین نتانیاهو، نخست‌وزیر اسرائیل، خواهد بود.
+
+او افزود که حکومت ایران همچنان در قدرت است، برنامه موشکی آن دست نخورده باقی مانده و تهران توانایی بازسازی برنامه هسته‌ای خود را حفظ کرده است.
+
+لاپید اضافه کرد یادداشت تفاهم احتمالی هیچ‌یک از اهداف جنگی اسرائیل را محقق نمی‌کند؛ رژیم پابرجا می‌ماند، برنامه موشکی‌اش دست نخورده باقی می‌ماند و تهران قادر به بازسازی برنامه هسته‌ای خود خواهد بود.
+
+او نوشت: «این یک شکست کامل از سوی نتانیاهو است و در این مسیر ، ما را به یک کشور دست‌نشانده تبدیل می‌کند که در مورد امنیت ملی خود دستورالعمل دریافت می‌کند. هیچ کنفرانس مطبوعاتی، هیچ چرخش رسانه‌ای و هیچ ویدیوی هوش مصنوعی این شکست را پنهان نخواهد کرد. »
+
+لاپید همچنین نوشتک «دولت بعدی نقشی تاریخی خواهد داشت: ترمیم آسیب‌های ناشی از ناتوانی نتانیاهو در تبدیل دستاوردهای نظامی به موفقیت‌های استراتژیک.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245372
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245372_1781391419.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری فرانسه به نقل از پلیس نروژ روز شنبه گزارش داد، یک گوزن بزرگ شمالی (موس) که با ورود به مرکز شهر اسلو و پرسه زدن در خیابان‌ها موجب جلب توجه و تجمع مردم شده بود، به ضرب گلوله نیروهای امدادی کشته شد. ویدئوهای منتشرشده توسط شهروندان نشان می‌دهد که این حیوان سرگردان و هراسان، با سرعت در میان خودروها و عابران پیاده در پایتخت نروژ می‌دود و تلاش می‌کند راه خود را پیدا کند. این دومین حادثه مشابه در دو روز گذشته در شبه‌جزیره اسکاندیناوی است؛ چرا که تنها یک روز پیش از این اتفاق، گوزن جوان دیگری نیز پس از ورود به خیابان‌های شلوغ استکهلم در سوئد، توسط نیروهای کنترل حیات وحش از پا درآمده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245371
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245371_1781391420.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارک دوبوویتز، مدیرکل بنیاد دفاع از دموکراسی‌ها، در پیامی در شبکه اجتماعی ایکس نوشت دوره‌های آتش‌بس و دیپلماسی به جمهوری اسلامی فرصت داده است تا بخشی از خسارت‌های واردشده در جریان درگیری‌های اخیر را جبران کند.
+
+او با اشاره به دو دوره درگیری ۳۸ روزه و ۱۲ روزه گفت این جنگ‌ها خسارت‌های سنگینی به برنامه هسته‌ای، زرادخانه موشکی، سامانه‌های دفاعی، اقتصاد، رهبری و شبکه‌های تروریستی جمهوری اسلامی وارد کرده‌اند.
+
+دوبوویتز افزود پس از این درگیری‌ها، سه ماه آتش‌بس برقرار شد؛ دوره‌ای که به گفته او اگرچه فشار اقتصادی بر جمهوری اسلامی را افزایش داد، اما همزمان زمان ارزشمندی در اختیار حکومت قرار داد تا توان خود را بازیابی و بازسازی کند و از تنگه هرمز و حزب‌الله بهره‌برداری کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245370
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️براساس تصاویر منتشر شده در شبکه‌های اجتماعی، شنبه‌شب، گروهی از حامیان جمهوری اسلامی، در آستانه امضای توافق میان تهران و واشنگتن، با متهم کردن محمدباقر قالیباف، رییس مجلس شورای اسلامی و عباس عراقچی، وزیر امور خارجه، به دادن «امتیازهای بیش از حد به آمریکا» در مذاکرات، خواستار استعفای آنها شدند. حامیان حکومت شعار «قالیباف، عراقچی، پس خون رهبرم چی؟» و «مرگ بر سازش‌گر» سر دادند.
+پیش از این، دونالد ترامپ، رئیس‌جمهوری آمریکا، با انتشار پیامی در شبکه اجتماعی «تروث سوشال»، از امضای توافق میان واشنگتن و تهران در روز یکشنبه، ۲۴ خرداد خبر داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245369
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245369_1781391421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یائیر لاپید، نخست‌وزیر سابق و رهبر اپوزیسیون در اسرائیل، در شبکه اجتماعی ایکس نوشت توافق احتمالی بین آمریکا و ایران، یک شکست استراتژیک برای بنیامین نتانیاهو، نخست‌وزیر اسرائیل، خواهد بود.
+
+او افزود که حکومت ایران همچنان در قدرت است، برنامه موشکی آن دست نخورده باقی مانده و تهران توانایی بازسازی برنامه هسته‌ای خود را حفظ کرده است.
+
+لاپید اضافه کرد توافق احتمالی هیچ‌یک از اهداف جنگی اسرائیل را محقق نمی‌کند؛ رژیم پابرجا می‌ماند، برنامه موشکی‌اش دست نخورده باقی می‌ماند و تهران قادر به بازسازی برنامه هسته‌ای خود خواهد بود.
+
+او نوشت: «این یک شکست کامل از سوی نتانیاهو است و در این مسیر ، ما را به یک کشور دست‌نشانده تبدیل می‌کند که در مورد امنیت ملی خود دستورالعمل دریافت می‌کند. هیچ کنفرانس مطبوعاتی، هیچ چرخش رسانه‌ای و هیچ ویدیوی هوش مصنوعی این شکست را پنهان نخواهد کرد. »
+
+لاپید همچنین نوشتک «دولت بعدی نقشی تاریخی خواهد داشت: ترمیم آسیب‌های ناشی از ناتوانی نتانیاهو در تبدیل دستاوردهای نظامی به موفقیت‌های استراتژیک.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245368
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245368_1781391422.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یائیر لاپید، رهبر حزب مخالف دولت اسرائیل، روز شنبه در آستانه امضای توافق میان واشنگتن و تهران، با انتشار پیامی در اکس نوشت: «توافقی که در حال شکل‌گیری است، هیچ‌یک از اهداف جنگی اسرائیل را محقق نمی‌کند. رژیم ایران پابرجا مانده، برنامه موشکی آن سر جای خود است و این کشور می‌تواند برنامه هسته‌ای خود را بازسازی کند.» لاپید با حمله شدید به نخست‌وزیر اسرائیل افزود: «این یک شکست مطلق برای نتانیاهو است که در این مسیر، ما را به کشوری تبدیل کرده که درباره امنیت ملی خود دستورالعمل دریافت می‌کند. هیچ نشست مطبوعاتی، موج‌سواری رسانه‌ای یا ویدئوی ساخته‌شده با هوش مصنوعی نخواهد توانست این شکست را پنهان کند. دولت بعدی وظیفه‌ای تاریخی خواهد داشت تا آسیب‌های ناشی از ناتوانی نتانیاهو در تبدیل دستاوردهای نظامی به موفقیت‌های راهبردی را ترمیم کند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 14758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوبار تنگه دعوا شده ! 🚨🤣
+@withyashar
+</div>
+
+## WithYashar — post 14757
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قشم صدای انفجار‌ 🚨 احتمالا از سمت تنگه
+@withyashar
+</div>
+
+## WithYashar — post 14756
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبداللهی، سردبیر خبرگزاری تسنیم:
+احتمال توافق نهایی با آمریکا بسیار بسیار ضعیفه؛ باید برای حمله ناگهانی آماده بود.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342942
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342941
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342941_1781391422.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+TAXPAYER RISK: Obama Presidential Center's $470M endowment sits at just $1M as subcontractors claim they're owed millions days before grand opening.
+
+The fund was promised as an insurance policy so Chicago taxpayers wouldn't get stuck covering future costs on the 99-year deal. Construction costs have ballooned from $330M to at least $850M.
+
+The Obama Foundation says the center is 'fully funded' and plans to make 'significant investments' in the endowment in coming years — but critics say a promise to raise money later is not the same as having a funded backstop in place.
+</div>
+
+## pm_afshaa — post 93835
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93835_1781391423.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یه آخوند تو صداوسیما:
+تمام امامان اهل مذاکره بودن و با دشمن‌شون گفت‌وگو میکردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93834
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93834_1781391424.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌ سپاه: آبروریزی در همدان!
+
+امشب تو همدان و در مراسم علی شادمانی درگیری رخ داد و عده‌ای از مخالفان مذاکره مانع از سخنرانی بقایی و حاجی بابایی شدن و حتی به فرزند شهید تنگسیری اهانت کردن. دختر علی شادمانی برای دلجویی میره سمت بقایی، اما مردمِ مخالف مذاکره به دختر شهید هم توهین کردن و بی‌شرف خطابش کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93833
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صحبت‌های یکی از لیدر‌ های اغتشاشات : 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93832
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93832_1781391424.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صحبت‌های یکی از لیدر‌ های اغتشاشات :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93831
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93831_1781391426.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری انتخاب: طبق مشاهده‌ خبرنگارمون، جمعیت کسایی که تو مشهد تجمع کردن و مخالف مذاکرات هستن به 100 نفر هم نمیرسه ولی فقط سر و صدا دارن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 93830
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_93830_1781391426.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شعار امروز تجمعات :
+اگر چیزی امضا شه، مسئول باید کشته شه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 342157
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342157_1781391428.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرفان قانعی‌فرد، تحلیل‌گر خاورمیانه، درباره حمله حامیان جمهوری اسلامی به مذاکره‌کنندگان با آمریکا، گفت: «آشکار شدن این تناقض اتفاق مثبتی است. البته آنچه امروز شاهدش هستیم بیش از آنکه یک اختلاف واقعی باشد، یک نمایش سیاسی است.»
+
+او افزود: «چه عراقچی و چه قالیباف بدون هماهنگی با راس هرم قدرت، سپاه و نهادهای تصمیم‌گیر، با آمریکا مذاکره و توافق نمی‌کنند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 342156
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342156_1781391429.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیست‌وسومین برنامه اعتراضی ایرانیان مقیم منطقه پایتخت در آمریکا در روزهایی برگزار می‌شود که یک یادداشت تفاهم میان جمهوری اسلامی و آمریکا در حال امضا شدن است.
+
+معترضان در خیابان‌های واشینگتن هر هفته از زندانیان سیاسی، زندانیان در معرض اعدام و کشته‌شدگان قیام دی‌ماه یاد می‌کنند و تلاش دارند توجه افکار عمومی جهان را به ایران و مردمی که در رنج و انتظار زندگی می‌کنند، جلب کنند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 342155
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342155_1781391431.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامران غضنفری، نماینده مجلس جمهوری اسلامی، در پیامی با عنوان «هشدار به تیم مذاکره‌کننده» اعلام کرد مقام‌های جمهوری اسلامی در مذاکرات از «خطوط قرمز» رهبر جمهوری اسلامی عبور کرده‌اند و به همین دلیل هرگونه توافقی با آمریکا فاقد مشروعیت است و قابلیت اجرا نخواهد داشت.
+
+او افزود آمریکا در طول دو ماه مذاکرات، جمهوری اسلامی و برخی اعضای تیم مذاکره‌کننده را بارها تهدید کرده است و به همین دلیل هر توافقی که در این شرایط حاصل شود، از نظر حقوق بین‌الملل فاقد اعتبار خواهد بود.
+https://iranintl.com/202606136781
+</div>
+
+## IranIntlTV — post 342154
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342154_1781391432.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یائیر لاپید، نخست‌وزیر سابق و رهبر اپوزیسیون در اسرائیل، در شبکه اجتماعی ایکس نوشت یادداشت تفاهم احتمالی بین آمریکا و ایران، یک شکست استراتژیک برای بنیامین نتانیاهو، نخست‌وزیر اسرائیل، خواهد بود.
+
+او افزود که حکومت ایران همچنان در قدرت است، برنامه موشکی آن دست نخورده باقی مانده و تهران توانایی بازسازی برنامه هسته‌ای خود را حفظ کرده است.
+
+لاپید اضافه کرد یادداشت تفاهم احتمالی هیچ‌یک از اهداف جنگی اسرائیل را محقق نمی‌کند؛ رژیم پابرجا می‌ماند، برنامه موشکی‌اش دست نخورده باقی می‌ماند و تهران قادر به بازسازی برنامه هسته‌ای خود خواهد بود.
+
+او نوشت: «این یک شکست کامل از سوی نتانیاهو است و در این مسیر ، ما را به یک کشور دست‌نشانده تبدیل می‌کند که در مورد امنیت ملی خود دستورالعمل دریافت می‌کند. هیچ کنفرانس مطبوعاتی، هیچ چرخش رسانه‌ای و هیچ ویدیوی هوش مصنوعی این شکست را پنهان نخواهد کرد. »
+
+لاپید همچنین نوشتک «دولت بعدی نقشی تاریخی خواهد داشت: ترمیم آسیب‌های ناشی از ناتوانی نتانیاهو در تبدیل دستاوردهای نظامی به موفقیت‌های استراتژیک.»
+https://iranintl.com/202606134603
+</div>
+
+## IranIntlTV — post 342153
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342153_1781391432.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارک دوبوویتز، مدیرکل بنیاد دفاع از دموکراسی‌ها، در پیامی در شبکه اجتماعی ایکس نوشت دوره‌های آتش‌بس و دیپلماسی به جمهوری اسلامی فرصت داده است تا بخشی از خسارت‌های واردشده در جریان درگیری‌های اخیر را جبران کند.
+
+او با اشاره به دو دوره درگیری ۳۸ روزه و ۱۲ روزه گفت این جنگ‌ها خسارت‌های سنگینی به برنامه هسته‌ای، زرادخانه موشکی، سامانه‌های دفاعی، اقتصاد، رهبری و شبکه‌های تروریستی جمهوری اسلامی وارد کرده‌اند.
+
+دوبوویتز افزود پس از این درگیری‌ها، سه ماه آتش‌بس برقرار شد؛ دوره‌ای که به گفته او اگرچه فشار اقتصادی بر جمهوری اسلامی را افزایش داد، اما همزمان زمان ارزشمندی در اختیار حکومت قرار داد تا توان خود را بازیابی و بازسازی کند و از تنگه هرمز و حزب‌الله بهره‌برداری کند.
+https://iranintl.com/202606138772
+</div>
+
+## IranIntlTV — post 342152
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342152_1781391433.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت یادداشت تفاهم با جمهوری اسلامی روز یکشنبه امضا و بلافاصله پس از آن تنگه هرمز باز خواهد شد.
+
+هم‌زمان، یک منبع ارشد دیپلماتیک اسرائیلی به اسرائیل هیوم گفت در صورت توافق آمریکا و جمهوری اسلامی برای پایان جنگ، اسرائیل ملزم به امضای این توافق نیست.
+
+گزارش امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 342149
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کریستیانو رونالدو، فوق‌ستاره تمام‌نشدنی دنیای فوتبال، در حالی در ۴۱ سالگی به همراه تیم ملی پرتغال راهی آمریکا شده که آخرین شانس خود برای جادوانه‌تر شدن در دنیای فوتبال با قهرمانی در جام جهانی را پیش رو دارد.
+
+🔹برترین گلزن تاریخ بازی‌های ملی امیدوار است با ترکیب کم‌نظیر سلسائو اروپا، پس از پنج قهرمانی در چمپیونزلیگ و پنج بار کسب توپ طلا و ثبت رکوردهای دست‌نیافتنی پرشمار، در ششمین تجربه خود در جام جهانی، سرانجام مهم‌ترین کاپ طلایی‌رنگ دنیای ورزش را لمس کند.
+
+🔹۷۲ درصد از مخاطبین در نظرسنجی ایران اینترنشنال ورزشی پیش‌بینی کرده‌اند که فوق‌ستاره پرتغالی جام قهرمانی را روی سر خواهد برد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342147
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342147_1781391434.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حاشیه تجمع اعتراضی ایرانیان در واشینگتن، سیامک آرام، برگزارکننده، به اردوان روزبه، خبرنگار ایران‌اینترنشنال، گفت: «مبارزه متوقف‌شدنی نیست. ایرانیان داخل کشور به شیوه خودشان مبارزه می‌کنند و ما در خارج از کشور نیز به شیوه خود تلاش می‌کنیم صدای آنها را بازتاب دهیم.»
+
+او افزود: «هدف ما این است که این پیام و این مطالبه زنده بماند و توجه افکار عمومی جهان به آن جلب شود تا این مبارزه ادامه پیدا کند.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 220625
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺انتقاد رهبر اپوزیسیون اسرائيل از نتانیاهو بابت توافق در حال شکل‌گیری با رژیم ایران؛ لاپید: دستاورد نظامی باید به پیروزی استراتژیک تبدیل شود
+
+▪️یائیر لاپید، رهبر حزب اپوزیسیون دولت بنیامین نتانیاهو نخست وزیر اسرائيل، از توافق در حال شکل‌گیری میان آمریکا و جمهوری اسلامی به‌شدت انتقاد کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8160504.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220624
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دور کردن گروه‌های مسلح وابسته به جمهوری اسلامی از مرزهای عراق برای اطمینان‌بخشی به کشورهای همسایه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220623
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220623_1781391436.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جان جیمز، یک نماینده جمهوری‌خواه مجلس نمایندگان آمریکا از ایالت میشیگان، به فاکس‌نیوز گفت به جمهوری اسلامی «ذره‌ای نباید اعتماد کرد.» این نماینده به فاکس‌نیوز گفت وقتی دشمنان آمریکا «شعار مرگ بر آمریکا سر می‌دهند، باید حرفشان را باور کنیم.» او افزود که در مورد تلاش‌های ایالات متحده برای امضای یک توافق با جمهوری اسلامی، به رئیس‌جمهوری آمریکا، دونالد ترامپ، اطمینان دارد. جان جیمز گفت دونالد ترامپ مردی است که خاورمیانه را بازآرایی می‌کند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220622
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220622_1781391436.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ارتش اسرائیل دقایقی قبل گفت یک راکت حزب‌الله را که به سمت سربازان در جنوب لبنان شلیک شده بود رهگیری کرد. تایمز اسرائيل گزارش داد در این حمله کسی زخمی نشد. شلیک این راکت باعث به‌صدا درآمدن آژیرهای خطر در منطقه مرزی متولا در شمال اسرائيل شد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 16992
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_16992_1781391436.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متاسفانه من از دشمن هم شانس نیوردم 😄
+بعید میدونم این یارو با این سطح سواد زبان فارسی، سیکل هم داشته باشه، تو همه شبکه اجتماعی هاش فراخوان داده هرکسی سند و مدرکی از من داره براش بفرسته !😄😄😄
+
+اگر بجای پرسه زدن پشت #پارک_دانشجو ، درست رو ادامه میدادی شاید یه چیزی میشدی 😄
+</div>
+
+## Persian_Trend_Official — post 16991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️لینک اصلاح شد فایل صوتی لایو امشب در اسپاتیفای https://open.spotify.com/episode/6qRMBiClAcUKBWbbm1reAX
+</div>
+
+## Persian_Trend_Official — post 16990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️لینک اصلاح شد
+
+فایل صوتی لایو امشب در اسپاتیفای
+https://open.spotify.com/episode/6qRMBiClAcUKBWbbm1reAX
+</div>
+
+## IranianMinds — post 22516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کیان عبداللهی ، سردبیر خبرگزاری تسنیم در گفت‌و‌گو با صدا‌و‌سیما:
+
+احتمال توافق نهایی بسیار ضعیف است، باید برای حمله ناگهانی آماده بود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22515
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22515_1781391438.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درگیری شدید شده و‌ دارن به شادمانی و تنگسیری هم‌ توهین میکنن
+
+واقعا که اتیش بزنید همه چیو نابود کنید چه وضعشه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22514
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان خواهش میکنم به همه بگید، بله، روبیکا، ایتا دوست و فامیل انقلابی به همه
+
+
+
+همه به صورت #کفن_پوش برای دفاع از خطوط قرمز رهبری
+با پلاکارت های هیهات من الذله
+و مثلی لا یبایع مثل یزید
+
+فرمان رهبری برای تلاش مضاعف مجلس روی زمین مانده، همگی درخواست تشکیل مجلس و‌تصویب شروط ده‌گانه رهبری را داریم
+
+#نشرحداکثری
+#مردم_مبعوث_شده
+</div>
+
+## IranianMinds — post 22513
+
+
+
+
+## IranianMinds — post 22512
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22512_1781391439.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صحبت‌های دیشب عراقچی که ایدئولوژی جمهوری اسلامی و آرمان‌های عمام رو زیر سوال برد:
+
+اشتباه نکنید؛ مذاکرات من منجر به جنگ نشد، این مقاومت بود که منجر به جنگ شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22508
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ فوری : به دلیل اغتشاشات اخیر اینترنت ایران جهانی شد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22507
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ثابتی : بزودی سیک عراقچی رو میزنیم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22506
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚩 ما همه خون‌خواه رهبر شهیدمان ایم فردا ساعت 22:00 در خیابان های اصلی تمام کشور
+</div>
+
+## IranianMinds — post 22505
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚩 ما همه خون‌خواه رهبر شهیدمان ایم
+
+فردا ساعت 22:00 در خیابان های اصلی تمام کشور
+</div>
+
+## IranianMinds — post 22504
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تاکتیک جدید ژنرال
+
+🔴 محسن رضایی: باید طرفداران خودمان را هم با تیر بزنیم تا آمریکا بفهمد ما با خودمان هم شوخی نداریم چه برسد به دشمن
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22503
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نبویان : با این توافق تخمی تنگه هرمز باز میشه و حتی کشتی‌های اسرائیلیم اجازه تردد دارن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22502
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسانه های حکومتی :
+
+ببینید، بزارید طبق دموکراسی جلو بریم
+الان برانداز ها همشون مخالف مذاکرات هستن
+ما عرزشی ها هم مخالف مذاکراتیم
+
+پس اکثریت مذاکره رو نمیخوایم، پس توافق نکنید.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22501
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22501_1781391440.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تازه اداشو هم در آورد قبل از ترور کردنش...
+بعد دارن باهاش توافق میکنن 😂😂
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22500
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این توافق خونیه، قالیباف خودش کونیه
+</div>
+
+## BBCPersian — post 283743
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/283743" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه ۶۰ دقیقه شنبه ۲۳ خرداد ۱۴۰۵
+
+این نسخه رادیویی برنامه شصت دقیقه تلویزیون فارسی بی‌بی‌سی است که هرشب بعد از پخش، با حجم کم از اپلیکیشن‌های پادگیر و صفحه تلگرام بی‌بی‌سی فارسی در دسترس است.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 283742
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283742_1781391440.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻قطر با یک گل دراماتیک در وقت اضافه، مقابل سوئیس به تساوی رسید و اولین امتیاز خود را در جام جهانی ۲۰۲۶ به دست آورد.
+
+بوعلم خوخی در دقیقه ۹۴ پاس همام الامین را با ضربه سر درون دروازه کرد تا فریاد شادی هواداران قطر در فضای ورزشگاه طنین‌انداز شود.
+
+این گل نتیجه بازی و برتری سوئیس را که با پنالتی بریل امبولو در نیمه اول به دست آمده بود تغییر داد.
+
+در دقیقه ۱۷ بازی و پس از خطای محمود ابونادا روی ریمو فریلر، بریل امبولو از روی نقطه پنالتی توپ را به دروازه قطر شلیک کرد و اولین گل بازی را به ثمر رساند.
+
+سوئیسی‌ها به‌خاطر کاهش شدت حملات در دقایق پایانی بازی تنبیه شدند.
+
+دن ندوی، مهاجم تیم ناتینگهام فارست نتوانست چندین موقعیت خوب را به گل تبدیل کند و روبن وارگاس و امبولو نیز چند موقعیت طلایی را از دست دادند.
+
+این به قطری که برای دوره‌های طولانی مغلوب شده بود، اجازه داد تا غیرممکن‌ترین امتیاز را از آن خود کند.
+📷San Francisco Chronicle via Getty
+@BBCPersian
+</div>
+
+## BBCPersian — post 283741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻لبنان: اسرائیل چندین نقطه در جنوب را هدف قرار داد
+
+لبنان می‌گوید که اسرائیل امروز چندین نقطه در جنوب آن کشور را هدف حملات هوایی قرار داده است. این حملات پس از آن صورت گرفت که ارتش اسرائیل برای شهر نبطیه و بیش از ۲۰ منطقه دیگر در جنوب لبنان هشدار تخلیه صادر کرد.
+
+خبرگزاری رسمی لبنان گزارش داد که حملات هوایی اسرائیل چندین منطقه، به‌ویژه اطراف شهر نبطیه را هدف قرار داده است.
+
+یک عکاس خبرگزاری فرانسه در منطقه نبطیه از شنیده شدن صدای چند انفجار در اطراف کفررمان و برخاستن دود از منطقه کفرتبنیت خبر داد.
+
+ارتش لبنان نیز اعلام کرد که یکی از نیروهایش در حمله یک پهپاد اسرائیلی در جاده میان کفررمان و نبطیه به شدت زخمی شده است.
+
+خبرگزاری رسمی لبنان همچنین گزارش داد که در حمله‌ دیگری، یک مقام محلی در منطقه ریحان در جنوب لبنان کشته شده است.
+
+این تحولات در حالی است که آمریکا و ایران از نزدیک شدن به توافقی برای پایان جنگ خبر داده‌اند؛ توافقی که به گفته مقام‌های دو طرف می‌تواند لبنان را نیز در بر گیرد.
+@BBCPersian
+</div>
+
+## BBCPersian — post 283740
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283740_1781391441.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻تریتا پارسی، تحلیلگر و پژوهشگر مسائل ایران و آمریکا، مدعی شده است که وزارت خارجه آمریکا در حال حاضر «برنامه‌ای برای لغو گرین‌کارتش ندارد» و همچنین آن وزارتخانه هرگونه تحقیق یا بررسی درباره او را «تایید نکرده است.»
+
+اشاره آقای پارسی در شبکه اجتماعی ایکس به گزارشی در نشریه «فری پرس» است که مدعی شده بود وزارت خارجه آمریکا در حال بررسی فعالیت‌های او به دلیل تلاش برای «تضعیف آمریکا» است.
+
+آقای پارسی که از منتقدان سیاست‌های تقابلی آمریکا در قبال ایران به شمار می‌رود، در ادامه مدعی شد که گزارش منتشرشده بخشی از تلاش منتقدانش برای بی‌اعتبار کردن و تحت فشار قرار دادن او بوده است.
+
+او گفت که طی بیش از ۲۵ سال گذشته، مخالفانش بارها کوشیده‌اند او را ساکت کنند، اعتبارش را زیر سؤال ببرند، بدنامش کنند و از صحنه عمومی کنار بزنند.
+📷Tasos Katopodis via Getty
+@BBCPersian
+</div>
+
+## BBCPersian — post 283739
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻از تهران تا تل‌آویو؛ آنچه در ۱۲ روز جنگ اسرائیل و ایران گذشت
+
+حملات اسرائیل به ایران و پاسخ‌های تلافی‌جویانه ایران به اسرائیل، ۱۲ روز به طول انجامید. در نهایت با دخالت آمریکا و حمله این کشور به تاسیسات هسته‌ای ‌ایران، طرف‌های درگیر با آتش‌بس موافقت کردند.
+
+در این مدت، تاسیسات هسته‌ای، پایگاه‌ها و ادوات نظامی، و مراکز دولتی متعددی در شهرهای مختلف ایران هدف بمباران قرار گرفته و ده‌ها چهره‌ ارشد نظامی و دانشمند هسته‌ای کشته شده‌اند.
+
+ایران نیز در پاسخ، صدها موشک به سوی اهدافی در اسرائیل شلیک کرده است؛ موشک‌هایی که سیستم‌های دفاعی اسرائیل نتوانسته همه آن‌ها را رهگیری کند و خسارت‌های سنگینی به بار آورده‌اند.
+
+گزارش‌های رسمی دو طرف از کشته و زخمی شدن غیرنظامیان ایرانی و اسرائیلی خبر می‌دهد.
+
+در این گاهشمار، مهم‌ترین حملات نظامی و رویدادهای سیاسی این ۱۲ روز مرور شده است.
+ادامه از:
+https://bbc.in/4v90zKd
+@BBCPersian
+</div>
+
+## BBCPersian — post 283738
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻روز شنبه ۱۳ ژوئن/ ۲۳ خرداد، جمعیت زیادی در مرکز لندن برای مراسم تولد رسمی چارلز سوم، پادشاه بریتانیا جمع شدند.
+
+این رژه یکی از بزرگترین نمایش‌های سلطنتی و نظامی سال است که با پرواز نمایشی گروه «فلش‌های سرخ» به اوج خود رسید و پادشاه به همراه خانواده سلطنتی از بالکن کاخ باکینگهام آن را نظاره کردند.
+
+در کنار پادشاه و ملکه کامیلا، شاهزاده و شاهدخت ولز به همراه فرزندانشان حضور داشتند.
+
+لحظه حضور در بالکن، یادآور تداوم سلطنتی بود، جایی که پادشاه فعلی در کنار دو پادشاه آینده، شاهزاده ویلیام و شاهزاده جورج، ایستاد.
+
+در یک روز آفتابی، پادشاه و ملکه با کالسکه‌ای روباز سفر کردند و از میان هزاران نفری عبور کردند که در مسیر کاخ باکینگهام به سمت میدانگاه ویژه رژه گارد سواره نظام صف کشیده بودند.
+
+پادشاه یونیفرم گارد گرنادیر را که دارای نشان ملکه الیزابت دوم است، به تن داشت. بر سینه او همچنین ۱۰ مدال از جمله مدال تاجگذاری ملکه الیزابت دوم (۱۹۵۳) و مدال هفتادمین سال تاجگذاری (۲۰۲۲) دیده می‌شد.
+
+پس از رژه، پادشاه با ادای احترام سلطنتی و شلیک ۴۱ توپ توسط توپخانه سواره نظام سلطنتی پادشاه مورد استقبال قرار گرفت.
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 391972
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391972_1781391442.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رائفی پور تخم عرفات:
+مردم شبا نمیومدن فستیوال که یکی بیاد بالا استیج و واسشون آهنگ بخونه و ایناهم پرچم تکون بدن؛
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فردا تولد ترامپه و ایران داره بهش اورانیوم کادو میده.
+
+عررررررررزشی عررررررررررر بزن!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391970
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏ترامپ گفته میاییم سایت هسته ایی اورانیوم رو نابود میکنیم یا میبریم آمریکا، پول هم نمیدیم، تنگه هم باز میکنن😂😂😂😂😂😂😂😂😂😂😂😂😂😂😂
+
+این اسمش تسلیمم دیگه نیست، قمبله قمبلللللل
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391969
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391969_1781391443.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وسط خشتک دریدن عرزشی‌ها یادآوری کنم برزیل الان بازی داره 🤭🇧🇷
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391968
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391968_1781391445.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این چه سوالیه لعنتی؟ خوب معلومه، چون پیروز شدین :))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391967
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391967_1781391445.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صداوسیما خیلی یهویی تغییر موضع داد؛ یه آخوند: خدا شاهده همه اماما اهل مذاکره بودن و با دشمن‌شون گفتگو میکردن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391966
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391966_1781391446.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 محسن رضایی: باید طرفداران خودمان را هم با تیر بزنیم تا آمریکا بفهمد ما با خودمان هم شوخی نداریم، چه برسد به دشمن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391965
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صابرین نیوز: آبروریزی توی همدان!
+
+چند ساعت پیش توی همدان و در مراسم علی شادمانی درگیری رخ داد.
+عده ای اغتشاشگر که مخالف مذاکره بودن مانع از سخنرانی بقایی و حاجی بابایی شدن و حتی به فرزند شهید تنگسیری فحش دادن.
+دختر علی شادمانی برای دلجویی میره سمت بقایی، اما مردمِ مخالف مذاکره به دختر شهیدم فحش دادن و شعار، بی‌شرف علیهش سر دادن😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391964
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391964_1781391447.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه ویدیو دیگه از شعار امروز اغتشاشگرا: "اگر چیزی امضا شه، مسئول باید کشته شه"😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391963
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391963_1781391448.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من خودم بسیجیم، ولی بحث بحثِ آبروی کشوره.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391962
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391962_1781391448.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توی روبیکا دارن پست میزنن که اگه قطع شدیم، مارو از تلگرام دنبال کنین 🤣🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391961
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زنای عرزشی چه شعارهایی میدن ؛
+
+قالیباف عراقچی
+این همه مفت دادم چی ؟🥺
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391960
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391960_1781391448.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نت بلاکس: هم اکنون فقط ۱ درصد مردم ایران به اینترنت داخلی دسترسی دارن و صدای عرازشه داره سانسور میشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391959
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شعار برای اعتراضات، پارت ۲: ۱_ سبزی پلو تو دیسه / عراقچی یه کصلیسه‌. ۲_ نونو پنیر و انبه / عباس شده بی پرده. ۳_ باقالی پلو با گردن / سازشگرا رو کردن.
+</div>
+
+## Dirty_Kids — post 391958
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391958_1781391449.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تازه اداشو هم در آورد قبل از شَتَک کردنش...🤣🫢😂
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 127765
+
+<div align="center">
+  <a href="telegram/content/alonews_127765_1781391449.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امشب تولد‌ ۸۰ سالگی پرزیدنت ترامپه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127764
+
+<div align="center">
+  <a href="telegram/content/alonews_127764_1781391449.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کارشناس صدا و سیما: خدا شاهده همه اماما اهل مذاکره بودن و با دشمن‌شون گفتگو میکردن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127763
+
+<div align="center">
+  <a href="telegram/content/alonews_127763_1781391450.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رائفی پور: میتونیم رمز ارز به نام علی خامنه‌ای بسازیم تا همه بخرن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127762
+
+<div align="center">
+  <a href="telegram/content/alonews_127762_1781391450.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آبروریزی تندروها در همدان
+
+
+🔴صابرین: ساعتی پیش در همدان و در مراسم شهید شادمانی درگیری رخ داد؛ عده‌ای خاص با برخوردی تند و ناشایست (مخالف مذاکره) مانع از سخنرانی بقایی و حاجی بابایی شدند و حتی به فرزند شهید تنگسیری نیز اهانت کردند!
+
+
+🔴دختر شهید شادمانی سمت آقای بقایی رفت تا از دلجویی کند اما این افراد در مراسم شهید شادمانی به دختر شهید اهانت کردند و علیه او شعار بی شرف دادند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127761
+
+<div align="center">
+  <a href="telegram/content/alonews_127761_1781391450.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق گزارش‌ها حدود ۱۰ فروند ترابری c17 از کشورهای منطقه بارگیری کردند و عازم اروپا شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127760
+
+<div align="center">
+  <a href="telegram/content/alonews_127760_1781391450.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صحبت‌های یکی از لیدرهای شلوغی‌ها
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127759
+
+<div align="center">
+  <a href="telegram/content/alonews_127759_1781391452.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فقط عباس میتونه جوری توافق کنه که:
+
+جمهوری اسلامی ناراضی باشه
+مخالف جمهوری اسلامی ناراضی باشه
+اسرائیلی‌ها ناراضی باشن
+آمریکایی‌ها ناراضی باشن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 127758
+
+<div align="center">
+  <a href="telegram/content/alonews_127758_1781391452.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خروج تعدادی از هواپیماهای سوخت‌رسان آمریکایی از فرودگاه بن‌گوریون!
+
+
+🔴تصاویر ثبت‌شده در روز شنبه نشان می‌دهد که شماری از هواپیماهای سوخت‌رسان آمریکایی پس از ماه‌ها حضور، فرودگاه بین‌المللی بن‌گوریون را ترک کرده‌اند.
+
+
+🔴تنها تعداد اندکی از هواپیماهای سوخت‌رسان آمریکایی در محوطه فرودگاه باقی مانده‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/24 00:55
 ---
 
