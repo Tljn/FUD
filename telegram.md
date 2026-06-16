@@ -7,6 +7,904 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/26 03:51
+---
+
+## VahidOOnLine — post 245794
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245794_1781569294.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون ترامپ، به ان‌بی‌سی‌نیوز گفت در یادداشت تفاهم آمریکا و جمهوری اسلامی مشوق‌های اقتصادی قابل توجهی برای تهران در نظر گرفته شده است، از جمله کاهش تحریم‌ها و امکان تحول در اقتصاد ایران، اما بهره‌مندی از این امتیازها منوط به اجرای کامل تعهدات از سوی تهران خواهد بود.
+ونس گفت جمهوری اسلامی باید ذخایر اورانیوم غنی‌شده را از بین ببرد، به یک مسیر بلندمدت و قابل راستی‌آزمایی برای عدم دستیابی به سلاح هسته‌ای متعهد شود و به جای حمایت از گروه‌های مسلح در منطقه، به ثبات منطقه‌ای کمک کند.
+ونس افزود در صورت اجرای این تعهدات، جمهوری اسلامی از مزایای توافق بهره‌مند خواهد شد، اما در صورت عدم پایبندی، هیچ‌یک از این امتیازها در اختیار تهران قرار نخواهد گرفت.
+او تاکید کرد این توافق بر پایه راستی‌آزمایی بنا شده و می‌تواند به تحولی اساسی در خاورمیانه منجر شود.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245793
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245793_1781569295.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، روز دوشنبه در گفتگو با برنامه «نایتلی نیوز» شبکه ان‌بی‌سی تاکید کرد که بر اساس مفاد یادداشت تفاهم میان واشنگتن و تهران، بازرسان بین‌المللی هسته‌ای «قطعا» به ایران بازخواهند گشت. ونس با اشاره به اینکه بازگشت بازرسان یکی از ارکان و بخش‌های اصلی این توافق است، تصریح کرد که در متن این تفاهم‌نامه به صراحت از آژانس بین‌المللی انرژی اتمی و ایالات متحده خواسته شده است تا به ایران برای نابودی ذخایر اورانیوم با غنی‌سازی بالا کمک کنند. او همچنین در خصوص جدول زمانی اجرای این بند اظهار داشت که این موضوع یکی از محورهای کلیدی گفتگوهای روز جمعه خواهد بود. روزی که همه طرف‌ها گرد هم می‌آیند تا ضمن امضای این توافق، رسما مذاکرات فنی را آغاز کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245792
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245792_1781569295.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا زاکانی، شهردار تهران، با دفاع از روند مذاکرات گفت مذاکره درجات مختلفی دارد و میزان امتیازگیری جمهوری اسلامی در این گفت‌وگوها «میانه به سمت بالا» است.
+او همچنین با اشاره به لزوم برنامه‌ریزی جمهوری اسلامی برای جهان پساآمریکا گفت: «آمریکا در این ماجرا به‌طور قطعی شکست خورده است و جمهوری اسلامی تاکنون به یک‌چهارم از خواسته‌های خود رسیده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245791
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش خبرگزاری رسمی عربستان سعودی (واس)، اداره کل امور مسجدالحرام و مسجدالنبی ماموریت سالانه تعویض پرده کعبه را آغاز کرده و تیم‌های تخصصی و آموزش‌دیده سعودى فرآیند باز کردن قطعات طلایی، قندیل‌ها و پرده ورودی کعبه را جهت آماده‌سازی برای نصب پوشش جدید به جریان انداخته‌اند. واس با اشاره به مراحل هفت‌گانه تولید این اثر ارزشمند شامل رنگ‌آمیزی، بافت ماشینی، آزمایشگاهی، چاپ، سوزن‌دوزی، بافت دستی و مونتاژ گزارش داد که در ساخت این پرده از عالی‌ترین مواد اولیه بهره گرفته شده است. مواد خام به‌کار رفته شامل ۸۲۵ کیلوگرم ابریشم طبیعی، ۴۰۰ کیلوگرم پنبه برای آستر داخلی، ۶۰ کیلوگرم نقره خالص و ۱۲۰ کیلوگرم نقره با روکش طلا برای خطاطی برجسته آیات قرآن است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245790
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245790_1781569297.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنیامین نتانیاهو، در پاسخ به سوالی درباره میزان تعهد اسرائیل به بخش مربوط به ایران در تفاهم‌نامه جدید گفت: «این توافق توسط ایالات متحده و شخص رئیس‌جمهوری آمریکا تنظیم شده است؛ او فکر می‌کند که می‌تواند موضوع بازگشایی آبراه‌ها و لغو برنامه هسته‌ای ایران را با یکدیگر ادغام کند و من هم تاکید کرده‌ام که این تصمیم خود اوست و خودش آن را پیش می‌برد.» نخست‌وزیر اسرائیل با اشاره به اینکه دیدگاه‌های خود را در گفتگوهای مختلف با مقامات واشنگتن ابراز کرده، افزود: «من باز هم تکرار می‌کنم که این تصمیم اوست، اما از سوی دیگر، ما نیز منافع خاص خودمان را داریم که باید از آن‌ها محافظت کنیم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245789
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245789_1781569297.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث‌سوشال نوشت: «جمهوری اسلامی موافقت کرده است که هرگز سلاح هسته‌ای نداشته باشد. همچنین خبر مربوط به پرداخت ۳۰۰ میلیون دلار از سوی آمریکا به ایران، خبر جعلی است که دموکرات‌های احمق آن را منتشر کرده‌اند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245788
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245788_1781569298.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️درحالی که جی‌دی ونس، معاون رئیس‌جمهوری آمریکا به سی‌بی‌اس گفته است «ایران در چارچوب توافق صلح خود با ایالات متحده، در صورتی که به تعهدات تعیین‌شده در این توافق پایبند بماند، می‌تواند به یک صندوق ۳۰۰ میلیارد دلاری برای بازسازی دسترسی پیدا کند»، دونالد ترامپ دسترسی ایران به ۳۰۰ میلیارد دلار را تکذیب کرد. رئیس‌جمهوری آمریکا در پیامی در تروث سوشال نوشت: ««ایران موافقت کرده است که هرگز به سلاح هسته‌ای دست پیدا نکند! همچنین، این ادعا که ایالات متحده ۳۰۰ میلیون دلار به ایران پرداخت می‌کند، خبر جعلی است که دموکرات‌های احمق آن را منتشر کرده‌اند!!!».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245787
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245787_1781569299.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سه منبع مطلع که با خبرنگار اکسیوس گفتگو کرده‌اند، می‌گویند: جان رتکلیف، رئیس سازمان اطلاعات مرکزی آمریکا (سیا)، به دونالد ترامپ و دیگر مقام‌های ارشد دولت گفته است اطلاعاتی که چند نهاد اطلاعاتی آمریکا جمع‌آوری کرده‌اند، درباره آمادگی ایران برای ارایه امتیازهایی که واشینگتن در یک توافق نهایی هسته‌ای میان دو کشور خواستار آن است، تردید‌های جدی ایجاد کرده است. براساس این گزارش، تکلیف تنها فردی نیست که در تیم ترامپ دچار تردید است. مارکو روبیو، وزیر خارجه آمریکا، و پیت هگست، وزیر جنگ، نیز در نشست‌های داخلی نگرانی‌ها و پرسش‌هایی درباره این توافق مطرح کرده‌اند. در مقابل، جی‌دی ونس، معاون رئیس‌جمهوری، و استیو ویتکاف و جرد کوشنر، نمایندگان آمریکا، از توافق حمایت کرده‌اند. براساس این گزارش، در هفته گذشته، مجموعه‌ای از نشست‌های سطح بالا میان ترامپ و مشاورانش درباره توافق برگزار شد؛ نشست‌هایی که در آستانه اعلام تفاهم در روز یکشنبه انجام گرفت.
+به گفته دو منبع، در این جلسات ترامپ و تیمش اطلاعاتی را بررسی کردند که چند نهاد اطلاعاتی آمریکا جمع‌آوری کرده بودند و نشان می‌داد شیوه‌ای که مقام‌های جمهوری اسلامی در گفت‌وگوهای داخلی خود درباره توافق صحبت می‌کنند، با آنچه به میانجی‌ها و آمریکا گفته‌اند، همخوانی ندارد.
+به گفته دو منبع، رتکلیف و روبیو اعلام کردند که بر اساس همین اطلاعات، نسبت به این‌که حکومت ایران با اقدام‌های هسته‌ای مورد نظر آمریکا موافقت کند، تردید دارند.
+یکی از منابع مطلع گفت: «اطلاعات موجود نشان می‌دهد نیت‌های ایران با تعهداتی که در چارچوب توافق پذیرفته، همخوانی ندارد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245786
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز دوشنبه ۲۵ خردادماه در یک کنفرانس خبری گفت جلوگیری از دستیابی ایران به سلاح هسته‌ای ماموریت اصلی او در دهه‌های گذشته بوده و اسرائیل تحت هیچ شرایطی اجازه نخواهد داد تهران به چنین سلاحی دست پیدا کند.
+
+نتانیاهو گفت: «ده‌ها سال است که با تلاش‌های ایران برای دستیابی به سلاح هسته‌ای مبارزه می‌کنم. می‌توانم این را ماموریت زندگی خود توصیف کنم. تا امروز به این ماموریت پایبند بوده‌ام و در آینده نیز به آن پایبند خواهم ماند.»
+
+او افزود: «با توافق یا بدون توافق، ایران به سلاح هسته‌ای دست نخواهد یافت؛ نه امروز و نه فردا. تا زمانی که من نخست‌وزیر اسرائیل باشم، این اتفاق نخواهد افتاد.»
+
+نخست‌وزیر اسرائیل همچنین با اشاره به عملیات نظامی اخیر علیه ایران گفت اسرائیل به همراه آمریکا اقداماتی گسترده علیه برنامه هسته‌ای و زیرساخت‌های نظامی ایران انجام داده است.
+
+نتانیاهو در بخش دیگری از سخنانش گفت: «فرماندهان سپاه را که مردم ایران را قتل‌عام کرده بودند، از میان برداشتیم» و تاکید کرد مهم‌ترین نتیجه این عملیات، جلوگیری از آن چیزی بوده که او «فاجعه هسته‌ای» توصیف کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جورجیا ملونی، نخست‌وزیر ایتالیا، روز دوشنبه برای شرکت در نشست سران گروه ۷ وارد فرودگاه ژنو در سوئیس شد. تصاویر منتشر شده نشان می‌دهند که ملونی در این سفر، دختر ۹ ساله‌اش، جینورا را نیز به همراه دارد و هر دو پس از خروج از هواپیما مورد استقبال میزبان قرار گرفتند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245784
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245784_1781569299.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس به سی‌ان‌ان گفت یادداشت تفاهم آمریکا با جمهوری اسلامی «سندی بسیار کلی» و حدود یک‌ونیم صفحه است. او گفت جزییات توافق در جریان مذاکرات بیشتر مشخص خواهد شد.
+ونس گفت: «این یادداشت تفاهم حدود یک صفحه و نیم است، بنابراین سندی بسیار کلی محسوب می‌شود. شماری از مسائل را باید در مرحله مذاکرات فنی مشخص کنیم.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343002
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343002_1781569300.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“He's coming after my wife.”
+
+Gavin Newsom accused President Trump and his political allies of targeting his family, saying the fight has moved beyond him and now includes his wife, Jen.
+
+The California governor says she has done nothing wrong and is being scrutinized solely because of her advocacy work.
+
+The governor also claimed the investigation is intended to undermine any potential White House bid he may pursue in the future.
+
+Sources familiar told Fox News that the investigation has been ongoing since 2025 and that the probe is based on whistleblower complaints related to Newsom and his wife's personal finances. The case is being handled by the U.S. Attorney's Office in Sacramento.
+</div>
+
+## FoxNewsTwitter — post 343001
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343001_1781569302.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Iran has agreed to never have a Nuclear Weapon!"
+
+President Trump said Iran has agreed to permanently forgo nuclear weapons and pushed back on reports that the U.S. would pay Iran $300 million as part of the deal.
+
+The statement comes as the administration touts a breakthrough agreement aimed at ending the conflict with Iran and reopening the Strait of Hormuz.
+</div>
+
+## FoxNewsTwitter — post 343000
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343000_1781569302.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Eight crew members are believed to have been killed after a U.S. Air Force B-52 Stratofortress crashed shortly after takeoff from Edwards Air Force Base in California on Monday, officials say.
+
+The bomber was carrying eight people on a routine test mission when it went down on the Edwards airfield around 11:20 a.m. PDT, according to the base. | @SpecialReport @BretBaier
+</div>
+
+## FoxNewsTwitter — post 342999
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342999_1781569304.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: President Trump arrives in France for the annual G7 Summit after announcing a breakthrough peace agreement to end the war with Iran and reopen the Strait of Hormuz, FOX News' @BillMelugin_ reports.
+</div>
+
+## FoxNewsTwitter — post 342998
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: The U.S. Air Force said Monday that it believes eight crew members were killed when a B-52 bomber crashed shortly after takeoff at Edwards Air Force Base in California.
+</div>
+
+## pm_afshaa — post 94156
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_94156_1781569306.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امشب اولییین بازی ایران که داخل ورزشگاه بردن پرچم شیر و خورشید هم آزاد اعلام شده ، اگر میخوای بدون سانسور بازی ایران دنبال کنی حتما این کانالو داشته باش که تمام بازیای جام جهانی کاملا بدون سانسور پوشش میده :
+
+• @TrollSporte
+• @TrollSporte
+</div>
+
+## VahidOnline — post 76406
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76406_1781569306.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست ترامپ، ترجمه و توضیح ماشین:
+ایران موافقت کرده است که هرگز سلاح هسته‌ای نداشته باشد! همچنین، داستانی که می‌گوید آمریکا ۳۰۰ میلیون دلار به ایران پرداخت می‌کند، خبر جعلی است که دموکرات‌های احمق منتشر کرده‌اند!!!
+رئیس‌جمهور دی‌جی‌تی
+
+(عبارت «Dumocrats» ترکیبی تحقیرآمیز از Dumb و Democrats است؛ یعنی چیزی مثل «دموکرات‌های احمق»)
+realDonaldTrump
+البته حرف از سیصد «میلیارد» دلار بود نه میلیون. ترامپ پرداخت از سوی آمریکا رو تکذیب کرده. ونس هم نگفته بود که آمریکا قراره بپردازه.
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76405
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76405_1781569306.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه منبع مطلع که با خبرنگار اکسیوس گفتگو کرده‌اند، می‌گویند: جان رتکلیف، رئیس سازمان اطلاعات مرکزی آمریکا (سیا)، به دونالد ترامپ و دیگر مقام‌های ارشد دولت گفته است اطلاعاتی که چند نهاد اطلاعاتی آمریکا جمع‌آوری کرده‌اند، درباره آمادگی ایران برای ارایه امتیازهایی که واشینگتن در یک توافق نهایی هسته‌ای میان دو کشور خواستار آن است، تردید‌های جدی ایجاد کرده است.
+
+براساس این گزارش، رتکلیف تنها فردی نیست که در تیم ترامپ دچار تردید است. مارکو روبیو، وزیر خارجه آمریکا، و پیت هگست، وزیر جنگ، نیز در نشست‌های داخلی نگرانی‌ها و پرسش‌هایی درباره این توافق مطرح کرده‌اند.
+در مقابل، جی‌دی ونس، معاون رئیس‌جمهوری، و استیو ویتکاف و جرد کوشنر، نمایندگان آمریکا، از توافق حمایت کرده‌اند.
+
+به گفته دو منبع، ترامپ و تیمش اطلاعاتی را بررسی کردند که چند نهاد اطلاعاتی آمریکا جمع‌آوری کرده بودند و نشان می‌داد شیوه‌ای که مقام‌های جمهوری اسلامی در گفت‌وگوهای داخلی خود درباره توافق صحبت می‌کنند، با آنچه به میانجی‌ها و آمریکا گفته‌اند، همخوانی ندارد.
+به گفته دو منبع، رتکلیف و روبیو اعلام کردند که بر اساس همین اطلاعات، نسبت به این‌که حکومت ایران با اقدام‌های هسته‌ای مورد نظر آمریکا موافقت کند، تردید دارند.
+یکی از منابع مطلع گفت: «اطلاعات موجود نشان می‌دهد نیت‌های ایران با تعهداتی که در چارچوب توافق پذیرفته، همخوانی ندارد.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 88030
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88030_1781569307.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در پی سقوط B52 امریکا؛ تمام هشت خدمه بمب افکن کشته شده اند
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342606
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342606_1781569308.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون ترامپ، به ان‌بی‌سی‌نیوز گفت در یادداشت تفاهم آمریکا و جمهوری اسلامی مشوق‌های اقتصادی قابل توجهی برای تهران در نظر گرفته شده است، از جمله کاهش تحریم‌ها و امکان تحول در اقتصاد ایران، اما بهره‌مندی از این امتیازها منوط به اجرای کامل تعهدات از سوی تهران خواهد بود.
+ونس گفت جمهوری اسلامی باید ذخایر اورانیوم غنی‌شده را از بین ببرد، به یک مسیر بلندمدت و قابل راستی‌آزمایی برای عدم دستیابی به سلاح هسته‌ای متعهد شود و به جای حمایت از گروه‌های مسلح در منطقه، به ثبات منطقه‌ای کمک کند.
+ونس افزود در صورت اجرای این تعهدات، جمهوری اسلامی از مزایای توافق بهره‌مند خواهد شد، اما در صورت عدم پایبندی، هیچ‌یک از این امتیازها در اختیار تهران قرار نخواهد گرفت.
+او تاکید کرد این توافق بر پایه راستی‌آزمایی بنا شده و می‌تواند به تحولی اساسی در خاورمیانه منجر شود.
+
+https://iranintl.com/202606162653
+</div>
+
+## IranIntlTV — post 342605
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342605_1781569308.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا زاکانی، شهردار تهران، با دفاع از روند مذاکرات گفت مذاکره درجات مختلفی دارد و میزان امتیازگیری جمهوری اسلامی در این گفت‌وگوها «میانه به سمت بالا» است.
+او همچنین با اشاره به لزوم برنامه‌ریزی جمهوری اسلامی برای جهان پساآمریکا گفت: «آمریکا در این ماجرا به‌طور قطعی شکست خورده است و جمهوری اسلامی تاکنون به یک‌چهارم از خواسته‌های خود رسیده است.»
+</div>
+
+## IranIntlTV — post 342604
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342604_1781569310.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث‌سوشال نوشت: «جمهوری اسلامی موافقت کرده است که هرگز سلاح هسته‌ای نداشته باشد. همچنین خبر مربوط به پرداخت ۳۰۰ میلیون دلار از سوی آمریکا به ایران، خبر جعلی است که دموکرات‌های احمق آن را منتشر کرده‌اند.»
+https://iranintl.com/202606151304
+</div>
+
+## IranIntlTV — post 342603
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342603_1781569310.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان ساکن لس‌آنجلس تجمعی اعتراضی مقابل ورزشگاه محل برگزاری مسابقه تیم‌های ایران و نیوزیلند برگزار کردند.
+
+تجمع‌کنندگان ضمن اعتراض به ممنوعیت ورود پرچم شیر و خورشید به ورزشگاه، خواهان توجه جهانی به وضعیت بحرانی حقوق بشر در ایران شدند و تاکید کردند تیم فوتبال جمهوری اسلامی نماینده واقعی مردم ایران نیست.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال، و گفت‌وگو با حمید سعیدی، موسیقی‌دان و برنده جایزه گرمی، و حمید فرخ‌نژاد، سینماگر
+@iranintltv
+</div>
+
+## IranIntlTV — post 342602
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342602_1781569312.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو گفت: «اسرائیل شرایطی ایجاد کرده که مردم ایران، اگر بخواهند، بتوانند برای تغییر حکومت اقدام کنند. ایران اکنون با مشکلات شدید اقتصادی روبه‌رو است و بخش‌های گسترده‌ای از زیرساخت‌های آن هدف حملات قرار گرفته‌اند.»
+
+او افزود: «نمی‌توان زمان سقوط حکومت ایران را پیش‌بینی کرد، اما شکاف‌هایی در ساختار حاکمیت جمهوری اسلامی ایجاد شده است. با این حال، نبرد ما تنها به ایران محدود نیست و مبارزه اسرائیل با بازوهای تروریستی ایران ادامه خواهد داشت.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 342601
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342601_1781569313.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واکنش بخشی از ایرانیان به تفاهم آمریکا و جمهوری اسلامی با انتقاد و ناامیدی همراه است. برخی شهروندان می‌گویند این توافق بیش از آنکه به خواسته‌های مردم ایران بپردازد، بر منافع و ملاحظات سیاسی دو طرف متمرکز است. شماری نیز معتقدند دولت آمریکا با نادیده گرفتن سرکوب معترضان در ایران، بار دیگر منافع خود را بر حمایت از مطالبات مردم ایران ترجیح داده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 342600
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342600_1781569315.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آریکو از رشت: هنوز برای صحبت از یک توافق جامع زود است و فعلاً فقط یک تفاهم صورت گرفته است
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/bhKVZz_BATs
+@iranintltv
+</div>
+
+## IranIntlTV — post 342599
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342599_1781569316.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرش از کالیفرنیا: جمهوری اسلامی در عصر تکنولوژی و هوش مصنوعی سقوط خواهد کرد
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/bhKVZz_BATs
+@iranintltv
+</div>
+
+## IranIntlTV — post 342598
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342598_1781569317.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امین از تهران: کاش کسی یک موبایل به این‌ها بدهد و بگوید برو با برق هسته‌ای شارژش کن!
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/bhKVZz_BATs
+@iranintltv
+</div>
+
+## IranIntlTV — post 342597
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342597_1781569319.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کوروش از مشهد: این توافقنامه نیست؛ این امان نامه ترامپ است
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/bhKVZz_BATs
+@iranintltv
+</div>
+
+## IranIntlTV — post 342596
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342596_1781569320.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو کلام با میثاقی؛
+تیم ملی ارث بابات نیست!
+
+کامبیز حسینی در نیمه‌شب به وقت تهران، دو کلام با میثاقی حرف دارد؛ درباره تیم ملی، حق مردم برای انتقاد، و این واقعیت که تیم ملی متعلق به مردم است، نه حکومت و نه هیچ فردی.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/bhKVZz_BATs
+@iranintltv
+</div>
+
+## IranIntlTV — post 342595
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342595_1781569322.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ستاره روز پنجم جام جهانی ۲۰۲۶، نه یکی از بازیکنان چند میلیون دلاری تیم‌های ملی اسپانیا یا بلژیک که «ووزینیا» بود؛ وقتی سوت پایان مسابقه اسپانیا-کیپ‌ورد در ورزشگاه آتلانتا به صدا درآمد، دوربین‌ها روی دروازه‌بان کیپ ورد، زوم کردند. اشک از چشمان این دروازه‌بان ۴۰ ساله سرازیر شده بود.
+
+🔹او کم‌کم متوجه می‌شد چه افتخاری رقم زده است. کیپ‌ورد در نخستین حضور تاریخ خود در جام جهانی با درخشش خیره‌کننده‌ای به تساوی بدون گل با اسپانیا، یکی از مدعیان اصلی قهرمانی، رسیده بود.
+
+🔹سکوها منفجر شدند. هزاران هوادار کیپ ورد که ۹۰ دقیقه با فریادهای بی‌وقفه تیم خود را حمایت کرده بودند، یکدیگر را در آغوش گرفتند، رقصیدند و از این نتیجه تاریخی لذت بردند.
+
+🔹مقابل اسپانیا، ووزینیا بهترین نمایش دوران حرفه‌ای خود را ارائه داد؛ ۷ مهار سرنوشت‌ساز و ثبت کلین‌شیت مقابل قهرمان اروپا.
+
+🔹اکنون و خارج از ورزشگاه نیز او به پدیده‌ای در شبکه‌های اجتماعی تبدیل شد. تعداد دنبال‌کنندگانش در اینستاگرام از اندکی بیش از ۵۰ هزار نفر به بیش از یک میلیون و ۵۰۰ هزار نفر رسید.
+
+🔹روایتی درباره ستاره کیپ‌ورد را در وب‌سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 342594
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342594_1781569322.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس به سی‌ان‌ان گفت یادداشت تفاهم آمریکا با جمهوری اسلامی «سندی بسیار کلی» و حدود یک‌ونیم صفحه است. او گفت جزییات توافق در جریان مذاکرات بیشتر مشخص خواهد شد.
+ونس گفت: «این یادداشت تفاهم حدود یک صفحه و نیم است، بنابراین سندی بسیار کلی محسوب می‌شود. شماری از مسائل را باید در مرحله مذاکرات فنی مشخص کنیم.»
+
+https://iranintl.com/202606157946
+</div>
+
+## FarsiVOA — post 220861
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️توافق با جمهوری اسلامی؛ نظرات موافقان و منتقدان در کنگره آمریکا
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220860
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220860_1781569323.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️قلعه‌نویی و طارمی: ما سیاسی نیستیم؛ اظهاراتی که در نشست خبری جنجال‌ساز شد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220859
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ: جمهوری اسلامی پذیرفته است که هرگز سلاح هسته‌ای نداشته باشد
+
+▪️رئیس جمهوری آمریکا با رد برخی گزارش‌ها درباره پرداخت میلیون‌ها دلار به رژیم ایران، بار دیگر تاکید کرد که جمهوری اسلامی پذیرفته است هرگز سلاح هسته‌ای نداشته باشد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/president-trump-says-iran-accepted-never-to-have-nuclear-weapons/8161167.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220858
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تلاش دولت عراق برای تثبیت ثبات؛ از گفت‌وگو با فرستاده ترامپ تا حمایت از آتش‌بس منطقه‌ای
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220857
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️داوود میمندی کارشناس ورزشی از استاندارد دوگانه کادر تیم ملی ایران می‌گوید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220856
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش‌ها از شنیده شدن صدای ۳ انفجار در محدوده تنگه هرمز
+
+▪️خبرگزاری‌های حکومتی در ایران از شنیده‌شدن صدای انفجار در حوالی تنگه هرمز خبر داده‌اند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/reports-three-explosions-strait-hormuz-qeshm/8161157.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17222
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17222_1781569323.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی پیش یک فروند بمب افکن B-52 نیروی هوایی ایالات متحده پس از برخواستن از پایگاه ادواردز لس آنجلس سقوط کرد. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17221
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17221_1781569324.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+Su-37 Terminator
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22684
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22684_1781569325.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پخش تیشرت‌هایی با طرح جاویدنامان در اطراف استادیوم
+
+امشب ۶۴ هزار ایرانی در ورزشگاه حاضر میشوند تا صدای ایرانیان را بار دیگر به جهان برسانند..
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22683
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جام جهانی ینی اوج هیجان و پول دراوردن پس بیا توی کانال ورسوس بت و پول دراوردن شروع کن👌
+</div>
+
+## IranianMinds — post 22682
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22682_1781569326.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📢توم میخوای از مسابقات جام جهانی فوتبال پول دربیاری؟
+🥇
+
+
+✅کانال ورسوس بت کارش تحلیل و پیش بینی مسابقات جام جهانی به صورت حرفه ای
+🍑
+
+
+⚠️توم میتونی از پیش بینی جام جهانی خیلی راحت پول دربیاری فقط کافیه با کانال ورسوس بت همراه شی
+📣
+
+
+🌐ادرس عضویت کانالشون e25:
+👇
+
+🔪https://t.me/+vEPd1hF2Y38yMWI0
+
+🔪https://t.me/+vEPd1hF2Y38yMWI0
+</div>
+
+## BBCPersian — post 283943
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+رومن لاورینوویچ که روز دوشنبه در لندن به جرم تبانی برای ارتکاب آتش‌سوزی عمدی محکوم شد، حتی پس از آتش زدن خانه کی‌یر استارمر نیز از نخست‌وزیر بریتانیا، بیش از آنچه یک گلوله از هدف خود می‌داند، اطلاعی نداشت.
+
+فردی ناشناس که او را هدایت می‌کرد و با حروف اختصاری «ای‌ال» شناخته می‌شد، در یکی از پیام‌هایش سرنخی ارائه داد: «ببین، تو به خانه یکی از مقامات بسیار بلندپایه بریتانیا حمله کردی. برایت پول می‌فرستم، باید شهر را ترک کنی.»
+
+اما دیگر دیر شده بود. لاورینوویچ ظرف چند ساعت بازداشت شد.
+
+این کارگر ساختمانی ۲۲ ساله اوکراینی به ابزاری برای هدف قرار دادن رئیس دولت بریتانیا تبدیل شده بود. اما از سوی چه کسی؟
+
+https://bbc.in/43yhJF5
+📷Reuters/ PA/ BBC/ Metropolitan Police/ Telegram
+@BBCPersian
+</div>
+
+## BBCPersian — post 283942
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ترکیب تیم ملی ایران مقابل نیوزیلند
+فهرست بازیکنان اصلی تیم ملی ایران در نخستین بازی در جام جهانی ۲۰۲۶ به این ترتیب است:
+علیرضا بیرانوند، شجاع خلیل‌زاده، میلاد محمدی، سعید عزت‌اللهی، محمد محبی، مهدی طارمی (کاپیتان)، سامان قدوس، اریا یوسفی، علی نعمتی، شهریار مغانلو و رامین رضائیان.
+
+🖊پوریا ژافره از ورزشگاه سوفای لس‌آنجلس: روز سرنوشت برای شجاع و شهریار
+
+امروز روزی است که شاید کل دوران بازیگری شجاع خلیل‌زاده و شهریار مغانلو را تعریف کند. شجاع باید از پس کریس وود (کاپیتان و ستاره نیوزیلند) که یکی از آماده‌ترین بازیکن‌های لیگ برتر است برآید و شهریار مغانلو باید نشان دهد چرا حالا که جایگزین سردار آزمون شده در بازی اول ایران در ترکیب اصلی فرار گرفته است.
+
+❓درباره این ترکیب چه فکر می‌کنید؟
+@bbcshoma
+</div>
+
+## BBCPersian — post 283941
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🙋‍♂️درود
+⚽️با گزارش زنده نخستین مسابقه تیم ملی ایران در جام جهانی ۲۰۲۶ برابر تیم نیوزیلند با شما هستیم.
+پویا قربانی و علی آخوندان در لندن و سام فرزانه و پوریا ژافره در لس‌‌آنجلس، در این صفحه و شبکه‌های اجتماعی بی‌بی‌سی فارسی شما را در جریان لحظه لحظه مسابقه، تحلیل‌ها، تاریخچه‌ها، عملکرد دو تیم، حاشیه‌ها و حال‌‌وهوای ورزشگاه و رویدادهای اطراف آن می‌گذارند.
+سپاس که با ما هستید.
+https://bbc.in/4os59k6
+</div>
+
+## BBCPersian — post 283940
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_283940_1781569326.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+محمدباقر قالیباف، رئیس مجلس شورای اسلامی ایران که چهره اول تیم مذاکره‌کننده ایران با آمریکاست در واکنش به امضای تفاهم‌نامه توقف مخاصمه خطاب به مردم این کشور گفته است: «با مقاومت تاریخی شما و رشادت نیروهای مسلح دربرابر آنان که قصد جان این ملت و نابودی و تسلیم این مملکت را کرده بودند، ایران گامی بلند به سوی پیروزی نهایی برداشت. می‌خواستند و نتوانستند.»
+
+آن طور که گزارش شده آقای قالیباف و عباس عراقچی، وزیر خارجه ایران، ظرف چند روز آینده برای امضای این تفاهم‌نامه به سوئیس سفر خواهند کرد و به احتمال زیاد در دیداری حضوری با جی دی ونس، معاون دونالد ترامپ، تشریفات رسمی امضاء را برگزار می‌کنند.
+
+استقبال آقای قالیباف و دیگر مقام‌های ارشد ایران از امضای این تفاهم‌نامه در حالی است که بخشی از حامیان تندرو حکومت از آنچه «سازش و توافق» با آمریکا خوانده‌اند، به تندی انتقاد کرده‌اند و وعده داده‌اند که در تجمعات خیابانی شبانه خود علیه آن اعتراض کنند.
+
+https://bbc.in/4vcH979
+📷javanonline
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392197
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیوزلند یکی از ضعیف ترین تیم های حاضر در جام جهانیه اکثر پیش بینی های سایتهای بت برای بازی الان یا یک یک مساوی یا باخت یک صفر نیوزلنده.
+</div>
+
+## Dirty_Kids — post 392196
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392196_1781569327.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مادرجنده ها هم رسیدن استادیوم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392194
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امشب جا‌ جام جهانی، قراره جنگ جهانی باشه بین هوادارا.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392190
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392190_1781569327.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 هم اکنون حال و هوای ورزشگاه
+🇮🇷
+
+بوی شاه، انقلاب، اتحاد از پشت موبایل حس میشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392188
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری: برخلاف اینکه میگفتن ورود پرچم شیروخورشید به استادیوم ممنوعه، هم اکنون مردم این پرچمو کف استادیوم به نمایش درآوردن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392186
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392186_1781569328.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وضعیت بیرون ورزشگاه، بدون استثنا همه پرچم شیروخورشید دستشونه
+🇮🇷
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392185
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392185_1781569329.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بیرون ورزشگاه دارن تیشرت با عکس جاویدنام‌ها بین مردم پخش میکنن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پشماتون بریزه، قراره شده سر بازی ایران، مردم این برنامه رو داخل ورزشگاه اجرا کنن.
+
++ اگه عملی بشه، بازی ایران تو صدا و سیما سانسور میشه :)
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392182
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅توم میخوای از مسابقات جام جهانی فوتبال پول دربیاری؟🏆🥇🏆 
+✅کانال ورسوس بت کارش تحلیل و پیش بینی مسابقات جام جهانی به صورت حرفه ای
+💎 
+⚠️توم میتونی از پیش بینی جام جهانی خیلی راحت پول دربیاری فقط کافیه با کانال ورسوس بت همراه شی
+📣 A25 
+🌐ادرس عضویت کانالشون:
+👇 
+📌h…
+</div>
+
+## Dirty_Kids — post 392181
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392181_1781569329.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅توم میخوای از مسابقات جام جهانی فوتبال پول دربیاری؟🏆🥇🏆
+
+
+✅کانال ورسوس بت کارش تحلیل و پیش بینی مسابقات جام جهانی به صورت حرفه ای
+💎
+
+
+⚠️توم میتونی از پیش بینی جام جهانی خیلی راحت پول دربیاری فقط کافیه با کانال ورسوس بت همراه شی
+📣
+A25
+
+🌐ادرس عضویت کانالشون:
+👇
+
+📌https://t.me/+cod-WdJafPM3OWI0
+
+📌https://t.me/+cod-WdJafPM3OWI0
+</div>
+
+## Dirty_Kids — post 392180
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392180_1781569330.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مردم با پرچم شیروخورشید
+🇮🇷 برای بازی ایران تو جام جهانی به استادیوم رفتن. و اما مصاحبه با مردم:
+
+جمهوری اسلامی رو گاییدم، ما قراره اینجا پرچم واقعی کشور رو به دنیا نشون بدیم.
+مردم ایران تنها نیستن، ما پشتشونیم، تا چند وقت پیش می‌گفتیم زنده باد نتانیاهو و ترامپ، ولی الان دارن با آخوندا توافق میکنن، امیدواریم سر عقل بیان.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392179
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392179_1781569330.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام ویدیویی ایرانیای حاضر تو محل استادیوم بازی جمهوری اسلامی با نیوزیلند
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392178
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392178_1781569331.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادگاه گوه خورد
+خواهیم دید چه خواهد شد
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128357
+
+<div align="center">
+  <a href="telegram/content/alonews_128357_1781569332.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ایران موافقت کرده است که هرگز سلاح هسته‌ای نداشته باشد.
+
+
+🔴داستان پرداخت ۳۰۰ میلیون دلار توسط آمریکا به ایران، خبر جعلی است که توسط دموکرات‌ها تبلیغ می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128356
+
+<div align="center">
+  <a href="telegram/content/alonews_128356_1781569332.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مسئولین امنیتی ورزشگاه So-Fi (محل برگزاری دیدار نخست تیم ملی) دارن تمامی بنرهایی که عکس مقامات سیاسی کشور درش هست رو جمع آوری میکنن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128354
+
+<div align="center">
+  <a href="telegram/content/alonews_128354_1781569332.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گویا این برنامه قراره تو استادیوم اجرا بشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128353
+
+<div align="center">
+  <a href="telegram/content/alonews_128353_1781569332.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع ایرانی‌ها با پرچم شیر و خورشید اطراف ورزشگاه
+@AloSport
+</div>
+
+## alonews — post 128352
+
+<div align="center">
+  <a href="telegram/content/alonews_128352_1781569333.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شعارهای مخالفان جمهوری اسلامی در اطراف استادیوم محل برگزاری
+@AloSport
+</div>
+
+## alonews — post 128351
+
+<div align="center">
+  <a href="telegram/content/alonews_128351_1781569335.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکسیوس:
+در تفاهم‌نامه‌ی ایران و آمریکا بیان شده که ایران با عمان برای ایجاد چارچوبی برای اداره آینده و خدمات دریایی تنگه، با مشارکت سایر کشورهای خلیج فارس، مذاکراتی را انجام خواهد داد تا به توافقی مطابق با قوانین بین‌المللی و حقوق حاکمیتی کشورهای منطقه دست یابد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/26 01:56
 ---
 
