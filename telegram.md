@@ -7,6 +7,775 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/27 02:53
+---
+
+## VahidOOnLine — post 245953
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_245953_1781652219.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی عبدی از کارشناسان حکومتی و چهره‌ رسانه‌ای جمهوری اسلامی در مصاحبه‌ای که یک‌ماه پیش منتشر شده، اما اکنون در شبکه‌های اجتماعی مورد توجه قرار گرفته، به مقایسه رفتار دونالد ترامپ با شی جین‌پینگ، رییس‌جمهوری چین، و جمهوری اسلامی اشاره کرد و گفت اراده‌ای برای فهم این تفاوت وجود ندارد.
+او افزود جمهوری اسلامی در شرایطی با آمریکا مذاکره می‌کند که ترامپ هر روز به جمهوری اسلامی توهین می‌کند، آن را تحقیر می‌کند و به گفته او، «به لجن می‌کشد.»
+عبدی گفت ترامپ حتی رهبر جدید جمهوری اسلامی را به ترور تهدید کرده و اتهام‌ جنسی مطرح کرده است، اما صدایی از کسی درنمی‌آید.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245952
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245952_1781652220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش عراق در پاسخ به پرسش العربیه درباره خلع سلاح گروه‌های شبه‌نظامی در این کشور گفت پس از برقراری ثبات امنیتی، دیگر توجیهی برای حضور گروه‌های مسلح وجود ندارد.
+ارتش عراق با تاکید بر اینکه تصمیم‌های امنیتی در این کشور صرفا عراقی خواهد بود و هیچ‌گونه دخالت خارجی در آن پذیرفته نخواهد شد، گفت در پرونده انحصار سلاح، همه طرف‌ها تابع حاکمیت قانون خواهند بود.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245951
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245951_1781652221.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تانکر ترکرز، سامانه رصد تردد نفتکش‌ها، سه‌شنبه ۲۶ خرداد اعلام کرد دست‌کم دو نفتکش غول‌پیکر شرکت ملی نفتکش ایران با مجموع حدود ۳ میلیون و ۸۰۰ هزار بشکه نفت خام، از محدوده محاصره دریایی نیروی دریایی آمریکا خارج شده‌اند.
+بر اساس این گزارش، این نخستین صادرات نفت خام ایران در دو ماه گذشته به شمار می‌رود. تانکر ترکرز اعلام کرد اطلاعات مربوط به حرکت این نفتکش‌ها را با استفاده از داده‌های رهگیری دریایی و تصاویر ماهواره‌ای تایید کرده است.
+این موسسه همچنین گزارش داد یک نفتکش دیگر شرکت ملی نفتکش ایران که طی هفت هفته گذشته در منطقه اقتصادی پاکستان منتظر ورود به آب‌های ایران بوده، در حال نزدیک شدن به خط محاصره دریایی است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245950
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245950_1781652221.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محتوای این خبر ممکن است برای برخی مخاطبان آزاردهنده باشد.
+به گزارش خبرگزاری فرانسه، پلیس ویتنام با متلاشی کردن یک باند بزرگ سرقت حیوانات خانگی در هوشی‌مین، بیش از ۴۰۰ گربه زنده را که برای ذبح و مصرف خوراکی قاچاق شده بودند، نجات داد. بر اساس بیانیه انجمن حمایت از حقوق حیوانات، تاکنون دست‌کم ۴۰ گربه ربوده‌شده به صاحبانشان بازگردانده شده‌اند. پلیس در جریان این عملیات، ۹ نفر را بازداشت و علاوه بر حیوانات زنده، جسد یخ‌زده ۸۰ گربه را نیز کشف و ضبط کرده است.
+اگرچه مصرف گوشت سگ و گربه در ویتنام قانونی است و رستوران‌ها مجوز فروش آن را دارند، اما فروشندگان ملزم به ارائه گواهی اصالت و منشأ قانونی حیوانات هستند. متهمان این پرونده اعتراف کرده‌اند که طی سه سال گذشته به سرقت و به دام انداختن گربه‌ها در سراسر جنوب ویتنام مشغول بوده‌اند. با وجود موفقیت‌آمیز بودن این عملیات، گزارش‌ها حاکی از آن است که حدود ۱۰۰ قلاده از گربه‌های نجات‌یافته به دلیل شرایط سخت اسارت تلف شده‌اند و تلاش‌ها برای نجات و نگهداری مبرم بقیه حیوانات در ایستگاه پلیس ادامه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 245949
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_245949_1781652222.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای‌نت گزارش داد نتانیاهو روز سه‌شنبه ایال زمیر، رییس ستاد ارتش اسرائیل، را به دلیل افشای جزئیات جدید درباره یک حمله گسترده برنامه‌ریزی‌شده علیه جمهوری اسلامی که اندکی پیش از آغاز عملیات لغو شده بود، مورد انتقاد قرار داد.
+نتانیاهو گفت: «او نباید این موضوع را می‌نوشت. این یک اشتباه ملی است و به وحدت ما آسیب می‌زند. همچنین باعث شرمندگی در برابر ترامپ می‌شود.»
+طبق گزارش وای‌نت، فرمانده نیروی هوایی اسرائیل در نامه‌ای از یک موج حملات بزرگ علیه جمهوری اسلامی خبر داده بود که حدود یک ساعت پیش از برخاستن جنگنده‌ها متوقف شد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15116
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اگه میخوای بدونی قیمت دلار طلا خودرو .... درسال جدید چقدر میشه این چنل تمام پیشبینی ها همراه تاریخ وقوع رو گفته
+
+🕯 @link 🕯
+🕯 @link 🕯
+🕯 @link 🕯
+</div>
+
+## WithYashar — post 15115
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15115_1781652223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همین الان ، چه خبره خلیج فارس
+@withyashar
+</div>
+
+## WithYashar — post 15114
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنا با محدودکردن اختیارات جنگی ترامپ در قبال ایران مخالفت کرد.
+@withyashar 🚨
+</div>
+
+## FoxNewsTwitter — post 343047
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343047_1781652223.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @SpecialReport: WATCH: "The only way you can get this done is to nuke the legislative filibuster. And this is not something that we have anywhere close to the votes to do. So we have had votes... We will continue to put the Democrats on record. The Democrats are voting against an issue that 80 to 85% of the American people are for."
+
+Following President Trump’s ultimatum to attach the SAVE America Act to the pending surveillance renewal package, @LeaderJohnThune walks @BretBaier through the unyielding floor math confronting Republican leadership. While strongly endorsing the voter validation measures, Thune gives a realistic assessment of institutional boundaries and explains why the upper chamber lacks the votes to force a rules change.
+</div>
+
+## FoxNewsTwitter — post 343046
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343046_1781652226.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I guarantee that when Barack Obama was president, or Joe Biden was pretending to be president, that you had Republicans who still said they're proud of America."
+
+VP Vance said he wished Democrats would be proud of their country, even when their party is out of power, telling @TheFive he rejected the idea that patriotic pride should rise and fall with politics.
+</div>
+
+## pm_afshaa — post 94223
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94223_1781652228.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طرح «محدود کردن اختیارات جنگی ترامپ» بعد از 7 تلاش ناموفق، بالاخره با 47 مخالف و 50 موافق، تصویب شد! سنای آمریکا یه طرحی رو جلو برد که میگه ترامپ واسه ادامه درگیری نظامی با ایران، باید مجوز رسمی کنگره رو داشته باشه و نمیتونه خودسر وارد جنگ بشه. 
+💧 Rainbet.com…
+</div>
+
+## iaghapour — post 2679
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2679_1781652228.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀 سرور ابری رو از هر جای دنیا و با هر ارزی که دوست داری بخر!
+
+🌍 دیگه نیازی نیست برای خرید سرور از دیتاسنترهای معتبر جهانی دغدغه پرداخت یا محدودیت لوکیشن داشته باشی. در دوپراکس (Doprax)، بهترین زیرساخت‌های ابری دنیا در یک پنل اختصاصی زیر دست شماست!
+
+با دوپراکس می‌تونی از غول‌های تکنولوژی مثل Google Cloud, DigitalOcean, Hetzner, Vultr و چندین پروایدر دیگر، سرور تهیه کنی.
+
+✨ چرا دوپراکس بهترین انتخاب شماست؟
+📍 تنوع لوکیشن: دسترسی به ده‌ها لوکیشن مختلف در اروپا، آمریکا، آسیا.
+💳 پرداخت بدون مرز: امکان پرداخت آسان با ریال و یا رمزارز.
+⏱️ پرداخت ساعتی: فقط به اندازه‌ای که مصرف می‌کنی پول بده!
+🔄 امکان تعویض IP: قابلیت تغییر آی‌پی در اکثر دیتاسنترها.
+
+همین حالا وارد سایت شو و اولین سرورت رو با کانفیگ دلخواهت بساز 👇
+
+🌐 وب‌سایت: www.doprax.com
+
+💬 پشتیبانی و اخبار در کانال ما:
+@dopraxcloud
+</div>
+
+## IranIntlTV — post 342792
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342792_1781652229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرمان تجرد، کمدین: با وجود تلاش فیفا، ورزشگاه لس آنجلس پر از پرچم‌های شیر و خورشید بود
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/BkAr0eHIGII
+@iranintltv
+</div>
+
+## IranIntlTV — post 342791
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342791_1781652230.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلواپس‌ها علیه توافق؛وقتی سازندگان شعار، قربانی شعار می‌شوند
+
+سال‌ها جمهوری اسلامی به هوادارانش گفت آمریکا «شیطان بزرگ» است، مذاکره خیانت است و سازش یعنی تسلیم. به همین دلیل، نسلی از نیروهای وفادار و دلواپس پرورش یافت که با هرگونه مذاکره و توافق مخالفت می‌کردند.
+
+حالا اما همان نیروها از مسئولان جمهوری اسلامی می‌پرسند: «پس آن همه شعار چه شد؟» و «اگر مذاکره بد بود، چرا حالا توافق می‌کنید؟»
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/BkAr0eHIGII
+@iranintltv
+</div>
+
+## IranIntlTV — post 342790
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342790_1781652232.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهو از تهران:ترامپ هرگز با جمهوری اسلامی به توافق نمی‌رسد؛بزودی ورق به نفع مردم برمی‌گردد
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/BkAr0eHIGII
+@iranintltv
+</div>
+
+## IranIntlTV — post 342789
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342789_1781652234.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهروز رضوی درگذشت؛صدای ماندگار حافظه فرهنگی ایرانیان
+
+بهروز رضوی، از ماندگارترین صداهای رادیو و تلویزیون ایران، متولد ۱۳۲۶ بود و بیش از پنج دهه در عرصه گویندگی، اجرای برنامه‌های فرهنگی و ترویج ادبیات فارسی فعالیت کرد. تسلط بر زبان فارسی، فن بیان کم‌نظیر و احترام عمیق به کلمه از برجسته‌ترین ویژگی‌های او بود.
+
+او در ۲۴ خرداد درگذشت، اما صدایش همچنان بخشی از حافظه فرهنگی چند نسل از ایرانیان باقی خواهد ماند.
+
+یادش گرامی.
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران‌اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/BkAr0eHIGII
+@iranintltv
+</div>
+
+## IranIntlTV — post 342788
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342788_1781652236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جواد زمانی و ابوالفضل ساعدی؛
+
+بین دو نیمهٔ بازی دیشب، دو نفر را اعدام کردند
+
+در حالی که میلیون‌ها نفر سرگرم تماشای بازی ایران و نیوزیلند بودند، جواد زمانی و ابوالفضل ساعدی در ایران اعدام شدند. دو نامی که بسیاری از مردم حتی فرصت شنیدن داستان زندگی‌شان را پیدا نکردند.
+
+کامبیز حسینی در «برنامه» به این موضوع می پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/BkAr0eHIGII
+@iranintltv
+</div>
+
+## IranIntlTV — post 342787
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342787_1781652237.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیوید هیل، دیپلمات برجسته موسسه خاورمیانه، در نشست عمومی ایران‌اینترنشنال در واشینگتن دی‌سی گفت: «بدترین اشتباه در برابر یک قیام مردمی این است که در ظاهر از معترضان حمایت و آن‌ها را تشویق کنید، اما در عمل تنهاشان بگذارید.»
+تماشای نسخه کامل این نشست در یوتیوب ایران‌اینترنشنال:
+
+https://youtu.be/D6e4ychQWgk
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342786
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342786_1781652238.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی عبدی از کارشناسان حکومتی و چهره‌ رسانه‌ای جمهوری اسلامی در مصاحبه‌ای که یک‌ماه پیش منتشر شده، اما اکنون در شبکه‌های اجتماعی مورد توجه قرار گرفته، به مقایسه رفتار دونالد ترامپ با شی جین‌پینگ، رییس‌جمهوری چین، و جمهوری اسلامی اشاره کرد و گفت اراده‌ای برای فهم این تفاوت وجود ندارد.
+او افزود جمهوری اسلامی در شرایطی با آمریکا مذاکره می‌کند که ترامپ هر روز به جمهوری اسلامی توهین می‌کند، آن را تحقیر می‌کند و به گفته او، «به لجن می‌کشد.»
+عبدی گفت ترامپ حتی رهبر جدید جمهوری اسلامی را به ترور تهدید کرده و اتهام‌ جنسی مطرح کرده است، اما صدایی از کسی درنمی‌آید.
+</div>
+
+## IranIntlTV — post 342785
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342785_1781652240.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رابرت ساتلوف، مدیر اجرایی موسسه واشینگتن، در نشست عمومی ایران‌اینترنشنال در واشینگتن دی‌سی گفت: «حمله جمهوری اسلامی به کشورهای منطقه، بهترین فرصت برای دونالد ترامپ، رییس‌جمهوری آمریکا، است تا ائتلافی منطقه‌ای علیه جمهوری اسلامی شکل دهد و این کشورها را بیش از پیش با آمریکا همراه کند.»
+
+تماشای نسخه کامل این نشست در یوتیوب ایران‌اینترنشنال:
+
+https://youtu.be/D6e4ychQWgk
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342784
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342784_1781652241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش عراق در پاسخ به پرسش العربیه درباره خلع سلاح گروه‌های شبه‌نظامی در این کشور گفت پس از برقراری ثبات امنیتی، دیگر توجیهی برای حضور گروه‌های مسلح وجود ندارد.
+ارتش عراق با تاکید بر اینکه تصمیم‌های امنیتی در این کشور صرفا عراقی خواهد بود و هیچ‌گونه دخالت خارجی در آن پذیرفته نخواهد شد، گفت در پرونده انحصار سلاح، همه طرف‌ها تابع حاکمیت قانون خواهند بود.
+
+https://iranintl.com/202606160021
+</div>
+
+## IranIntlTV — post 342783
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342783_1781652242.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بن سبطی، پژوهشگر ایران و اسرائیل، درباره نقش لبنان و حزب‌الله به‌عنوان مانعی در مسیر توافق تهران و واشینگتن گفت: «جمهوری اسلامی وقتی در طرف آمریکایی نشانه‌ای از انعطاف می‌بیند، تلاش می‌کند مفاد این توافق را گسترش دهد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 342782
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342782_1781652243.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الکس وطن‌خواه، پژوهشگر ارشد موسسه خاورمیانه، در نشست عمومی ایران‌اینترنشنال در واشینگتن دی‌سی گفت در دکترین جدید دفاعی جمهوری اسلامی، حمله به حزب‌الله، حشدالشعبی و دیگر نیروهای نیابتی تهران به‌منزله حمله به خاک ایران تلقی می‌شود؛ رویکردی که به گفته او می‌تواند به جنگی بی‌پایان منجر شود.
+
+تماشای نسخه کامل این نشست در یوتیوب ایران‌اینترنشنال:
+
+https://youtu.be/D6e4ychQWgk
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 342781
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342781_1781652246.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای‌نت گزارش داد نتانیاهو روز سه‌شنبه ایال زمیر، رییس ستاد ارتش اسرائیل، را به دلیل افشای جزئیات جدید درباره یک حمله گسترده برنامه‌ریزی‌شده علیه جمهوری اسلامی که اندکی پیش از آغاز عملیات لغو شده بود، مورد انتقاد قرار داد.
+نتانیاهو گفت: «او نباید این موضوع را می‌نوشت. این یک اشتباه ملی است و به وحدت ما آسیب می‌زند. همچنین باعث شرمندگی در برابر ترامپ می‌شود.»
+طبق گزارش وای‌نت، فرمانده نیروی هوایی اسرائیل در نامه‌ای از یک موج حملات بزرگ علیه جمهوری اسلامی خبر داده بود که حدود یک ساعت پیش از برخاستن جنگنده‌ها متوقف شد.
+
+https://iranintl.com/202606169175
+</div>
+
+## IranIntlTV — post 342780
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/342780" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ آیا جمهوری اسلامی با «قاتل خامنه‌ای» آشتی کرد؟
+@iranintlTV
+</div>
+
+## FarsiVOA — post 220962
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_220962_1781652247.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جدال موافقان و مخالفان جمهوری اسلامی در ورزشگاه لس‌آنجلس؛ آرمیتا آزاد گزارش می‌دهد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220961
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اعدام معترضان در ایران در آستانه امضای توافق جمهوری اسلامی و آمریکا ادامه دارد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220960
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دونالد ترامپ: قطر بیش از هزار میلیارد دلار در آمریکا سرمایه‌گذاری می‌کند
+
+▪️دونالد ترامپ، رئیس جمهوری آمریکا، گفت قطر قرار است بیش از هزار میلیارد دلار در ایالات متحده سرمایه‌گذاری کند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-qatar-g7-france-negotiations-investment-trump-/8161561.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220959
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_220959_1781652247.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در مصاحبه‌ای با «شوی مگان کلی» گفت که اگر جمهوری اسلامی ایران به تامین مالی گروه حزب‌الله در لبنان ادامه دهد، ایالات متحده آمریکا، دارایی‌های مسدود‌شده آن را آزاد نخواهد کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220958
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ریزش قیمت دلار تا کجا ادامه دارد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مهدی عربشاهی در گفت‌وگو با صدای آمریکا گفت غیبت مجتبی خامنه‌ای، تصمیم‌گیری‌های بزرگ در جمهوری اسلامی را دشوار کرده و حتی درون حکومت این پرسش را ایجاد کرده است که چه کسانی به نام او تصمیم می‌گیرند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 220956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺هشدار نهادهای حقوق بشری درباره خطر اعدام قریب‌الوقوع سه معترض ایرانی توسط جمهوری اسلامی
+
+▪️سازمان عفو بین‌الملل با ابراز نگرانی از خطر اعدام قریب‌الوقوع علی فتاح و محمد نقی‌زاده، خواستار توقف فوری اجرای احکام این دو معترض شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/human-rights-organnization-warn-of-the-imminent-execution-of-three-iranan-protesters-by-the-islamic-republic/8161564.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17312
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17312_1781652248.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تداوم فعالیت هواگردهای آمریکایی بر فراز خلیج فارس
+
+هم‌اکنون چندین هواپیمای پشتیبانی و شناسایی نیروی هوایی و نیروی دریایی آمریکا در منطقه خلیج فارس فعال هستند.
+✈️ در میان این هواگردها، سوخت‌رسان‌های KC-135 Stratotanker و KC-46A Pegasus، هواپیمای هشدار زودهنگام E-3G Sentry و هواپیمای گشت دریایی و شناسایی P-8A Poseidon مشاهده شده‌اند.
+</div>
+
+## Persian_Trend_Official — post 17311
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17311_1781652248.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌌
+F-16 Falcon
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17310
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عادل فردوسی‌پور: بدنبال دکترخوش چشم فوتبال هستم
+دکتر خوش چشم هر چه میگوید بر عکس میشود.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 22771
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22771_1781652250.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد از حدود دو ماه محاصره دو نفتکش ایرانی از تنگه هرمز رد شدن.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284075
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284075_1781652250.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+پاپ لئون، رهبر کاتولیک‌های جهان، روز سه شنبه از توافق موقت میان ایالات متحده و ایران برای پایان دادن به جنگ در خاورمیانه استقبال کرد و گفت: «خدا را شکر» که دو طرف قرار است روز جمعه این توافق را به طور رسمی نهایی کنند.
+
+پاپ لئون که پیش‌تر به دلیل انتقاد از جنگ با ایران با واکنش منفی دونالد ترامپ، رئیس‌جمهور آمریکا، روبه رو شده بود، ابراز امیدواری کرد که این توافق به پایان دائمی درگیری‌ها منجر شود.
+
+او در گفت‌وگو با خبرنگاران گفت: «هنوز چندین موضوع باقی مانده که باید حل و فصل شوند، اما همیشه بهتر است این مسائل از طریق گفت‌وگو و مذاکره حل شوند و نه با بازگشت به جنگ.»
+
+نخستین پاپ آمریکایی تاریخ کلیسای کاتولیک افزود: «امیدوارم این توافق واقعا راه حلی برای جنگ باشد، جنگ واقعا پایان‌یافته باشد و بتوانیم به جلو حرکت کنیم.»
+
+https://bbc.in/4uZFt0d
+📷REUTERS
+@BBCPersian
+</div>
+
+## BBCPersian — post 284074
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284074_1781652251.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+یک مقام ارشد آمریکایی به رویترز گفته است که آمریکا به ایران اجازه خواهد داد تا براساس تفاهمنامه بدست آمده، بلافاصله فروش نفت و سوخت خود را آغاز کند.
+
+این مقام که نامی از او برده نشده است، گفت که بند مربوط به لغو تحریم‌ها علیه فروش نفت ایران از زمانی که این تفاهمنامه در هفته جاری امضا شود، اجرایی خواهد شد و همچنین خدماتی مانند بانکداری، حمل‌ونقل و بیمه را که برای تسهیل این فروش‌ها لازم است را هم شامل می‌شود.
+
+با این حال، این مقام آمریکایی تأکید کرد که این توافق مشروط است.
+
+به گفته این مقام آمریکایی «این یک تفاهمنامه مبتنی بر عملکرد است. یعنی ایران فقط در صورتی می‌تواند از مزایای این تفاهم‌نامه بهره‌مند شود که به همه تعهداتش عمل کند از جمله نداشتن سلاح هسته‌ای، رقیق کردن اورانیوم غنی شده و اجازه تردد آزاد به کشتی‌ها در تنگه هرمز.»
+
+https://bbc.in/4a4v3EM
+📷Reuters
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392364
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🙂همه شنیدید 
+💖 ترامپ قمار باز 
+💖 میدونی سرمایه چند صد ملیون دلاری ترامپ از شرط بندی چطور جمع شده 
+⁉️ 
+✔️من بهت نه چیزی میخوام بفروشم نه پولی ازت میگیرم من بهت پول دراوردن رو رایگان آموزش میدم https://t.me/+lCR7HeYTU15iNjM0 https://t.me/+lCR7HeYTU15iNjM0 A26…
+</div>
+
+## Dirty_Kids — post 392363
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392363_1781652252.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🙂همه شنیدید 
+💖 ترامپ قمار باز 
+💖
+
+میدونی سرمایه چند صد ملیون دلاری ترامپ از شرط بندی چطور جمع شده 
+⁉️
+
+
+✔️من بهت نه چیزی میخوام بفروشم نه پولی ازت میگیرم من بهت پول دراوردن رو رایگان آموزش میدم
+
+https://t.me/+lCR7HeYTU15iNjM0
+https://t.me/+lCR7HeYTU15iNjM0
+A26
+عضو کانال شو تا بفهمی 
+✅
+</div>
+
+## Dirty_Kids — post 392362
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392362_1781652252.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392361
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392361_1781652252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابای پسره تبدیل به دشمنِ جدید مرد آهنی شد، تو قسمت بعدی باهاش میجنگه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392360
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392360_1781652253.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توی آذربایجان و توی هوای به شدت بارونی، یه نفر با تمام وجودش سعی می‌کنه تا یه توله سگ رو که افتاده داخل فاضلاب نجات بده و مادرِ توله ام نگران بالا سرش وایساده.
+
+مرد تمام تلاششو کرد، اما بی فایده بود و نتیجش جز غم چیزی نبود...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392359
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392359_1781652255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنای آمریکا اجازه نداد اختیارات ترامپ برای اقدام نظامی علیه ایران محدود بشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392358
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392358_1781652255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس:
+اگر ترامپ رهبر معظم ایران هم میشد، بازم دموکرات‌ها میگفتن که ترامپ جلوی ایران شکست خورده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392354
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گویا «جادوگر جنگل‌های نیوانگلند»، خانم آنیا تیلور-جوی، پشت پرده قهرمانی دوره قبل آرژانتینه. ببینیم قهرمانی این دوره رو هم تضمین می‌کنن. :)
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392353
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392353_1781652256.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون ترامپ خطاب به مردم ایران :
+
+ترامپ هیچ‌وقت نگفته هدفش اینه که رضا پهلوی رو رهبر بعدی ایران کنه؛
+
+حرفش این بوده که اگه مردم ایران بخوان علیه حکومتشون قیام کنن، اون دیگه مسئله خود مردم ایرانه و به آمریکا ربطی نداره.
+چیزی که ما دنبالشیم، متوقف شدن برنامه هسته‌ای ایرانه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392352
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392352_1781652257.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو ورزش نکنی سالمتر میمونی:)))
+نباید میخندیدم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392351
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392351_1781652259.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تحقیقات جدید نشون میده که مغزتون به چهره‌ی بهترین دوستتون، دقیقا مثل خوردن غذای مورد علاقتون واکنش نشون میده.
+
+وقتی شما چهره دوست صمیمی‌تون رو می بینین، بخش هایی از مغزتون فعال میشه که باعث لذت و آرامش میشه، دقیقا مثل خوردن غذای مورد علاقه‌مون.
+نگاه کردن به دوست صمیمی‌مون می‌تونه باعث ترشح دوپامین و اکسی‌توسین بشه و درنتیجه، افزایش آرامش، کاهش استرس و حس امنیت رو همراه داشته باشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392350
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محبی بازی بدی رو شروع کردش
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 128585
+
+<div align="center">
+  <a href="telegram/content/alonews_128585_1781652259.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاخ سفید:
+«نه سلاح هسته‌ای، نه لغو کامل تحریم‌ها, نه پول»
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128584
+
+<div align="center">
+  <a href="telegram/content/alonews_128584_1781652259.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سنای آمریکا به محدود شدن اختیارات رئیس جمهور در جنگ رای نداد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128583
+
+<div align="center">
+  <a href="telegram/content/alonews_128583_1781652259.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاملا هریس،معاون رئیس جمهور پیشین آمریکا:
+«هر مذاکره‌ای که در جریان باشد ترامپ به نقطه‌ای خواهد رسید که در برجام به ان رسیدیم و این چیزی بود که خودش پاره‌اش کرد»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 128582
+
+<div align="center">
+  <a href="telegram/content/alonews_128582_1781652259.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یا رب روا مدار روزی گدا معتبر شود
+
+@AloSport
+</div>
+
+## alonews — post 128581
+
+<div align="center">
+  <a href="telegram/content/alonews_128581_1781652261.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق گزارش شبکه خبری ان‌بی‌سی، سپاه پاسداران انقلاب اسلامی از زمان امضای دیجیتال تفاهم‌نامه در روز یکشنبه، هر شب پهپادهای متعددی را پرتاب کرده است
+
+
+🔴یک مقام آمریکایی می‌گوید که این پهپادها توسط سپاه پاسداران انقلاب اسلامی پرتاب می‌شوند، در حالی که نیروهای آمریکایی آن‌ها را قبل از اینکه بتوانند به کشتیرانی تجاری، کشتی‌های نظامی ایالات متحده یا پرسنل در منطقه تهدید کنند، رهگیری کرده‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/27 01:33
 ---
 
