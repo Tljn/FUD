@@ -7,6 +7,870 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/28 05:30
+---
+
+## VahidOOnLine — post 246125
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246125_1781748013.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️امانوئل مکرون، رئیس‌جمهوری فرانسه، بامداد پنجشنبه ۲۸ خردادماه ویدیویی از لحظه امضای توافق تهران و واشنگتن در کاخ ورسای منتشر کرد. در این ویدیو، دونالد ترامپ، رئیس‌جمهوری آمریکا، سند توافق را در حضور مقام‌های آمریکایی و فرانسوی امضا می‌کند.
+
+مکرون در پیامی همراه این ویدیو نوشت ترامپ توافق میان ایران و ایالات متحده را در ورسای امضا کرده است. او افزود این توافق راه را برای «صلحی پایدار» هموار می‌کند و امکان بازگشایی تنگه هرمز را فراهم می‌سازد. رئیس‌جمهوری فرانسه همچنین ابراز امیدواری کرد که این توافق به کاهش قیمت انرژی در آینده نزدیک منجر شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246124
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246124_1781748014.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شهباز شریف، نخست‌وزیر پاکستان، در شبکه اکس نوشته بود که پس از آنکه دو طرف پیش‌تر یادداشت توافق را امضا کرده‌اند، همچنان قرار است روز جمعه یک مراسم رسمی امضا برگزار شود.
+اما شریف مدت کوتاهی بعد آن پیام را حذف کرد. سپس همان متن را با تغییراتی دوباره منتشر کرد، اما اشاره به مراسم روز جمعه را از آن حذف کرد.
+پیش‌تر گفته شده بود که قرار است دو طرف مراسم رسمی امضا توافق را روز جمعه در سوئیس برگزار کنند و دونالد ترامپ نیز به احتمال حضور در این مراسم اشاره کرده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246123
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246123_1781748014.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مکرون با انتشار ویدیویی از لحظه امضای یادداشت تهران و واشینگتن از سوی ترامپ نوشت: «این توافق راه را برای صلحی پایدار هموار می‌کند و امکان بازگشایی تنگه هرمز را فراهم می‌سازد. این گامی مهم در مسیر درست برای هم‌وطنان ماست که به‌زودی کاهش قیمت انرژی را امکان‌پذیر خواهد کرد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246122
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، بامداد پنج‌شنبه ۲۸ خرداد پس از شرکت در نشست سران گروه هفت (G7) در فرانسه و حضور در ضیافت شام با امانوئل مکرون، رئیس‌جمهوری فرانسه، در کاخ ورسای، این کشور را به مقصد آمریکا ترک کرد.
+به گزارش رویترز، سفر ترامپ در حالی پایان یافت که هم‌زمان تفاهم‌نامه میان آمریکا و ایران برای پایان جنگ به امضای طرفین رسید. ترامپ هنگام ترک ورسای در پاسخ به پرسش خبرنگاران گفت: «امضا شده است؛ ما آن را در ورسای امضا کردیم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246121
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246121_1781748015.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های جمهوری اسلامی تصویر پزشکیان را هنگام امضای یادداشت تفاهم با آمریکا منتشر کردند. از سوی دیگر، ترامپ نیز در کاخ ورسای فرانسه این یادداشت تفاهم را امضا کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246120
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246120_1781748016.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، بامداد پنجشنبه ۲۸ خردادماه پس از ضیافت شام در کاخ ورسای، همراه با امانوئل مکرون، رئیس‌جمهوری فرانسه، این کاخ را ترک کرد.
+
+ترامپ هنگام خروج از کاخ ورسای در پاسخ به پرسش خبرنگاران، امضای توافق تهران و واشنگتن را تایید کرد و گفت: «امضا شده است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246119
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246119_1781748017.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ بامداد پنجشنبه، مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران یادداشت تفاهم با آمریکا را امضا کرد. همزمان دونالد ترامپ، رئیس‌جمهوری آمریکا که در کاخ ورسای حضور داشت نیز این یادداشت تفاهم را امضا کرد. ایرنا نوشت:پزشکیان و ترامپ در فاصله زمانی کوتاهی متن یادداشت تفاهم اسلام‌آباد را به‌صورت دیجیتال و غیرحضوری امضا کردند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246118
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246118_1781748017.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شهباز شریف، نخست‌وزیر پاکستان، با انتشار پیامی در شبکه اکس اعلام کرد «تفاهم‌نامه اسلام‌آباد» میان ایالات متحده و جمهوری اسلامی ایران به‌صورت الکترونیکی و با امضای روسای جمهوری دو کشور نهایی شده و بلافاصله اجرایی شده است.
+او نوشت بر اساس این تفاهم‌نامه، جمهوری اسلامی ایران تنگه هرمز را فوراً بازگشایی خواهد کرد و ایالات متحده نیز محاصره دریایی را بلافاصله لغو می‌کند. شریف همچنین گفت پاکستان با همکاری قطر، روز ۲۹ خرداد در سوئیس میزبان مراسم رسمی این توافق و آغاز گفتگوهای فنی خواهد بود.
+نخست‌وزیر پاکستان در این پیام از دونالد ترامپ، مسعود پزشکیان، مجتبی حسینی خامنه‌ای، مقام‌های قطری و اعضای تیم‌های مذاکره‌کننده دو طرف به‌دلیل نقش‌آفرینی در دستیابی به این توافق قدردانی کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246117
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246117_1781748018.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های ارشد آمریکایی درباره برنامه ۳۰۰ میلیارد دلاری بازسازی ایران در یادداشت تفاهم به خبرنگاران گفتند این بند آمریکا را متعهد به پرداخت هیچ پولی به ایران نمی‌کند و نقش آمریکا صرفا فراهم کردن امکان سرمایه‌گذاری و صدور مجوزهای لازم خواهد بود.
+به گفته این مقام‌ها، اگر حکومت ایران به تعهدات خود عمل کند، کشورهای دیگر خواهند توانست در پروژه‌های اقتصادی ایران سرمایه‌گذاری کنند.
+این مقام‌ها درباره رفع تحریم‌ها گفتند مهم‌ترین سوءبرداشت درباره تفاهم‌نامه این است که تصور شود همه تحریم‌ها بلافاصله لغو خواهند شد. آنها تاکید کردند که طبق این بند هیچ رفع تحریمی بدون اجرای تعهدات هسته‌ای ایران انجام نخواهد شد.
+مقام‌های ارشد آمریکایی درباره بند مربوط به نظارت بر اجرای تفاهم‌نامه گفتند این سازوکار علاوه بر نظارت بر اجرای تعهدات، ابزارهای لازم برای راستی‌آزمایی و پیگیری نقض احتمالی توافق را نیز در بر خواهد گرفت.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246116
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246116_1781748019.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، چهارشنبه ۲۷ خرداد، پیش از ضیافت شامی که به میزبانی امانوئل مکرون، رییس‌جمهوری فرانسه، در کاخ ورسای برگزار شد، یادداشت تفاهم با ایران را امضا کرد.
+در ویدیویی که کاخ سفید منتشر کرده، ترامپ در حال امضای سند فارسی‌زبان دیده می‌شود و پس از امضا به نظر می‌رسد از مارکو روبیو، وزیر خارجه آمریکا، می‌خواهد خودکار را برای طرف مقابل ارسال کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246115
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246115_1781748020.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دن اسکاوینو، دستیار رئیس‌جمهوری آمریکا، بامداد پنجشنبه ۲۸ خردادماه تصاویری از لحظه امضای توافق تهران و واشنگتن توسط دونالد ترامپ در کاخ ورسای فرانسه منتشر کرد. این تصاویر نشان می‌دهد ترامپ در جریان مراسمی رسمی، سند توافق را امضا می‌کند.
+
+این مراسم با حضور امانوئل مکرون، رئیس‌جمهوری فرانسه، ژان نوئل بارو، وزیر خارجه فرانسه، بریژیت مکرون و مارکو روبیو، وزیر خارجه آمریکا، برگزار شد. در تصاویر منتشرشده، حاضران پس از امضای توافق ترامپ را تشویق می‌کنند. اسکاوینو در توضیح این تصاویر نوشت که این توافق پیش از ضیافت شام رسمی در کاخ ورسای امضا شد و آن را «لحظه‌ای بسیار مهم در تاریخ» خواند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246114
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246114_1781748021.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام کاخ سفید اعلام کرد دونالد ترامپ، رییس‌جمهوری آمریکا، روز چهارشنبه تفاهم‌نامه میان ایران و آمریکا را شخصا امضا کرده است.
+
+به گفته این مقام، ترامپ این سند را در جریان ضیافت شام با امانوئل مکرون، رییس‌جمهوری فرانسه، در کاخ ورسای امضا کرد. همچنین تصویری از توافق برای مقام‌های ایرانی و کشورهای میانجی ارسال شده است.
+
+این مقام افزود که هنگام خروج از مراسم شام، مکرون به کاخ ورسای اشاره کرد و دو رهبر پس از در آغوش گرفتن یکدیگر خداحافظی کردند. ترامپ نیز در پاسخ به پرسش خبرنگاران فرانسوی درباره امضای سند گفت: «امضا شده است. ما آن را در ورسای امضا کردیم. همین حالا آن را امضا کردیم.»
+
+رویترز گزارش داد با اجرایی شدن توافق میان دو کشور برای پایان جنگ، مراسم اصلی امضای توافق که قرار بود در ژنو برگزار شود، لغو شده است. بر اساس این گزارش، مسعود پزشکیان، رییس‌جمهور جمهوری اسلامی، نیز این سند را از طرف ایران امضا کرده است.
+
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، روز چهارشنبه اعلام کرد که با وجود لغو مراسم رسمی امضا، برنامه سفر تیم‌های مذاکره‌کننده به ژنو همچنان برقرار است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246113
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246113_1781748022.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند مقام ارشد آمریکا درباره رفع تدریجی محاصره دریایی به خبرنگاران گفتند این بند به معنای خروج فوری نیروهای آمریکا از منطقه نیست و منظور از این بند صرفا بازگرداندن آرایش نظامی آمریکا به وضعیت پیش از آغاز جنگ است و این اقدام تنها در صورت رسیدن به توافق نهایی انجام خواهد شد.
+مقام‌های آمریکایی در ارتباط با بند مربوط به عبور رایگان کشتی‌ها از تنگه هرمز گفتند حکومت ایران عملا پذیرفته است برای ۶۰ روز هیچ عوارضی از کشتی‌های تجاری دریافت نکند.
+این مقام‌ها درباره تعیین تکلیف ذخایر اورانیوم غنی‌شده گفتندطبق این بند، جمهوری اسلامی بار دیگر اعلام می‌کند که به دنبال تولید یا دستیابی به سلاح هسته‌ای نخواهد رفت و دو طرف توافق می‌کنند درباره نحوه تعیین تکلیف ذخایر اورانیوم غنی‌شده و سایر موضوعات هسته‌ای مذاکره کنند.
+آنها تاکید کردند که رقیق‌سازی تنها «حداقل» تعهد ایران است و آمریکا در مذاکرات نهایی به دنبال محدودیت‌های گسترده‌تر، بازرسی‌های شدیدتر و برچیدن بخش‌های بیشتری از برنامه هسته‌ای خواهد بود.
+
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246112
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246112_1781748022.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری فرانسه بامداد پنجشنبه ۲۸ خردادماه گزارش داد دونالد ترامپ، رئیس‌جمهوری آمریکا، امضای توافق با ایران برای پایان دادن به جنگ را تایید کرده است. ترامپ هنگام ترک کاخ ورسای در پاسخ به پرسش خبرنگاران درباره امضای تفاهم‌نامه گفت: «امضا شده است.»
+
+به گزارش خبرگزاری فرانسه، ترامپ همچنین تایید کرد که این توافق در کاخ ورسای به امضا رسیده و گفت: «بله، ما آن را در ورسای امضا کردیم. همین الان امضا کردیم.» این اظهارات پس از دیدار و ضیافت شام او با امانوئل مکرون، رئیس‌جمهوری فرانسه، در کاخ ورسای مطرح شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246111
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدباقر قالیباف، رئیس مجلس شورای اسلامی که اکنون نام او به عنوان مذاکره‌کننده اصلی با آمریکا مطرح است، در سخنرانی و مجموعه‌ اظهارنظرهایی که چهارشنبه شب، همزمان با انتشار متن یادداشت تفاهم انجام شد، از نقش خود در مجموعه تحولات اخیر صحبت کرد و تاکید کرد که یا دیگران با او برای تصمیم‌گیری همراه می‌شوند یا خودش تصمیم می‌گیرد. قالیباف همچنین گفت سیستم «مدیریتی» و «نظامی» کشور از «فرد محوری» خارج شده است. تا پیش از کشته شدن علی خامنه‌ای، رهبر سابق جمهوری اسلامی در حمله آمریکا و اسرائیل، او درباره همه امور تصمیم می‌گرفت. قالیباف افزود که برای همه سناریو‌ها، از جمله کشته شدن علی خامنه‌ای هم برنامه‌ریزی شده بود. اظهارات قالیباف در حالی مطرح می‌شود که هنوز با گذشت بیش از سه ماه از معرفی مجتبی خامنه‌ای به عنوان رهبر جدید نظام، هیچ تصویر یا حتی صدای ضبط شده‌ای از او منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246110
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246110_1781748023.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فاکس‌نیوز به نقل از یک مقام کاخ سفید گزارش داد دونالد ترامپ، رئیس‌جمهوری آمریکا، بامداد پنجشنبه ۲۸ خرداد در جریان ضیافت شام با امانوئل مکرون، رئیس‌جمهوری فرانسه، در کاخ ورسای، تفاهم‌نامه میان آمریکا و ایران را شخصا امضا کرد.
+بر اساس این گزارش، پس از امضای مسعود پزشکیان، رئیس‌جمهوری ایران، این تفاهم‌نامه اجرایی شده است. یک نسخه از سند امضاشده نیز برای ایران و کشورهای میانجی ارسال شده است.
+فاکس‌نیوز همچنین گزارش داد با اجرایی شدن این توافق، مراسم اصلی امضای تفاهم‌نامه که قرار بود در ژنو برگزار شود، لغو شده است. با این حال، اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، اعلام کرد برنامه حضور تیم‌های مذاکره‌کننده در ژنو همچنان پابرجاست.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15207
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلار و طلا تا بفروشیم یا بالا میره؟ سوالی که اکثر مخاطبین کانال در چند روز اخیر می‌پرسند اول پاییز اعلام کردیم که دلار تا اخر سال به ۱۹۰ هزا تومان می‌رسد و طلای ۲۲ میلیونی را به درستی همانند قبل پیشبینی کرده بودیم الان هم قیمت قطعی دلار و طلا تا پایان تابستان…
+</div>
+
+## WithYashar — post 15206
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلار و طلا تا بفروشیم یا بالا میره؟ سوالی که اکثر مخاطبین کانال در چند روز اخیر می‌پرسند
+
+اول پاییز اعلام کردیم که دلار تا اخر سال به ۱۹۰ هزا تومان می‌رسد و طلای ۲۲ میلیونی را به درستی همانند قبل پیشبینی کرده بودیم
+الان هم قیمت قطعی دلار و طلا تا پایان تابستان و بعد از آن را در کانال زیر اعلام کردیم ، حتما عضو شوید تا با آگاهی از قیمت دقیق در روزهای آینده تمام سرمایه گذاری های خود را مدیریت کنید و از تورم جا نمانید👇
+https://t.me/+hLt81qXCGTQzOWQ0
+https://t.me/+hLt81qXCGTQzOWQ0
+</div>
+
+## WithYashar — post 15205
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15205_1781748024.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۳:۱۹ صبح امروز (کمی پیش) چند قایق متعلق به سپاه پاسدارن درحال اقدامی نامشخص در تنگه هرمز هستند.
+
+ناو آمریکایی در بیسیم به زبان فارسی متنی هشدار آمیز را پخش می‌کند که می‌گوید:
+جمهوری اسلامی کنترلی بر تنگه ندارد، عملیات را متوقف کنید و به بندر باز گردید، وگرنه نیروی دریایی ایالات متحده به کشتی شما حمله خواهد کرد.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343106
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343106_1781748025.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A curious shark turns an ordinary surf session into a tense standoff off the California coast.
+
+Drone footage shows the shark tracking a surfer from below the surface, circling near his board as the unaware surfer floats in open water.
+
+After spotting the danger, the drone operator used his drone to warn the surfer, who quickly paddled for shore.
+
+The shark eventually peeled away, but not before creating a moment that left even the person filming it on edge.
+</div>
+
+## FoxNewsTwitter — post 343105
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343105_1781748027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Trump boards Air Force One after a major diplomatic breakthrough in France.
+
+As he departed Versailles, the president confirmed he had signed the Iran memorandum of understanding, saying, “It’s signed. We signed it in Versailles. We just signed it.”
+</div>
+
+## FoxNewsTwitter — post 343104
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343104_1781748029.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The moment President Trump signs the Iran deal at the Palace of Versailles.
+
+The agreement was finalized during a dinner hosted by French President Emmanuel Macron inside the historic palace.
+
+The signing marked a major diplomatic milestone after months of negotiations aimed at ending the conflict between the U.S. and Iran.
+</div>
+
+## FoxNewsTwitter — post 343103
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343103_1781748031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump leaves France after Versailles dinner with French President Macron https://twitter.com/i/broadcasts/1yKAPPBvpjaxb
+</div>
+
+## FoxNewsTwitter — post 343102
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343102_1781748031.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"It's signed."
+
+President Trump told reporters he signed the Iran memorandum of understanding in Versailles as he departed the palace following a dinner with French President Emmanuel Macron.
+
+A White House official says a photo of the signed agreement was sent to Iran and the mediating countries, to formally put the deal into effect.
+</div>
+
+## FoxNewsTwitter — post 343098
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump tours the Palace of Versailles alongside French President Emmanuel Macron and his wife, Brigitte Macron, just before a major development in the Iran negotiations.
+
+The dinner meeting inside the historic French landmark ended with Trump signing the Iran memorandum of understanding, according to the White House.
+
+The gathering at Versailles was intended to celebrate the historic ties between the U.S and France during America's 250th birthday celebration.
+</div>
+
+## pm_afshaa — post 94310
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94310_1781748033.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه امضای تفاهم‌نامه بین پزشکیان و ترامپ
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76474
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76474_1781748035.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درستش کردم
+MahvashJebeli
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امضای پزشکیان
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76470
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76470_1781748035.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه امضای یادداشت تفاهم از سوی ترامپ
+
+دونالد ترامپ، رئیس جمهور آمریکا که چهارشنبه شب در کاخ الیزه میهمان ضیافت شام با امانوئل مکرون بود نسخه نهایی و منتشر شده تفاهم‌نامه با جمهوری اسلامی ایران را امضاء کرده است. مسعود پزشکیان نیز این سند را امضاء کرده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 88059
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88059_1781748035.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه امضای یادداشت تفاهم از سوی ترامپ
+
+دونالد ترامپ، رئیس جمهور آمریکا که چهارشنبه شب در کاخ الیزه میهمان ضیافت شام با امانوئل مکرون بود نسخه نهایی و منتشر شده تفاهم‌نامه با جمهوری اسلامی ایران را امضاء کرده است. مسعود پزشکیان نیز این سند را امضاء کرده است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 342951
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342951_1781748037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مکرون با انتشار ویدیویی از لحظه امضای یادداشت تهران و واشینگتن از سوی ترامپ نوشت: «این توافق راه را برای صلحی پایدار هموار می‌کند و امکان بازگشایی تنگه هرمز را فراهم می‌سازد. این گامی مهم در مسیر درست برای هم‌وطنان ماست که به‌زودی کاهش قیمت انرژی را امکان‌پذیر خواهد کرد.»
+https://iranintl.com/202606189424
+</div>
+
+## IranIntlTV — post 342950
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342950_1781748037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های جمهوری اسلامی تصویر پزشکیان را هنگام امضای یادداشت تفاهم با آمریکا منتشر کردند. از سوی دیگر، ترامپ نیز در کاخ ورسای فرانسه این یادداشت تفاهم را امضا کرد.
+https://iranintl.com/202606187211
+</div>
+
+## IranIntlTV — post 342949
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342949_1781748038.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های ارشد آمریکایی درباره برنامه ۳۰۰ میلیارد دلاری بازسازی ایران در یادداشت تفاهم به خبرنگاران گفتند این بند آمریکا را متعهد به پرداخت هیچ پولی به ایران نمی‌کند و نقش آمریکا صرفا فراهم کردن امکان سرمایه‌گذاری و صدور مجوزهای لازم خواهد بود.
+به گفته این مقام‌ها، اگر حکومت ایران به تعهدات خود عمل کند، کشورهای دیگر خواهند توانست در پروژه‌های اقتصادی ایران سرمایه‌گذاری کنند.
+این مقام‌ها درباره رفع تحریم‌ها گفتند مهم‌ترین سوءبرداشت درباره تفاهم‌نامه این است که تصور شود همه تحریم‌ها بلافاصله لغو خواهند شد. آنها تاکید کردند که طبق این بند هیچ رفع تحریمی بدون اجرای تعهدات هسته‌ای ایران انجام نخواهد شد.
+مقام‌های ارشد آمریکایی درباره بند مربوط به نظارت بر اجرای تفاهم‌نامه گفتند این سازوکار علاوه بر نظارت بر اجرای تعهدات، ابزارهای لازم برای راستی‌آزمایی و پیگیری نقض احتمالی توافق را نیز در بر خواهد گرفت.
+
+https://iranintl.com/202606171881
+</div>
+
+## IranIntlTV — post 342948
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342948_1781748038.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، چهارشنبه ۲۷ خرداد، پیش از ضیافت شامی که به میزبانی امانوئل مکرون، رییس‌جمهوری فرانسه، در کاخ ورسای برگزار شد، یادداشت تفاهم با ایران را امضا کرد.
+در ویدیویی که کاخ سفید منتشر کرده، ترامپ در حال امضای سند فارسی‌زبان دیده می‌شود و پس از امضا به نظر می‌رسد از مارکو روبیو، وزیر خارجه آمریکا، می‌خواهد خودکار را برای طرف مقابل ارسال کند.
+</div>
+
+## IranIntlTV — post 342947
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342947_1781748040.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام کاخ سفید اعلام کرد دونالد ترامپ، رییس‌جمهوری آمریکا، روز چهارشنبه تفاهم‌نامه میان ایران و آمریکا را شخصا امضا کرده است.
+
+به گفته این مقام، ترامپ این سند را در جریان ضیافت شام با امانوئل مکرون، رییس‌جمهوری فرانسه، در کاخ ورسای امضا کرد. همچنین تصویری از توافق برای مقام‌های ایرانی و کشورهای میانجی ارسال شده است.
+
+این مقام افزود که هنگام خروج از مراسم شام، مکرون به کاخ ورسای اشاره کرد و دو رهبر پس از در آغوش گرفتن یکدیگر خداحافظی کردند. ترامپ نیز در پاسخ به پرسش خبرنگاران فرانسوی درباره امضای سند گفت: «امضا شده است. ما آن را در ورسای امضا کردیم. همین حالا آن را امضا کردیم.»
+
+رویترز گزارش داد با اجرایی شدن توافق میان دو کشور برای پایان جنگ، مراسم اصلی امضای توافق که قرار بود در ژنو برگزار شود، لغو شده است. بر اساس این گزارش، مسعود پزشکیان، رییس‌جمهور جمهوری اسلامی، نیز این سند را از طرف ایران امضا کرده است.
+
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، روز چهارشنبه اعلام کرد که با وجود لغو مراسم رسمی امضا، برنامه سفر تیم‌های مذاکره‌کننده به ژنو همچنان برقرار است.
+https://iranintl.com/202606178908
+</div>
+
+## IranIntlTV — post 342946
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_342946_1781748040.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند مقام ارشد آمریکا درباره رفع تدریجی محاصره دریایی به خبرنگاران گفتند این بند به معنای خروج فوری نیروهای آمریکا از منطقه نیست و منظور از این بند صرفا بازگرداندن آرایش نظامی آمریکا به وضعیت پیش از آغاز جنگ است و این اقدام تنها در صورت رسیدن به توافق نهایی انجام خواهد شد.
+مقام‌های آمریکایی در ارتباط با بند مربوط به عبور رایگان کشتی‌ها از تنگه هرمز گفتند حکومت ایران عملا پذیرفته است برای ۶۰ روز هیچ عوارضی از کشتی‌های تجاری دریافت نکند.
+این مقام‌ها درباره تعیین تکلیف ذخایر اورانیوم غنی‌شده گفتندطبق این بند، جمهوری اسلامی بار دیگر اعلام می‌کند که به دنبال تولید یا دستیابی به سلاح هسته‌ای نخواهد رفت و دو طرف توافق می‌کنند درباره نحوه تعیین تکلیف ذخایر اورانیوم غنی‌شده و سایر موضوعات هسته‌ای مذاکره کنند.
+آنها تاکید کردند که رقیق‌سازی تنها «حداقل» تعهد ایران است و آمریکا در مذاکرات نهایی به دنبال محدودیت‌های گسترده‌تر، بازرسی‌های شدیدتر و برچیدن بخش‌های بیشتری از برنامه هسته‌ای خواهد بود.
+
+
+https://iranintl.com/202606171881
+</div>
+
+## IranIntlTV — post 342945
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_342945_1781748041.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از موشک تا معیشت؛ تغییر ناگهانی روایت؛
+قالیباف: سنگر را از «بچه‌های لانچر» تحویل می‌گیریم!
+
+قالیباف می‌گوید: «باید سنگر را از لانچرها تحویل بگیریم و به سمت ساختن کشور برویم.»
+
+تا دیروز می‌گفتند اولویت کشور موشک است، نه معیشت. هر صدای منتقدی را با «مقاومت» و «امنیت» ساکت می‌کردند. حالا از اقتصاد، توسعه و برداشتن فشار از دوش مردم حرف می‌زنند.
+
+اگر اقتصاد امروز اولویت شده، پس چهار دهه گذشته صرف چه شد؟ چه کسانی کشور را به این نقطه رساندند؟ و آیا قرار است میلیاردها دلار سرمایه و منابع تازه، دوباره در اختیار همان ساختارهایی قرار بگیرد که کشور را به این وضعیت رسانده‌اند؟
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/VniCfgW1sPQ
+@iranintltv
+</div>
+
+## Iliaen — post 4492
+
+<div align="center">
+  <a href="telegram/content/Iliaen_4492_1781748043.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت ۰۳:۱۸ صبح پنجشنبه؛ چند قایق متعلق به سپاه پاسدارن درحال اقدامی نامشخص در تنگه هرمز هستند.
+
+ناو آمریکایی در بیسیم به زبان فارسی متنی هشدار آمیز را پخش می‌کند که می‌گوید:
+
+“جمهوری اسلامی کنترلی بر تنگه ندارد، عملیات را متوقف کنید و به بندر باز گردید، وگرنه نیروی دریایی ایالات متحده به کشتی شما حمله خواهد کرد.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 221076
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ارتباط دیپلمات جوان روس با پرونده حمله به خانه‌های نخست‌وزیر بریتانیا؛ گفت‌وگو با اولگا مالچفسک
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221075
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221075_1781748043.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جشن ۲۵۰ سالگی استقلال آمریکا در مراکش
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221074
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221074_1781748044.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️انتقادها از غیبت ترودو در تورنتو؛ حال‌وهوای شهر میزبان جام جهانی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221073
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پاکستان می‌گوید در پی امضای تفاهم‌نامه، جمهوری اسلامی باید «تنگه هرمز» را فورا باز کند
+
+▪️شهباز شریف، نخست‌وزیر پاکستان در بیانیه‌ای که در شبکه‌های اجتماعی منتشر کرد گفت امضای تفاهم‌نامه پایان درگیری‌ها میان آمریکا و جمهوری اسلامی، به این معنا است که جمهوری اسلامی تنگه هرمز را فوراً بازگشایی خواهد کرد و محاصره دریایی بنادر ایران از سوی آمریکا نیز بلافاصله پایان می‌یابد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8162199.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221072
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺شلاق، ممنوعیت خروج و ممنوعیت کار، حکم یک خواننده زن و اعضای گروهش در ایران؛ دادگاه قم: «عفت عمومی» جریحه‌‌دار شد
+
+▪️جمهوری اسلامی، پرستو احمدی، خواننده و برگزارکننده « کنسرت کاروانسرا» و هشت تن دیگر از دست‌اندرکاران و نوازندگان این برنامه را به ۷۴ ضربه شلاق، دو سال ممنوعیت خروج از کشور و دو سال ممنوعیت از فعالیت هنری محکوم کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/female-singer-and-her-band-members-sentenced-to-flogging-travel-bans-and-employment-restrictions/8161985.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221071
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش‌های رسانه‌‌ای درباره مفاد تفاهم اولیه آمریکا با جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221070
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221070_1781748045.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دن اسکاوینو، دستیار رئیس جمهوری‌ آمریکا ویدیویی از دونالد ترامپ در حال امضای تفاهم‌نامه با جمهوری اسلامی را منتشر کرد. او گفت این امضا پیش از شام چهارشنبه‌شب در کاخ ورسای فرانسه، به میزبانی امانوئل مکرون امضا شد. اسکاوینو گفت آقای ترامپ، تفاهم‌نامه را به محض دریافت ازمارکو روبیو امضا کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221069
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سراب متناسب‌سازی حقوق و واقعیت سفره‌ها؛ پشت پرده رقم ۱۴۰ هزار میلیارد تومانی تامین اجتماعی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221068
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دادگاه کیفری استان قم پرستو احمدی و هشت نفر از دست‌اندرکاران و نوازندگان «کنسرت کاروانسرا» را به ۷۴ ضربه شلاق تعزیری، دو سال ممنوع‌الخروجی و دو سال ممنوعیت از فعالیت هنری محکوم کرده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221067
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221067_1781748046.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️لیونل مسی؛ ستاره‌ای که سال‌ها مرزهای ممکن را جابه‌جا کرده است
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221066
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺واکنش‌ها در کنگره به یادداشت تفاهم‌با جمهوری اسلامی؛ سناتور کروز: دادن میلیاردها دلار «به دیوانه‌های حکومت دینی» ایده خوبی نیست
+
+▪️چند سناتور جمهوری‌خواه آمریکا نسبت به تفاهم‌نامه منتشر شده میان ایالات متحده و جمهوری اسلامی ایران ابراز تردید و انتقاد کردند و برخی گفته‌اند این سند هنوز توافق نهایی با رژیم ایران محسوب نمی‌شود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8161984.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221065
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221065_1781748047.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ به خبرنگاران: تفاهم‌نامه با جمهوری اسلامی را در کاخ ورسای امضا کردم
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221064
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گفت‌وگوهای احتمالی اروپا با طالبان؛ اخراج مهاجران افغان از آلمان و چالش‌های حقوقی و سیاسی آن
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22845
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22845_1781748048.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قالیباف:
+
+بدبینی و بی‌اعتمادی من به ایالات متحده از هر کس دیگری بیشتر است.
+
+حتی اگر توافق نهایی حاصل شود و توسط قطعنامه شورای امنیت سازمان ملل متحد تأیید شود، باز هم قابل اعتماد نیست. تضمین ما قدرت ایران است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22844
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جام جهانی ینی اوج هیجان و پول دراوردن پس بیا توی کانال ورسوس بت و پول دراوردن شروع کن👌
+</div>
+
+## IranianMinds — post 22843
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22843_1781748050.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📢توم میخوای از مسابقات جام جهانی فوتبال پول دربیاری؟
+🥇
+
+
+✅کانال ورسوس بت کارش تحلیل و پیش بینی مسابقات جام جهانی به صورت حرفه ای
+🍑
+
+
+⚠️توم میتونی از پیش بینی جام جهانی خیلی راحت پول دربیاری فقط کافیه با کانال ورسوس بت همراه شی
+📣
+
+
+🌐ادرس عضویت کانالشون ea27:
+👇
+
+🔪https://t.me/+vEPd1hF2Y38yMWI0
+
+🔪https://t.me/+vEPd1hF2Y38yMWI0
+</div>
+
+## IranianMinds — post 22842
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22842_1781748050.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این هم امضای یادداشت تفاهم‌نامه از سوی پزشکیان.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22841
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22841_1781748051.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ پاریس را به مقصد واشینگتن ترک می‌کند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22840
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22840_1781748053.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لحظه امضای یادداشت تفاهم‌نامه از سوی ترامپ.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284210
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ایرنا - خبرگزاری دولت ایران هم بامداد پنجشنبه مجموعه تصاویری از لحظه امضای تفاهمنامه توسط مسعود پزشکیان منتشر کرد تا هر دو سو رسما به آن سندیت ببخشند.
+
+در تصاویر ایرنا رئیس جمهور ایران در کنار امضای دونالد ترامپ امضاء کرده است. تصاویر امضای رئیس جمهور آمریکا را هم دقایقی پیش‌تر کاخ سفید منتشر کرده بود که در آن آقای ترامپ در حالی که کنار امانوئل مکرون و سر میز شام در کاخ الیزه نشسته سند را امضاء می‌کند.
+
+ساعتی قبل از این، اسماعیل بقایی، سخنگوی وزارت خارجه ایران گفت: «به این نتیجه رسیدیم متن یادداشت تفاهم به امضا روسای جمهور ایران و آمریکا برسد و برگزاری مراسم روز جمعه هنوز در دستور کار است اما باید ببینیم ظرف ساعات آینده به چه نتیجه‌ای می‌رسیم. به هر حال باید فاز بعدی مذاکرات آغاز شود. این نشست در سوئیس هنوز در دستور کار است که برگزار شود. باید ببینیم که در ساعات آینده طرفین از طریق میانجی‌ها به نتیجه‌ای می‌رسند.»
+
+آقای بقایی و همچنین مقام‌های در کاخ‌سفید تایید کرده‌اند که همزمان با امضای روسای‌جمهور در زیر تفاهمنامه، این سند لازم الاجرا شده است.
+
+
+📷IRNA
+@BBCPersian
+</div>
+
+## BBCPersian — post 284209
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ساعتی بعد از تایید امضای تفاهمنامه میان ایران و آمریکا از سوی دونالد ترامپ و مسعود پزشکیان، کاخ‌سفید ویدیو لحظه امضاء کردن آقای ترامپ را که به نظر می‌رسد بر سر میز ضیافت شام در کاخ ورسای صورت گرفته را منتشر کرد.
+
+در این ویدیو امانوئل مکرون هم کنار آقای ترامپ دیده می‌شود و او برگه‌ای که مارکو روبیو، وزیرخارجه به او داده را امضاء می‌کند.
+
+خبرگزاری دولتی ایران - ایرنا - هم دقایقی بعد عکسی از مسعود پزشکیان منتشر کرد که در آن رئیس جمهور ایران برگه امضاء شده تفاهمنامه را مقابل دوربین گرفته است و امضای دونالد ترامپ هم در یک طرف آن دیده می‌شود.
+
+برای خواندن متن کامل این تفاهمنامه به وبسایت ما سر بزنید یا در آلبومی که برایتان همینجا منتشر کردیم مراجعه کنید.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284208
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سه نکته اصلی که از توافق آمریکا و ایران برجسته می‌شود
+🖋️گری او‌دوناهیو - خبرنگار ارشد آمریکای شمالی
+
+🔻در واشنگتن شاهد یک نشست توجیهی فوق‌العاده با مقام‌های ارشد آمریکایی بودیم که متن تفاهم‌نامه با ایران را کلمه به کلمه برای ما قرائت کردند.
+
+سه نکته اصلی از این سند برای من برجسته بود:
+
+نخست، درباره موضوع هسته‌ای. مقام‌های ارشد آمریکایی می‌گویند ایران متعهد شده است که سلاح هسته‌ای تولید نکند یا به دست نیاورد. دونالد ترامپ از زمان آغاز جنگ در ماه فوریه، این موضوع را مهم‌ترین شرط خود برای دستیابی به توافق عنوان کرده بود.
+
+آنها همچنین گفتند ذخایر اورانیوم غنی‌شده ایران در داخل کشور و تحت نظارت آژانس بین‌المللی انرژی اتمی رقیق‌سازی خواهد شد. آمریکا در ابتدا خواستار خروج این مواد از ایران بود، بنابراین این یک تحول جدید محسوب می‌شود.
+
+دوم، درباره بازگشایی تنگه هرمز. مقام‌های آمریکایی گفتند که به مدت ۶۰ روز هیچ‌گونه عوارضی از کشتی‌های عبوری دریافت نخواهد شد. پس از آن، ایران و کشورهای همسایه باید درباره نحوه مدیریت این موضوع مذاکره کنند.
+
+این مسئله این احتمال را باز می‌گذارد که در آینده عوارضی برای عبور از تنگه هرمز تعیین شود؛ در حالی که پیش از آغاز درگیری‌ها چنین هزینه‌ای وجود نداشت.
+
+سوم، صندوق بحث‌برانگیز ۳۰۰ میلیارد دلاری برای بازسازی ایران است. ترامپ پیش‌تر گزارش‌های مربوط به آن را «اخبار جعلی» توصیف کرده بود، اما این صندوق در متن توافق گنجانده شده است.
+
+مقام‌های ارشد آمریکایی تاکید کردند که آمریکا مجبور نیست «حتی یک سنت» به این صندوق پرداخت کند و اجرای آن به رفتار ایران و پایبندی تهران به تعهداتش بستگی خواهد داشت.
+
+این توافق در روزهای آینده بند به بند مورد بررسی و موشکافی قرار خواهد گرفت. اما پرسش اصلی این خواهد بود که آمریکا دقیقا از جنگ با ایران چه دستاوردی به دست آورده است؟
+
+https://bbc.in/4vPb8lA
+@BBCPersian
+</div>
+
+## BBCPersian — post 284207
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284207_1781748054.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽ انگلیس ۴ - کرواسی ۲
+
+🔸تیم فوتبال انگلیس در نخستین مسابقه خود برابر کرواسی که عنوان سومی جام جهانی را یدک می‌کشد نمایشی بسیار موفق داشت و توانست در نهایت با نتیجه چهار بر دو پیروز شود.
+
+گل های «سه شیر» با دبل هری کین، رابرت رشفورد و جو بلینگام رقم خورد.
+
+برای کرواسی هم مارتین باتورینا و پتار موسا دو بار گل زدند تا نتیجه را در همان نیمه اول به تساوی بکشند اما جود بلینگام در همان دقایق اول نیمه دوم گل سوم انگلیس را زد و بعد عم رشفورد با گل چهارم توماس توخل آلمانی را از اضطراب دقایق پایانی نجات داد.
+
+تیم ملی انگلیس با یکی از پرستاره‌ترین ترکیب‌های تاریخ خود وارد جام جهانی ۲۰۲۶ شده است. «سه‌شیر» این بار با هدایت توماس توخل به دنبال پایان دادن به طلسم و انتظار طولانی فتح جام جهانی از سال ۱۹۶۶هستند.
+
+https://bbc.in/4aaDdvs
+📷Reuters
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284206
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تردید در برگزاری مراسم رسمی امضای تفاهمنامه در سوئیس
+
+🔻پس از آن که کاخ سفید و وزارت خارجه ایران از امضای تفاهمنامه میان مسعود پزشکیان و دونالد ترامپ خبر دادند، به نظر می‌رسد برگزاری مراسم تشریفات رسمی برای امضای این سند که اعلام شده بود روز جمعه در سوئیس برگزار شود، لغو شده یا دست کم در زمان اعلام شده برگزار نخواهد شد.
+
+ساعتی قبل اسماعیل بقایی، سخنگوی وزارت خارجه ایران ضمن توضیحاتی درباره متن منتشر شده و امضای روسای جمهور ایران و آمریکا، تلویحا گفت که تهران تمایل خاصی برای مراسم سوئیس ندارد.
+
+خبرگزاری دولتی ایرنا درباره امضای آقایان پزشکیان و ترامپ و به نقل از آقای بقایی نوشت: «وقتی متن به امضای بالاترین مقام‌های دو کشور برسد، قاعدتا نقض آن هزینه‌های بیشتری دارد و ما با توجه به تجربه‌هایی که داریم ترجیح دادیم که این اتفاق بیافتد. ضمن اینکه تشخیص دادیم برگزاری مراسم هم چندان جایی [در برنامه ما] ندارد.»
+
+https://bbc.in/4vdn6Wl
+@BBCPersian
+</div>
+
+## BBCPersian — post 284196
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کاخ سفید متن یادداشت تفاهم ایران و آمریکا را منتشر کرد. این سند که به طور الکترونیکی امضا شده است، قرار است روز جمعه در مراسمی در سوئیس به امضای مقامات ایرانی و آمریکایی برسد. متن منتشر شده ۱۴ بند دارد و مقامات آمریکایی توضیحاتی در کنار برخی موارد نوشتند.
+
+آلبوم را ورق بزنید و مفاد این تفاهمنامه را بخوانید و توضیخات بیشتر را از لینک زیر در وبسایت بی‌بی‌سی فارسی بخوانید:
+
+https://bbc.in/4vdkMP7
+📷Getty Images/ Anadolu via Getty Images/ Sygma via Getty Images/ Bloomberg via Getty Images
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه‌ای که ترامپ، سند تفاهم با ایران رو سرِ میز شام امضا کرد ؛ بعدشم همه واسش دست زدن... @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392458
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392458_1781748055.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه‌ای که ترامپ، سند تفاهم با ایران رو سرِ میز شام امضا کرد ؛
+
+بعدشم همه واسش دست زدن...
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/28 03:03
 ---
 
@@ -1964,8 +2828,6 @@ https://t.me/+dySI_QFj0T0xZGVk
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
