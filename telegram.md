@@ -7,6 +7,637 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/29 01:20
+---
+
+## VahidOOnLine — post 246286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، پلیس نیویورک اعلام کرد پنج‌شنبه ۲۸ خرداد، حدود ساعت ۱۵:۳۰ به وقت محلی، گزارش‌هایی از تیراندازی در تقاطع خیابان چهل‌وچهارم غربی و خیابان هفتم دریافت کرده است. ماموران پس از حضور در محل، فردی را که اقدام به شلیک کرده بود بازداشت و سلاح او را ضبط کردند.
+پلیس اعلام کرد در این حادثه هیچ فردی زخمی نشده و تحقیقات درباره جزئیات آن همچنان ادامه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️علی مدنی‌زاده، وزیر اقتصاد، در گفتگو با «خانه اقتصاد» گفت حتی با توافق و رفع محاصره، اقتصاد ایران به شرایط کاملا عادی بازنمی‌گردد. او افزود دولت در سال ۱۴۰۵ حتی بدون وقوع جنگ نیز با چند صد هزار میلیارد تومان کسری بودجه مواجه بود و جنگ با کاهش درآمدهای مالیاتی و نفتی و افزایش هزینه‌های دولت، این ناترازی را تشدید کرده است.
+مدنی‌زاده همچنین گفت دولت برای جبران بخشی از کسری بودجه و کاهش درآمدهای ناشی از جنگ، حدود ۱۰۰ هزار میلیارد تومان از بانک مرکزی استقراض کرده است. او هشدار داد آثار تورمی این استقراض در ماه‌های آینده نمایان خواهد شد و تاکید کرد با وجود بهبود احتمالی شرایط پس از توافق، دولت همچنان با محدودیت‌های مالی جدی روبه‌رو خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246284
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246284_1781819448.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چاک شومر، رهبر اقلیت دموکرات در سنای آمریکا، از تفاهم‌نامه میان آمریکا و جمهوری اسلامی انتقاد کرد و گفت ایالات متحده به دلیل «بی‌کفایتی، خودخواهی و ناتوانی دونالد ترامپ در گوش دادن به واقعیت‌ها» در وضعیت بدتری قرار گرفته است.
+
+شومر در پیامی اعلام کرد اگر دونالد ترامپ، رییس‌جمهوری آمریکا، قصد دارد صدها میلیارد دلار به ایران اختصاص دهد، باید این کار را با اتکا به آرای جمهوری‌خواهان انجام دهد.
+
+رهبر اقلیت دموکرات در سنا همچنین تاکید کرد که دموکرات‌ها از هیچ طرحی برای اختصاص ۳۰۰ میلیارد دلار به ایران حمایت نخواهند کرد.
+
+اظهارات شومر در حالی مطرح می‌شود که تفاهم‌نامه میان آمریکا و جمهوری اسلامی با واکنش‌های متفاوتی در میان جمهوری‌خواهان و دموکرات‌های آمریکا روبه‌رو شده و برخی منتقدان درباره پیامدهای اقتصادی و امنیتی آن ابراز نگرانی کرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246283
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246283_1781819448.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رییس دولت، خطاب به مجتبی خامنه‌ای نوشت: «صدور اجازه شما برای آغاز مذاکره، اسباب خرسندی و رضایت همه خدمتگزاران ملت ایران است.»
+
+او افزود: «خود را متعهد به توجه حداکثری نسبت به دغدغه‌های شما، حراست از حقوق ملت ایران و جبهه مقاومت می‌دانیم.»
+
+پزشکیان ادامه داد: «با توجه حداکثری تیم مذاکره‌کننده نسبت به جزییات مذاکره، پیروزی بزرگ حاصل خواهد شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15287
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر دفاع اسرائیل:اسرائیل توانایی انجام عملیات مستقل علیه ایران را دارد و در هر لحظه برای اجرای یک عملیات آبی و سفید در ایران آماده است.
+@withyashar
+</div>
+
+## WithYashar — post 15286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر دارایی اسرائیل، بزالئل سموتریچ:
+
+غزه در ویرانه باقی خواهد ماند. در نهایت، مهاجرت رخ خواهد داد، زیرا در دهه‌های آینده چیزی برای جستجو در آنجا وجود نخواهد داشت.
+@withyashar
+</div>
+
+## WithYashar — post 15285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: پیت هگست قراره خیلی پیروزی های دیگه بدست بیاره پسر خوبیه
+من فقط مردمی رو دوس دارم که طرفدار من باشن
+@withyashar
+</div>
+
+## WithYashar — post 15284
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این پست جنجالی را از دست ندید، کلیک کنید و کارهای اداریش را انجام بدهید. حتماً تا انتها ببینید. https://www.instagram.com/reel/DZvdCMHxeYT/?igsh=MW50eDUzOWQ0MnFzYw== اتاق جنگ با یاشار : Bagher.exe
+</div>
+
+## WithYashar — post 15283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+subseven
+</div>
+
+## WithYashar — post 15282
+
+
+
+
+## WithYashar — post 15281
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این پست جنجالی را از دست ندید، کلیک کنید و کارهای اداریش را انجام بدهید. حتماً تا انتها ببینید.
+
+https://www.instagram.com/reel/DZvdCMHxeYT/?igsh=MW50eDUzOWQ0MnFzYw==
+
+اتاق جنگ با یاشار : Bagher.exe
+</div>
+
+## mwarmonitor — post 11180
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رهبر معظم معلول و «احتمالاً همجنس‌گرای» ایران با مذاکرات مستقیم با آمریکا موافقت کرد؛ این مذاکرات می‌تواند همین آخر هفته آغاز شود. «نیویورک پست»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343147
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343147_1781819449.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump recounted Marine Corps Col. John W. Ripley’s prayer as he crawled beneath a bridge under heavy enemy fire during a pivotal battle in Vietnam in 1972.
+
+Ripley posthumously received the Medal of Honor for spending hours positioning 500 pounds of explosives beneath the Dong Ha Bridge before destroying it and stopping a major North Vietnamese advance.
+
+His actions are widely credited with helping prevent a breakthrough by enemy forces.
+</div>
+
+## FoxNewsTwitter — post 343146
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343146_1781819451.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump awards the Medal of Honor to retired Marine Maj. James Capers Jr. for extraordinary heroism during a four-day reconnaissance mission in Vietnam.
+
+Despite suffering multiple severe wounds and massive blood loss after his team was ambushed, Capers continued leading his men, directing fire, and guiding the patrol to an extraction site. He refused evacuation until every member of his team was safely aboard the helicopter.
+</div>
+
+## FoxNewsTwitter — post 343145
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343145_1781819453.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“I wanted to give it to myself, but I was informed I couldn’t do it.”
+
+President Trump joked about awarding himself the Medal of Honor before presenting the nation’s highest military distinction to three service members during a White House ceremony.
+
+Trump called the recipients “the bravest and greatest heroes ever to walk the earth” as he honored Marine Corps Maj. James Capers, Marine Corps Col. John W. Ripley posthumously, and Army Maj. Nicholas Dockery.
+</div>
+
+## FoxNewsTwitter — post 343144
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343144_1781819453.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“The stock market just hit a new all-time high... 401(k)s just hit a new all-time high and oil is dropping like a rock.”
+
+President Trump highlighted some economic wins during a White House Medal of Honor ceremony, where he is honoring three distinguished combat veterans for their service and sacrifice.
+
+“Other than that, it’s another day in paradise,” Trump added.
+</div>
+
+## FoxNewsTwitter — post 343143
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343143_1781819455.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+New York City showed out as the Knicks celebrated their first NBA title in 53 years.
+
+Fans chanted “Let’s go Knicks” from atop sanitation trucks, cruised through the city in Knicks-themed cars, and even climbed scaffolding to get a glimpse of the festivities as viewing areas filled up early.
+
+Officials estimate more than a million fans decked in their orange and blue packed Lower Manhattan to celebrate with the team.
+</div>
+
+## FoxNewsTwitter — post 343142
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343142_1781819456.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump awards Medal of Honor to three combat veterans https://twitter.com/i/broadcasts/1RKjppWgpgNJw
+</div>
+
+## pm_afshaa — post 94356
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت خارجه آمریکا در بیانیه ای اضطراری از شهروندان خود خواسته تا اطلاع ثانوی به هیچ وجه به روسیه سفر نکنن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5806
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5806_1781819456.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑
+🔺 شاهزاده رضا پهلوی در گفت‌وگو با اندرو مار در LBC تأکید کرد که مردم ایران مبارزه برای آزادی را رها نخواهند کرد. او با اشاره به شجاعت و فداکاری ایرانیان گفت که رژیم در نهایت قربانی ماهیت خود خواهد شد و هیچ میزان باج‌دهی، امتیازدهی یا لغو تحریم‌ها نمی‌تواند…
+</div>
+
+## DEJradio — post 5805
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ نتانیاهو: تا هر زمان لازم باشد در جنوب لبنان می‌مانیم
+
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل پنج‌شنبه ۲۸ خردادماه اعلام کرد ارتش این کشور منطقهٔ امنیتی خود در جنوب لبنان را حفظ می‌کند و از آنجا بازنمی‌گردد.
+نتانیاهو تأکید کرد خروج نیروها از لبنان تنها زمانی انجام می‌شود که نیازهای امنیتی اسرائیل برطرف شده باشد.
+نتانیاهو در بیانیه‌ای با قدردانی از پشتیبانی آمریکا در نبرد با جمهوری اسلامی، گفت مبارزهٔ اسرائیل هنوز پایان نیافته و چالش‌هایی بیش‌ از پیش در راه است.
+نخست‌وزیر اسرائیل تأکید کرد بازگرداندن امنیت به مناطق شمالی اسرائیل، مستلزم حفظ منطقهٔ امنیتی در جنوب لبنان است.
+به گفتهٔ نتانیاهو، تا زمانی که امنیت اسرائیل ایجاب کند، ارتش این کشور آنجا را ترک نمی‌کند.
+جمهوری اسلامی در مذاکره با آمریکا خواستار خروج نیروهای اسرائیلی از خاک لبنان شده‌ است.
+در تفاهمنامهٔ اخیر تهران و واشینگتن، بر حفظ تمامیت ارضی لبنان تأکید شده بود.
+شماری از وزرای کابینهٔ نتانیاهو پیش‌تر تأکید کردند که اسرائیل خود را به تفاهمنامهٔ تهران و واشینگتن متعهد نمی‌داند.
+
+#نتانیاهو #لبنان
+@DEJradio
+</div>
+
+## DEJradio — post 5804
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ترامپ خبر پرداخت ۳۰۰ میلیارد دلار به جمهوری اسلامی را جعلی خواند
+
+دونالد ترامپ، رئیس‌ جمهوری ایالات متحده، در شامگاه پنج‌شنبه ۲۸ خردادماه بار دیگر از امضای تفاهمنامه با جمهوری اسلامی دفاع کرد و آن را یک پیروزی برای ایالات متحده خواند.
+دونالد ترامپ در شبکهٔ اجتماعی تروث نوشت: هیچ پرداخت ۳۰۰ میلیارد دلاری از سوی آمریکا به جمهوری اسلامی وجود ندارد.
+او‌ با جعلی خواندن این خبر افزود تنها چیزی که برای آمریکا وجود دارد، موفقیت، کاهش بهای نفت و پیروزی است.
+رئیس جمهوری آمریکا پیش‌تر با حمله به منتقدان یادداشت تفاهم، نوشته بود مخالفان این تفاهم‌ یا حسودند، یا آدم‌های بدی‌اند و یا احمق‌اند.
+اظهارات ترامپ در واکنش به گزارش‌هایی مطرح شده که از احتمال تشکیل صندوقی ۳۰۰ میلیارد دلاری برای بازسازی ایران و توسعهٔ اقتصادی جمهوری اسلامی، در مراحل بعدی توافق خبر داده بودند.
+در همین راستا جی‌دی ونس، معاون رئیس ‌جمهوری آمریکا، نیز گفت صحبت دربارهٔ سرمایه‌گذاری احتمالی در ایران در شرایط کنونی «بسیار زودهنگام» است.
+
+#ترامپ #تفاهمنامه
+@DEJradio
+</div>
+
+## DEJradio — post 5803
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ آمریکا شبکهٔ مالی حزب‌الله و متحدان سیاسی آن را تحریم کرد
+
+وزارت خزانه‌داری آمریکا از اعمال دور تازه‌ای از تحریم‌ها علیه افراد و نهادهای مرتبط با حزب‌الله لبنان خبر داد.
+بر پایهٔ بیانیهٔ وزارت خزانه‌داری آمریکا، سه فرد و پنج نهاد به اتهام همکاری مالی و پشتیبانی از حزب‌الله در فهرست تحریم‌ها قرار گرفته‌اند.
+محمود قماطی، معاون رئیس شورای سیاسی حزب‌الله، از جملهٔ افرادی است که به اتهام هماهنگی انتقال منابع مالی از جمهوری اسلامی به این گروه، هدف تحریم قرار گرفته است.
+نام‌ سلیمان فرنجیه، سیاستمدار لبنانی و از متحدان نزدیک حزب‌الله نیز در این سیاههٔ تحریمی قرار دارد.
+آمریکا فرنجیه را به کارشکنی در تلاش‌های صلح و همکاری با شبکهٔ نفوذ حزب‌الله متهم کرده است.
+وزارت خزانه‌داری آمریکا اعلام کرد خلع سلاح حزب‌الله برای ثبات و رفاه لبنان ضروری است.
+واشینگتن می‌گوید به هدف‌گرفتن شبکه‌های مالی و افراد پشتیبان این گروه ادامه می‌دهد.
+حزب‌الله که توسط جمهوری اسلامی پشتیبانی می‌شود، در سیاههٔ تروریستی ایالات متحده قرار دارد.
+تحریم‌های تازه در حالی اعمال می‌شود که اختلاف‌ بر سر آیندهٔ حزب‌الله و نقش آن در لبنان، یکی از موضوعات چالش‌برانگیز در پی تفاهم‌ اخیر میان تهران و واشینگتن به‌شمار می‌رود.
+
+#حزب_الله #تحریم
+@DEJradio
+</div>
+
+## DEJradio — post 5802
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ اتحادیهٔ اروپا: اکنون وقت صحبت دربارهٔ لغو تحریم‌های جمهوری اسلامی نیست
+
+اتحادیهٔ اروپا اعلام کرد هنوز شرایطی که بشود در مورد لغو تحریم‌های جمهوری اسلامی سخن گفت، ایجاد ‌نشده است.
+کایا کالاس، مسئول سیاست خارجی اتحادیهٔ اروپا اعلام کرد «بررسی» لغو تحریم‌های اتحادیهٔ اروپا علیه جمهوری اسلامی تنها پس از دستیابی به یک توافق جامع هسته‌ای با تهران امکان‌پذیر است.
+کالاس روز پنج‌شنبه پیش از نشست سران کشورهای عضو اتحادیهٔ اروپا گفت کشورهای عضو در زمان مناسب درباره لغو احتمالی تحریم‌ها گفت‌وگو می‌کنند، اما اکنون شرایط لازم برای چنین تصمیمی فراهم نیست.
+اتحادیه اروپا در حال حاضر بیش از ۷۰۰ فرد و نهاد جمهوری اسلامی را تحت تحریم قرار داده است.
+این محدودیت‌ها مسدود شدن دارایی‌ و ممنوعیت سفر افراد را دربرمی‌گیرد.
+مقام‌های جمهوری اسلامی امیدوارند تفاهمنامهٔ اخیر با آمریکا زمینهٔ کاهش فشارهای اقتصادی و لغو بخشی از تحریم‌های بین‌المللی را فراهم کند.
+اتحادیهٔ اروپا در سال پیشین سپاه پاسداران انقلاب اسلامی را نیز در سیاههٔ سازمان‌های تروریستی قرار داد.
+
+#اتحادیه_اروپا #تحریم
+@DEJradio
+</div>
+
+## mamlekate — post 103740
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ونس: بخشی از تفاهم، مکتوب نیست چون معیار ما رفتار تهران است نه وعده‌های آنها
+
+جی‌دی ونس، معاون ر‌ییس‌جمهوری آمریکا، با اذعان به وجود تعهدات نانوشته با تهران درباره برنامه هسته‌ای و ذخایر اورانیوم، از امضای یادداشت تفاهم با تهران دفاع کرد و گفت دولت ترامپ به «کلمات» اعتماد ندارد، بلکه پایبندی جمهوری اسلامی را بر اساس «عمل» و «رفتار» آن راستی‌آزمایی می‌کند.
+
+
+📝 معاون رئیس جمهوری آمریکا: بهره‌مندی از مزایای تفاهم‌نامه به تغییر رفتار حکومت ایران بستگی دارد
+
+
+@mamlekate
+</div>
+
+## mamlekate — post 103739
+
+<div align="center">
+  <img src="telegram/content/mamlekate_103739_1781819457.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📞 رهبر خیالی انقلاب اسلامی (خرزو خان) سناریوی نخ نمای انداختن توافق گردن دیگران (اینبار پوزیده) رو تکرار کرد
+
+@mamlekate
+</div>
+
+## VahidOnline — post 76498
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76498_1781819457.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری آسوشیتدپرس گزارش داد استیو ویتکاف، فرستاده دونالد ترامپ، پنجشنبه‌شب در نشستی غیرعلنی با قانون‌گذاران آمریکایی اعلام کرده است تهران از آژانس بین‌المللی انرژی اتمی برای بازرسی از تاسیسات هسته‌ای خود دعوت خواهد کرد و روند شناسایی محل نگهداری مواد غنی‌شده را آغاز می‌کند.
+
+بر اساس این گزارش، ویتکاف به رهبران کنگره و اعضای کمیته‌های امنیت ملی گفته است تفاهم‌نامه میان آمریکا و ایران هیچ توافق جانبی نداشته است. با این حال، تهران و آژانس بین‌المللی انرژی اتمی نامه‌ای جداگانه تنظیم کرده‌اند که در آن دعوت از بازرسان آژانس و ادامه همکاری‌های نظارتی مطرح شده است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76497
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76497_1781819457.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کایا کالاس، مسئول سیاست خارجه اتحادیه اروپا، گفت هنوز برای بحث درباره لغو تحریم‌های اتحادیه اروپا علیه ایران زود است و این موضوع پس از دستیابی به یک توافق هسته‌ای با ایران بررسی خواهد شد.
+
+او پیش از نشست رهبران کشورهای عضو اتحادیه اروپا به خبرنگاران گفت: «زمانی که شرایط فراهم شود، کشورهای عضو درباره مناسب بودن لغو تحریم‌ها گفت‌وگو خواهند کرد، اما هنوز به آن مرحله نرسیده‌ایم.»
+
+اتحادیه اروپا در حال حاضر مجموعه‌ای از تحریم‌های چندجانبه علیه بیش از ۷۰۰ فرد و نهاد در ایران اعمال کرده است که شامل ممنوعیت سفر و مسدود شدن دارایی‌ها می‌شود.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 88074
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88074_1781819458.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس جمهور ترامپ: مدال افتخار کنگره رو میخواستم به خودم بدم، اما بهم گفتن که نمیتونم و چیزی پیدا نکردم که واقعا ارزشش رو داشته باشم
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 343113
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343113_1781819459.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چاک شومر، رهبر اقلیت دموکرات در سنای آمریکا، از تفاهم‌نامه میان آمریکا و جمهوری اسلامی انتقاد کرد و گفت ایالات متحده به دلیل «بی‌کفایتی، خودخواهی و ناتوانی دونالد ترامپ در گوش دادن به واقعیت‌ها» در وضعیت بدتری قرار گرفته است.
+
+شومر در پیامی اعلام کرد اگر دونالد ترامپ، رییس‌جمهوری آمریکا، قصد دارد صدها میلیارد دلار به ایران اختصاص دهد، باید این کار را با اتکا به آرای جمهوری‌خواهان انجام دهد.
+
+رهبر اقلیت دموکرات در سنا همچنین تاکید کرد که دموکرات‌ها از هیچ طرحی برای اختصاص ۳۰۰ میلیارد دلار به ایران حمایت نخواهند کرد.
+
+اظهارات شومر در حالی مطرح می‌شود که تفاهم‌نامه میان آمریکا و جمهوری اسلامی با واکنش‌های متفاوتی در میان جمهوری‌خواهان و دموکرات‌های آمریکا روبه‌رو شده و برخی منتقدان درباره پیامدهای اقتصادی و امنیتی آن ابراز نگرانی کرده‌اند.
+https://iranintl.com/202606187290
+</div>
+
+## IranIntlTV — post 343112
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343112_1781819460.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال سوئیس در دومین دیدار خود در جام جهانی ۲۰۲۶، در استادیوم سوفای لس آنجلس بوسنی و هرزگوین را با نتیجه ۴ بر یک شکست داشت. هر ۵ گل بازی در ۲۰ دقیقه پایانی بازی به ثمر رسیدند.
+
+🔹جوهان مانزامبی در دقایق ۷۴ و ۹۰، روبن وارگاس در دقیقه ۸۴ و گرانیت ژاکا در دقیقه ۷+۹۰ از روی نقطه پنالتی برای سوئیس و ماهمیچ در دقیقه ۳+۹۰ برای بوسنی و هرزگوین، گل زدند.
+
+🔹بوسنی پس از گل اول بازی، ۱۰ نفره شد. محرموویچ، بازیکن بوسنی با خطا روی امبولو، ستاره ۲۰ ساله سوئیس، اخراج شد.
+
+🔹سوئیس با این برد ۴ امتیازی شد و به صدر گروه ‌‌B مسابقات رفت.
+
+🔹دیگر دیدار این گروه را کانادا و قطر در بامداد جمعه برگزار می‌کنند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343110
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343110_1781819461.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رییس دولت، خطاب به مجتبی خامنه‌ای نوشت: «صدور اجازه شما برای آغاز مذاکره، اسباب خرسندی و رضایت همه خدمتگزاران ملت ایران است.»
+
+او افزود: «خود را متعهد به توجه حداکثری نسبت به دغدغه‌های شما، حراست از حقوق ملت ایران و جبهه مقاومت می‌دانیم.»
+
+پزشکیان ادامه داد: «با توجه حداکثری تیم مذاکره‌کننده نسبت به جزییات مذاکره، پیروزی بزرگ حاصل خواهد شد.»
+https://iranintl.com/202606182076
+</div>
+
+## FarsiVOA — post 221146
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پیام منتسب به مجتبی خامنه‌ای؛ رهبر جدید جمهوری اسلامی از قبول مسئولیت تفاهم‌ با آمریکا شانه خالی کرد
+
+▪️حساب کاربری منتسب به مجتبی خامنه‌ای، رهبر جدید جمهوری اسلامی، روز پنج‌شنبه در پیامی مسئولیت تفاهم اخیر جمهوری اسلامی با آمریکا برای پایان درگیری‌ها را به گردن مسعود پزشکیان، رئيس دولت حکومت ایران انداخت.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8162354.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221145
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221145_1781819461.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کاهش ۶۸ درصدی دسترسی کاربران ایرانی به اینستاگرام؛ گفت‌وگو با علیرضا رایگانی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221144
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پرزیدنت ترامپ: تحویل سیصد میلیارد دلار به جمهوری اسلامی «خبر جعلی» است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221143
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اسرائیل می‌گوید حزب‌الله در دو ماه گذشته با نقض آتش‌بس ۱۹ اسرائیلی را کشته است
+
+▪️حساب «اسرائیل به فارسی» در شبکه اجتماعی ایکس روز پنجشنبه ۲۸ خرداد اعلام کرد گروه تروریستی حزب‌الله از زمان اعلام آتش‌بس در ۱۶ آوریل (۲۷ فروردین)، با شلیک صدها موشک، راکت و پهپاد، ضمن نقض آتش‌بس، ۱۹ اسرائیلی را کشته است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/israel-says-19-israelis-have-been-killed-by-hezbollah-in-ceasfire-violations-over-the-last-two-months/8162347.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17500
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17500_1781819462.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب الله از آغاز سلسله عملیات های عاشورا برای عقب راندن ارتش اسرائیل از جنوب لبنان خبر دارد.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی.
+</div>
+
+## BBCPersian — post 284301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻شریعتمداری: تنگه هرمز قابل مذاکره نیست
+
+🔻حسین شریعتمداری، مدیرمسئول روزنامه کیهان، در واکنش به امضای تفاهمنامه پایان جنگ میان ایران و آمریکا، به مسعود پزشکیان سه توصیه کرده و گفته است:
+
+▪️تنگه هرمز قابل مذاکره نیست
+▪️غرامت باید پرداخت شود
+▪️آمریکا باید منطقه را ترک کند
+
+آقای شریعتمداری که اظهارات او اغلب از زاویه اصولگرایان تندرو مورد ارزیابی قرار می‌گیرد، در این گفت‌وگوی تلویزیونی همچنین خواسته که نمایندگان ایران درباره برنامه هسته‌ای کوتاه نیایند و مواضع آنها در حمایت از «محور مقاومت» و به ویژه حزب الله لبنان باشد.
+
+https://bbc.in/4erCt6o
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392537
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392537_1781819462.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیچ کس جز مانوک خدابخشیان حقیقت رو بهتون نگفت .❤️
+
+تمام افرادی که در مقابل ترامپ ایستادن خیانتکاران به ایران و ایرانی هستند .۴۷ سال دو آستری ها رژیم رو نگه داشتن و الان هم همینکارو دارن میکنند (با نقاب دموکراتیک ) ولی اینبار دونالد زبل در کاخ سفیده و نتایاهو نخست وزیر اسراییل .😎
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392536
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392536_1781819464.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلم وایرال شده از یه توریست که به هندوستان رفته و یه مشت ادم هول ریختن دورش دارن دست مالیش میکنن و باهاش عکس میندازن
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129018
+
+<div align="center">
+  <a href="telegram/content/alonews_129018_1781819466.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈در راستای اجرای بند یک توافق، حملات به لبنان ادامه دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129017
+
+<div align="center">
+  <a href="telegram/content/alonews_129017_1781819467.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس‌جمهور فرانسه امانوئل ماکرون درباره ایران:
+شما نمی‌توانید از طریق بمباران به تغییر رژیم دست یابید. آنچه من مشاهده می‌کنم این است که افرادی در اطراف رئیس‌جمهور ترامپ، هم در حوزه سیاسی و هم در منطقه، او را به پیشروی بسیار بیشتر و قوی‌تر ترغیب می‌کردند.
+
+
+🔴تغییر رژیم در درجه اول هدفی است که توسط خود مردم به دست می‌آید—حداقل این چیزی است که ما باور داریم.
+
+
+🔴در غیر این صورت، نیازمند عملیات زمینی گسترده، ماه‌ها یا سال‌ها جنگ است. به آنچه در افغانستان رخ داد نگاه کنید. آیا تغییر رژیم پس از بیش از ده سال موفق شد؟ خیر.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129016
+
+<div align="center">
+  <a href="telegram/content/alonews_129016_1781819467.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یکی رفته ویکی‌پدیا و نتیجه جنگ رو پیروزی ایران نوشته
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129015
+
+<div align="center">
+  <a href="telegram/content/alonews_129015_1781819467.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: من فقط از طرفدارهام خوشم میاد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129014
+
+<div align="center">
+  <a href="telegram/content/alonews_129014_1781819469.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور ترامپ: مدال افتخار کنگره رو میخواستم به خودم بدم، اما بهم گفتن که نمیتونم و چیزی پیدا نکردم که واقعا ارزشش رو داشته باشم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129013
+
+<div align="center">
+  <a href="telegram/content/alonews_129013_1781819471.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور ترامپ:
+پيت هگست ، اون اخيرا چند تا پيروزي خوب داشته اون قراره خيلي بيشتر از اين داشته باشه‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129012
+
+<div align="center">
+  <a href="telegram/content/alonews_129012_1781819473.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: بازار سهام به تازگی به بالاترین حد خود در تمام دوران رسیده است. حساب‌های 401K نیز به بالاترین حد خود رسیده‌اند.
+
+
+🔴و قیمت نفت مثل سنگی سقوط می‌کند. به جز این، روز دیگری در بهشت است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129011
+
+<div align="center">
+  <a href="telegram/content/alonews_129011_1781819475.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پس نتیجه میگیریم با جابجایی کلمات در اسم محصول میشه قیمت رو ۲ برابر کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/29 00:28
 ---
 
@@ -3774,8 +4405,6 @@ Rahe-sabz.com
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
