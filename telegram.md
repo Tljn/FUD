@@ -7,6 +7,587 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 01:29
+---
+
+## VahidOOnLine — post 246444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش «ان‌بی‌سی نیوز»، دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز جمعه رسما از هواپیمای جدید و مجلل «ایر فورس وان»، هدیه دولت قطر به آمریکا رونمایی کرد؛ یک «بوئینگ ۷۴۷» به ارزش تقریبی ۴۰۰ میلیون دلار. این هواپیمای لوکس با رنگ‌آمیزی جدید قرمز، سفید و سرمه‌ای تیره، قرار است در روز ۴ ژوئیه (۲۵ خردادماه) رهبری یک پرواز نمایشی بی‌سابقه بر فراز واشنگتن را به مناسبت دویست‌و‌پنجاهمین سالگرد استقلال آمریکا بر عهده داشته باشد. ترامپ با توصیف این هواپیما به عنوان «یک کاخ سفید پرنده با سطحی بی‌سابقه از لوکس بودن»، اعلام کرد که سفر بازگشت او از نشست جی۷ در فرانسه، آخرین استفاده او از ناوگان قدیمی خواهد بود.
+نیروی هوایی آمریکا در بیانیه‌ای تایید کرد که این هواپیما آماده آغاز پروازهای آزمایشی اولیه است. با وجود اینکه هواپیمای مذکور اکنون برای انجام وظایف رسمی در اختیار رئیس‌جمهوری قرار گرفته، کارشناسان هوانوردی برآورد می‌کنند که هزینه‌های ارتقای امنیتی و تجهیز آن برای دولت آمریکا ممکن است از مرز ۱ میلیارد دلار فراتر برود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246443
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246443_1781906342.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ در مصاحبه با «اکسیوس» گفت که خامنه‌ای جوان (مجتبی) با خامنه‌ای پدر متفاوت است و افزود که در ایران نوعی «تغییر رژیم» رخ داده، چرا که افراد متفاوتی روی کار آمده‌اند. رئیس‌جمهوری آمریکا با اشاره به گروه جدید حاکم در ایران گفت: «ما با افرادی روبه‌رو هستیم که نسبت به دو گروه قبلی، بسیار کمتر تندرو هستند.» او در ادامه این گفتگو با دفاع از عملکرد دولتش، اعلام کرد که برخلاف باراک اوباما، او به توان پدافندی و نیروی هوایی ایران آسیب جدی وارد کرده و علاوه بر قاسم سلیمانی، رهبران ارشد دیگری را نیز هدف قرار داده است. ترامپ افزود: «من آیت‌الله را کشتم و متاسفانه به آن یکی آیت‌الله آسیب جدی زدم. من او را ندیدم و با او صحبت نکردم، اما مردم از او صحبت می‌کردند. با این حال او شجاعت خاصی دارد چون به‌شدت مجروح شده بود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246442
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️گزیده‌ای از مهم‌ترین اخبار ایران و جهان در هفته‌ای که گذشت را در «ایران و جهان در یک دقیقه» ببینید
+
+- دونالد ترامپ و مسعود پزشکیان تفاهم‌نامه‌ پایان جنگ آمریکا و ایران را روز پنج‌شنبه ۲۸ خرداد امضا کردند. در پی این رویداد، تنگه هرمز بازگشایی و محاصره دریایی ایران برچیده شد. مجتبی خامنه‌ای رهبر جمهوری اسلامی در پیامی اعلام کرد که به دلیل اصرار پزشکیان با این تفاهم‌نامه موافقت کرده است.
+-مذاکرات ۶۰ روزه برای رسیدن به توافق جامع میان دو کشور رسما آغاز شده است.
+-در پی اظهارات تحقیر آمیز ترامپ درباره جورجیا ملونی، نخست وزیر ایتالیا، سفر وزیرخارجه این کشور به آمریکا لغو شد. ترامپ گفته بود که ملونی در اجلاس گروه ۷، التماس می‌کرد که با او عکس بگیرد. ملونی در پاسخی ویدیویی این روایت را رد کرد و به ترامپ گفت که من و ایتالیا هرگز التماس نمی‌کنیم.
+-قیمت دلار در ایران از ۱۸۰ هزار تومان به ۱۵۵ هزار تومان سقوط کرد. قیمت نفت برنت به حدود ۷۷ دلار کاهش یافت.
+-تیم ملی ایران در در جام‌جهانی ۲۰۲۶ مقابل نیوزیلند به تساوی ۲ بر ۲ رسید. دومین مسابقه ایران مقابل بلژیک در روز یکشنبه ۳۱ خرداد در لس‌آنجلس خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246441
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246441_1781906343.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در میان صفحات دست‌نویس تازه کشف‌شده‌ای از ولفگانگ آمادئوس موتزارت که در کتابخانه ملی فرانسه نگهداری می‌شود، تنها نت‌های موسیقی نیستند که توجه پژوهشگران را جلب کرده‌اند. جلد این دفتر ارزشمند با کاغذ ابروباد، یا کاغذ ابری، تزئین شده است؛ هنری که ریشه‌های آن به ایران و آسیای مرکزی بازمی‌گردد و قرن‌ها پیش از آنکه به اروپا راه پیدا کند، در کتاب‌آرایی ایرانی رواج داشت.
+برخی منابع رواج این فن را به خواجه شهاب‌الدین عبدالله مروارید، متخلص به «بیانی»، از رجال فرهنگی دوره تیموری (قرن نهم هجری قمری) نسبت می‌دهند. هرچند پژوهشگران معاصر پیدایش کاغذ ابری را حاصل سنتی گسترده‌تر در حوزه فرهنگی ایران و آسیای مرکزی می‌دانند، اما در اینکه این هنر در ایران صفوی به‌خوبی شناخته شده و در کتاب‌آرایی و خوشنویسی کاربرد داشته، تردیدی وجود ندارد.
+کاغذ ابروباد با شناور کردن رنگ‌ها بر سطح مایع و انتقال نقش‌های موج‌دار و ابری به کاغذ ساخته می‌شود و به دلیل آنکه هیچ دو نمونه‌ای کاملا مشابه نیستند، هر برگ اثری یگانه به شمار می‌رود. این هنر از ایران و آسیای مرکزی به عثمانی راه یافت و در آنجا به تکامل رسید و سپس از قرن هفدهم به اروپا رسید.
+ابری به تدریج به یکی از محبوب‌ترین پوشش‌ها برای جلد کتاب‌، آستر بدرقه (صفحه ای که کتاب را به جلد متصل می‌کند)و نسخه‌های نفیس تبدیل شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246440
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246440_1781906343.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در بوشهر در گفت‌وگو با خبرنگاران رسانه‌های ایران گفت: «جنگ پایان نیافته است و به تعهدات آمریکا اعتمادی ندارم.»
+
+او افزود: «آن‌ها دو بار در میانه مذاکرات به ما حمله کردند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246439
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246439_1781906344.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ با اشاره به تحولات بازار انرژی و ترافیک بی‌سابقه نفتکش‌ها در تنگه هرمز، اعلام کرد که اوضاع بسیار خوب پیش می‌رود. رئیس جمهوری آمریکا روز جمعه در مراسم رونمایی از هواپیمای «بوئینگ ۷۴۷» اهدایی قطر، با تمرکز بر این تحولات گفت: «کشتی‌ها به شکلی از تنگه هرمز سرازیر شده‌اند که در واقع هیچ‌کس تا به حال نظیرش را ندیده است. تعدادشان خیلی زیاد بود، حدود ۷۰۰ کشتی، و نفت در همه جا هست.» ترامپ در ادامه با پیش‌بینی تغییرات قیمت در بازار جهانی افزود: «شما شاهد خواهید بود که قیمت نفت آن‌قدر پایین می‌آید که امیدوارم شرکت‌ها از این بابت خوشحال باشند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15370
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم ملی آمریکا با برد ۲ هیچ برابر استرالیا به عنوان دومین تیم پر قدرت به مرحله حذفی جام جهانی ۲۰۲۶ صعود کرد!
+@withyashar
+</div>
+
+## WithYashar — post 15369
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15369_1781906346.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الان درگیری‌های سنگین بین نیروهای اسرائیل و حزب‌الله تو لُبنان
+@withyashar
+</div>
+
+## WithYashar — post 15368
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15368_1781906348.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاور لایو
+@withyashar
+</div>
+
+## WithYashar — post 15367
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://www.instagram.com/reel/DZyFKZXCHfl/?igsh=anMxYmI2ZnUzdHpy
+
+لایو سیو شد
+</div>
+
+## mwarmonitor — post 11242
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹مجری فاکس نیوز:
+«اکنون مارک لوین، مجری برنامه "زندگی، آزادی و لوین" به ما می‌پیوندد. مارک، خیلی عالیه که امروز همراه ما هستی.»
+🔸مارک لوین :
+«خب، واقعیت امر این است که این رژیم مرده است. مسئله این است که آیا ما اجازه می‌دهیم زنده بماند؟ آیا اجازه می‌دهیم جان دوباره‌ای به آن دمیده شود؟ و به همین دلیل است که این مذاکرات حیاتی هستند. من با تقریباً تمام صحبت‌های ژنرال کلاگ موافقم. آن‌ها مرده‌های متحرک هستند.»
+«حالا، آیا ما قرار است آن‌ها را احیا کنیم یا نه؟ تا جایی که به تنگه‌ها مربوط می‌شود، آنجا آب‌های بین‌المللی است. آن‌ها حق ندارند آن را کنترل کنند. هشت کشور در خط ساحلی آن منطقه قابل کشتیرانی قرار دارند. کی گفته ایران حق دارد درباره آنچه در آنجا می‌گذرد تصمیم‌گیری کند؟»
+«آن‌ها باید سر جای خودشان نشانده شوند. از نظر من—من رئیس‌جمهور نیستم، پس فقط دارم پیش‌بینی و تصویرسازی می‌کنم—من می‌گفتم: این ۱۲ بند من است، یا تسلیم می‌شوید یا یک یا دو هفته دیگر شما را خواهیم دید (با شما حساب تسویه می‌کنیم).»
+«این حکومت باید برود. این یک حکومت غیرمشروع است، مردم خودش را قتل‌عام می‌کند. این حکومتی برخاسته از مردم نیست...»
+🔹مجری میان حرف او می‌پرد:
+«...اما در حال حاضر همان افراد سابق در رأس کار هستند، درست است؟ منظورم این است که ما شاهد تغییر رژیم نبوده‌ایم. همان آدم‌ها در رأس قدرتند، درست می‌گویم؟»
+🔸مارک لوین :
+«خب، برداشت من از این موضوع این است: واقعیت امر این است که ما با این رژیم وارد جنگ شدیم و این رژیم شکست خورد. ما با مردم ایران وارد جنگ نشدیم. این‌ها دو مقوله کاملاً جدا از هم هستند.»
+«دقیقاً. ما به دنبال یک پروژه دموکراسی‌سازی نیستیم، مردم آمریکا پروژه دموکراسی‌سازی نمی‌خواهند. خب که چی؟ ما این رژیم را برمی‌داریم (سرنگون می‌کنیم)، یک حکومت موقت روی کار می‌آوریم و خودشان می‌توانند بفهمند که می‌خواهند چه کار کنند؛ چه دموکراسی بخواهند، چه پادشاه بخواهند، چه شاهزاده یا ملکه. می‌دانید، کل آن منطقه پر از دیکتاتورها و پادشاهان است. اگر این همان چیزی است که آن‌ها می‌خواهند، عالی است.»
+«ما آن رژیم را برمی‌داریم چون دشمن ماست. ما آن رژیم را برمی‌داریم چون مردم ما را کشته است. ما آن رژیم را برمی‌داریم چون سلاح هسته‌ای می‌خواستند. و اگر این رژیم به شکلی باقی بماند، می‌دانید، مثل دستگاه علف‌زن است؛ علف‌های هرز رشد می‌کنند و مدام بالا می‌آیند. شما ممکن است در مرحله بعدی رویه آن را بزنید، اما علف‌های هرز به رشد خود ادامه می‌دهند؛ و اگر ما به ریشه این علف‌های هرز نزنیم، آن‌ها همچنان به رشد خود ادامه خواهند داد.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11241
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11241_1781906348.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## mwarmonitor — post 11240
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11240_1781906350.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هشدار هواشناسی: موج بی‌سابقه و رکوردشکن گرما در راه اروپا
+
+هشدار به آژانس‌های هواشناسی | ۲۳ ژوئن ۲۰۲۶
+
+🔸بررسی آخرین نقشه‌های پیش‌بینی مدل اروپایی ECMWF نشان می‌دهد که قاره اروپا در آستانه یکی از شدیدترین و بی‌سابقه‌ترین موج‌های گرمای خود قرار گرفته است.
+
+طبق این داده‌ها، یک توده هوای به‌شدت داغ و متراکم (آنومالی مثبت دمایی) کشورهای غرب و مرکز اروپا از جمله فرانسه، اسپانیا، آلمان، بریتانیا و ایتالیا را به‌طور کامل در بر خواهد گرفت.
+
+شاخص‌های هواشناسی در تراز ۸۵۰ هکتوپاسکال حاکی از جهش بی‌سابقه دما تا بیش از ۱۰ الی ۱۵ درجه سانتی‌گراد فراتر از میانگین بلندمدت (۱۹۹۱-۲۰۲۰) است که در سطح زمین می‌تواند رکوردهای دمایی جدیدی را ثبت کند.
+
+هم‌زمان، بخش‌هایی از قطب شمال و خاورمیانه نیز با افزایش ملموس دما روبرو هستند. کارشناسان نسبت به پیامدهای این ابرموج گرما بر سلامت عمومی، افزایش مصرف انرژی و تشدید خطر آتش‌سوزی جنگل‌ها در روزهای آینده هشدار جدی داده‌اند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روبیو قصد دارد هفته آینده به خاورمیانه سفر کند؛ این سفر شامل کویت، امارات متحده عربی و بحرین خواهد بود — اکسیوس
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343181
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Team USA is through to the knockout stage.
+
+The United States secured its place in the next round of the World Cup with a 2-0 victory over Australia in Seattle on Friday, improving to 2-0 through its first two matches of the tournament.
+
+The Americans have now clinched advancement with a game still left to play in the group stage.
+
+It's the first time since the inaugural World Cup in 1930 that the United States has won back-to-back World Cup games.
+</div>
+
+## FoxNewsTwitter — post 343180
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343180_1781906351.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"This will be a flyover on July 4th I think I can say the likes of which we've never seen before."
+
+President Trump says America's 250th anniversary celebration on July 4th will feature a massive military flyover over the U.S. Capitol and White House, led by the newly refurbished Air Force One.
+
+Trump said the event will include F-22s, F-35s and other military aircraft, adding that military pilots are "all fighting to do it."
+
+"We're gonna have a lot of planes flying over the Capitol and over the White House," Trump said.
+</div>
+
+## FoxNewsTwitter — post 343179
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: U.S. men's soccer team advances to next round of the World Cup.
+</div>
+
+## pm_afshaa — post 94426
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94426_1781906353.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیویی وایرال‌شده از یک کاربر خارجی که میگه پزشکیان یکی از احمق‌ترین سیاستمدارایی‌ هست که دیده؛ تمام عباراتی که آمریکا در این تفاهم‌نامه به کار برده، صرفاً بازی با کلمات بوده و وعده‌های مطرح‌شده عملا چیزی جز دنبال نخودسیاه فرستادن طرف مقابل نیست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94425
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94425_1781906355.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: اگه ایران در نهایت توافق نکنه، اتفاقاتی میفته که اونا رو خوشحال نمیکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 343299
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343299_1781906355.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادگاهی در قم، پرستو احمدی و هشت تن از نوازندگان و عوامل «کنسرت کاروانسرا» را هر یک به ۷۴ ضربه شلاق، دو سال ممنوعیت خروج از کشور و دو سال محرومیت از فعالیت هنری محکوم کرده است.
+
+آرین ریسباف گزارش می‌دهد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 343298
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343298_1781906356.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادگاهی در قم، پرستو احمدی و هشت تن از نوازندگان و عوامل «کنسرت کاروانسرا» را هر یک به ۷۴ ضربه شلاق، دو سال ممنوعیت خروج از کشور و دو سال محرومیت از فعالیت هنری محکوم کرده است.
+
+آرین ریسباف گزارش می‌دهد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 343297
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343297_1781906358.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: «ایران ۶۰ روز فرصت دارد به یک آتش‌بس پایدار برسد. اگر به توافق نرسند، اقداماتی انجام خواهیم داد که قطعاً از آن خوششان نخواهد آمد.»
+
+او افزود: «حتی در صورت امضای توافق، بازگشت کامل نفتکش‌ها به تنگه هرمز زمان‌بر خواهد بود، زیرا شرکت‌های کشتیرانی تا رفع خطرهای امنیتی برای عبور از این مسیر تردید خواهند داشت.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343296
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343296_1781906359.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فدراسیون فوتبال ایران در پی محدودیت‌های اعمال‌شده برای سفر تیم ملی به آمریکا در جام جهانی ۲۰۲۶، رسما به فیفا شکایت کرد.
+
+بر اساس این محدودیت‌ها، تیم ملی ایران تنها یک روز پیش از مسابقه اجازه ورود به آمریکا را دارد و باید بلافاصله پس از بازی خاک این کشور را ترک کند.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 343295
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343295_1781906361.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال آمریکا در دومین دیدار خود در جام جهانی ۲۰۲۶ که در استادیوم سیاتل برگزار شد، استرالیا را با نتیجه ۲ بر صفر شکست داد و با ۶ امتیاز به مرحله یک شانزدهم نهایی مسابقات صعود کرد.
+
+🔹کمرون برجس (گل به خودی) در دقیقه ۱۱ و الکس فریمن در دقیقه ۴۳ گل‌های بازی را به ثمر رساندند.
+
+🔹نکته اینکه نخستین گل آمریکا در این جام که به پاراگوئه زده شد هم، گل به خودی بود.
+
+🔹آمریکا در بازی نخست خود در گروه D جام جهانی، پاراگوئه را با نتیجه ۴ بر یک شکست داده بود.
+
+🔹ترکیه و پاراگوئه بامداد شنبه، دیگر بازی این گروه را برگزار می‌کنند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343294
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343294_1781906361.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حاشیه مراسم خاکسپاری مرجان ساتراپی، فیلمساز و هنرمند ایرانی، در گورستان پرلاشز پاریس، سرور کسمایی، نویسنده و مترجم، به ساجده شریفی، خبرنگار ایران‌اینترنشنال، گفت: «مرجان ساتراپی، مانند عباس کیارستمی، توانست با آثارش توجه جهان را به ایران جلب کند.»
+
+او افزود: «ساتراپی با تمرکز بر زندگی و با زبانی ساده و انسانی، به قلب مخاطبان در سراسر جهان راه یافت و تصویری متفاوت از روایت جمهوری اسلامی از ایران ارائه کرد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343293
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343293_1781906363.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در بوشهر در گفت‌وگو با خبرنگاران رسانه‌های ایران گفت: «جنگ پایان نیافته است و به تعهدات آمریکا اعتمادی ندارم.»
+
+او افزود: «آن‌ها دو بار در میانه مذاکرات به ما حمله کردند.»
+https://iranintl.com/202606194068
+</div>
+
+## Shin_Persian — post 7139
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_7139_1781906363.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Canadian OSINT ✓ @Canadian_OSINT
+Fri, 19 Jun 2026 20:36:17 UTC
+
+2 more tankers spotted.. another from the UK RCH254 (20-46083) pretty sure this tail number was operating in the region last week as well..
+
+16-46021 did not land at PSAB
+
+57-1479 is departing Tel Aviv.
+
+Boeing KC-46A Pegasus 2x
+
+RCH238 - 16-46021
+RCH254 - 20-46083
+
+Boeing KC-135R Stratotanker 1x
+
+NA - 57-1479
+
+ترجمه خودکار فارسی
+
+۲ تانکر سوخت‌رسان دیگر رویت شدند.. یکی دیگر از بریتانیا RCH254 (20-46083) کاملاً مطمئنم که این شماره دم هفته گذشته نیز در منطقه در حال عملیات بود..
+
+۱۶-۴۶۰۲۱ در پایگاه هوایی شاهزاده سلطان (PSAB) فرود نیامد.
+
+۵۷-۱۴۷۹ در حال ترک تل‌آویو است.
+
+بوئینگ KC-46A Pegasus ۲ فروند
+
+RCH238 - 16-46021
+RCH254 - 20-46083
+
+بوئینگ KC-135R Stratotanker ۱ فروند
+
+NA - 57-1479
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 7137
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Canadian OSINT ✓ @Canadian_OSINT
+Fri, 19 Jun 2026 20:13:06 UTC
+
+10 tankers and an E-3B are operating over the ME right now. 16-46021 is landing at PSAB after a trip from Prestwick. Almost positive that tail number was in the ME before though..?
+
+58-0059 is pictured in the 2nd photo over the UAE but not highlighted.
+
+Boeing KC-46A Pegasus 1x
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+ترجمه خودکار فارسی
+
+در حال حاضر ۱۰ تانکر سوخت‌رسان و یک فروند E-3B در منطقه خاورمیانه در حال عملیات هستند. هواپیمای ۱۶-۴۶۰۲۱ پس از پروازی از پرستویک (Prestwick) در حال فرود در پایگاه هوایی شاهزاده سلطان (PSAB) است. تقریباً مطمئنم که این شماره دم قبلاً هم در خاورمیانه بوده است..؟
+
+هواپیمای ۵۸-۰۰۵۹ در عکس دوم بر فراز امارات متحده عربی دیده می‌شود اما هایلایت نشده است.
+
+Boeing KC-46A Pegasus 1x
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 221241
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سازمان حقوق بشر ایران از اجرای حکم اعدام دست‌کم ۱۰ زندانی در زندان قزل‌حصار کرج طی روزهای ۲۳ و ۲۵ خرداد ۱۴۰۵ خبر داده است؛ احکامی که به گفته این گزارش، شامل پرونده‌های قتل و مواد مخدر و در برخی موارد بدون اطلاع قبلی خانواده‌ها اجرا شده‌اند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221240
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پرزیدنت ترامپ از بارگشایی تنگه هرمز ابراز خرسندی کرد و مخالفین تفاهمنامه را احمق خواند
+@FarsiVOA
+</div>
+
+## IranianMinds — post 22978
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22978_1781906364.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مداح، پزشکیانو تهدید کرد. @IranianMinds
+</div>
+
+## IranianMinds — post 22977
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_22977_1781906364.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان لایک کامنت ساب فراموش نشه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 22976
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_22976_1781906365.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مداح، پزشکیانو تهدید کرد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻واکنش‌ها به پیام منتسب به مجتبی خامنه‌ای به برخی هیئت‌های عزاداری نزدیک به جریان‌های تندرو نیز کشیده شده است.
+
+پیشتر در این پیام رهبر جمهوری اسلامی ایران آمده بود که نظرش درباره توافق با آمریکا «چیز دیگری بوده ولی پس از آن‌که مسعود پزشکیان مسئولیت آن را پذیرفت، اجازه امضای آن را داده است.»
+
+در این ویدئو محمدعلی بخشی، یک مداح در شهرری تهران می‌گوید: «آقای رئیس‌جمهور اگر شروط رهبری محقق نشه، ما می‌دانیم و تیغ و حلقوم شما. پدرت رو درمیاریم!»
+
+آقای پزشکیان در باره پیام منتسب به خامنه‌ای گفت که او به عنوان رئیس جمهور و رئیس شورای امنیت ملی به همراه سایر اعضای آن شورا «خود را متعهد به توجه حداکثری نسبت به دغدغه‌های معظم‌له و حراست از حقوق ملت ایران و جبهه مقاومت» می‌دانند.
+
+محمدباقر قالیباف، رئیس مجلس و همچنین رئیس هیئت ایران در مذاکرات با آمریکا، هم در واکنش به این پیام در شبکه اجتماعی ایکس نوشت که از سوی رهبر موظف به پیگیری تحقق شروط و بندهای تفاهم‌ شده و «گوش به فرمان» اوست.
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392611
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392611_1781906366.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایشون "رالف لینکلن" ، نسل یازدهم "آبراهام لینکلن" هست. چه شباهتی!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392610
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392610_1781906366.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آدم وقتی اینا رو می‌بینه و می‌شنوه خجالت می‌کشه به فوتبال ایران بگه «فوتبال حرفه‌ای»، واقعاً احساس مسخره‌ایه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392609
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392609_1781906368.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گزارشات منتشر شده؛ قراره مجتبی خامنه‌ای بصورت هولوگرامی نماز میت پدرشو بخونه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392608
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392608_1781906369.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این تجمع تو نیویورک چرا همه چیش انقد عجیبه، یه نفر اون وسط جوراب یه دخترو درآورده و پاهاشو تا حلقش می‌کنه دهنش :))
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129266
+
+<div align="center">
+  <a href="telegram/content/alonews_129266_1781906369.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی :
+دشمن اگه غلطی کرد باید تنگه رو ببندیم
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129265
+
+<div align="center">
+  <img src="telegram/content/alonews_129265_1781906370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم ملی آمریکا هم به عنوان دومین تیم به مرحله حذفی جام جهانی ۲۰۲۶ صعود کرد!
+
+آمریکا 2_ استرالیا 0
+
+@AloSport
+</div>
+
+## alonews — post 129263
+
+<div align="center">
+  <a href="telegram/content/alonews_129263_1781906370.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون درگیری‌های سنگین بین نیروهای اسرائیل و حزب‌الله تو لُبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129262
+
+<div align="center">
+  <a href="telegram/content/alonews_129262_1781906372.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مداح دوزاری، پزشکیان را تهدید کرد
+
+
+🔴پ.ن: مداح‌های بیسواد و کودن چندسالی هست که تو تمام مسائل اعم از سیاسی، اقتصادی و اجتماعی نظر میدهند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 00:23
 ---
 
