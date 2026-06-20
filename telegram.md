@@ -7,6 +7,2420 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/30 19:12
+---
+
+## VahidOOnLine — post 246545
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246545_1781970146.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ جورجیا ملونی، نخست‌وزیر ایتالیا، با انتشار بیانیه‌ای تند در صفحه اینستاگرام خود، به هجمه‌های اخیر دونالد ترامپ پاسخ داد و حملات کلامی رئیس‌جمهوری آمریکا را «بی‌دلیل و بی‌معنی» خواند.
+
+ملونی در این پیام خطاب به ترامپ نوشت: «محبوبیت من به هیچ‌وجه به رابطه با شما بستگی ندارد و دوستی با شما نیز کمکی به آن نکرده است. محبوبیت من حاصل توانایی‌ام در دفاع از منافع ملی ایتالیاست؛ یعنی همان کاری که همواره انجام داده‌ام.»
+
+نخست‌وزیر ایتالیا همچنین با دفاع از تصمیم خود در جریان جنگ اخیر و عدم اجازه به آمریکا برای استفاده از پایگاه‌های نظامی این کشور، افزود: «نحوه استفاده از پایگاه‌های نظامی آمریکا در خاک ما، تابع توافق‌نامه‌های متقابلی است که ما همیشه به آن‌ها احترام گذاشته‌ایم. تا زمانی که من نخست‌وزیر هستم، این توافقات نباید نقض شوند؛ چرا که ایتالیا یک کشور مستقل و دارای حق حاکمیت باقی می‌ماند.»
+
+ملونی در پایان نوشت: «در هر صورت، میزان محبوبیت من اصلا به شما مربوط نیست. پیشنهاد می‌کنم شما روی محبوبیت خودتان تمرکز کنید.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246544
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246544_1781970147.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ فرماندهی مرکزی آمریکا (سنتکام)، روز شنبه ۳۰ خرداد با انتشار بیانیه‌ای اعلام کرد که میزان تردد کشتی‌های تجاری در تنگه هرمز افزایش یافته است و نیروهای آمریکایی به منظور حمایت از آزادی کشتیرانی، به حضور و عملیات خود در این منطقه ادامه می‌دهند.
+
+بر اساس این بیانیه، امنیت گذرگاه بین‌المللی هرمز امروز نیز برقرار بوده و ۵۵ کشتی تجاری موفق به عبور از آن شده‌اند. این شناورها حجم عظیمی از کالا و بیش از ۱۷ میلیون بشکه نفت را به بازارهای جهانی منتقل کردند.
+
+سنتکام با اشاره به اطلاعیه این هفته «مرکز مشترک اطلاعات دریایی»، بر عبور امن تمام شناورها از مسیرهای تعیین‌شده—بدون وجود هرگونه ادعا، موانع یا الزامات خودسرانه—تاکید کرد. در پایان این بیانیه آمده است که نیروهای آمریکایی به منظور تضمین پایبندی کامل، رعایت و اجرای تمام مفاد تفاهم‌نامه با ایران، در منطقه حاضر و هوشیار باقی خواهند ماند.
+
+این بیانیه ساعاتی پس از آن صادر شد که سپاه پاسداران و ارتش جمهوری اسلامی، اعلام کردند در واکنش به آن‌چه «نقض تعهدات از سوی آمریکا» خوانده شد، تنگه هرمز را مسدود کرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246543
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246543_1781970148.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام اعلام کرد نیروهای آمریکایی همچنان در منطقه حضور دارند و با هوشیاری کامل فعالیت می‌کنند تا اطمینان حاصل شود همه مفاد توافق با جمهوری اسلامی اجرا می‌شود.
+
+سنتکام اعلام کرد که روز شنبه عبور ایمن از تنگه هرمز برقرار بود و ۵۵ کشتی که مقادیر زیادی بار و بیش از ۱۷ میلیون بشکه نفت را به بازارهای جهانی منتقل می‌کردند، از این آبراه تردد کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246542
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246542_1781970148.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسالی یک شهروند ایرانی در بریتانیا نصب تصاویر جاویدنامان انقلاب ایران در بخش از این شهر را نشان می‌دهد. فرستند ویدیو می‌گوید یاد این جاویدنامان و خانواده‌های آن‌ها فراموش نخواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246541
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246541_1781970152.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ شبکه خبری سی‌ان‌ان به نقل از یک مقام آمریکایی اعلام کرد که جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، امروز، شنبه ۳۰ خرداد به‌منظور آغاز مقدمات مذاکرات با جمهوری اسلامی ایران، راهی سوئیس می‌شود. این در حالی است که استیو ویتکاف، فرستاده ویژه آمریکا و جرد کوشنر، داماد ترامپ، از قبل برای حل چالش‌های فنی ناشی از درگیری‌های اخیر در لبنان، در سوئیس مستقر شده‌اند.
+
+ونس در گفتگو با فاکس‌نیوز با «رقص هماهنگی ظریف دیپلماتیک» خواندن این سفر تاکید کرد: «به محض ورود مقامات ارشد دولت ایران و همچنین میانجی‌گران قطری و پاکستانی، برنامه اصلی گفتگوها را تنظیم می‌کنیم که احتمالا فردا (یکشنبه) آغاز خواهد شد.»
+
+هم‌زمان، خبرگزاری «خانه ملت» گزارش داد که هیئت بلندپایه جمهوری اسلامی ایران به ریاست محمدباقر قالیباف و همراهی عباس عراقچی، عبدالناصر همتی، علی باقری‌کنی و معاونان وزرای خارجه و نفت، تهران را به مقصد سوئیس ترک کرده است. وزارت خارجه پاکستان نیز تایید کرد که هیئت‌هایی از اسلام‌آباد و دوحه، روز یکشنبه در بورگن‌اشتوک سوئیس حضور خواهند داشت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246540
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246540_1781970152.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های اسرائیل خبر دادند که بنیامین نتانیاهو، نخست وزیر این کشور، دستور اجرای آتش‌بس در لبنان را صادر کرد، اما ارتش همچنان از مناطق تصرف‌شده عقب‌نشینی نخواهد کرد.
+
+پیش‌تر نیروی دریایی سپاه پاسداران اعلام کرده بود به دلیل تداوم حملات اسرائیل به جنوب لبنان، تنگه هرمز بسته شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246539
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246539_1781970153.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران گزارش دادند که هیات مذاکره‌کننده جمهوری اسلامی به ریاست محمدباقر قالیباف و با حضور عباس عراقچی، عازم سوئیس شده است.
+
+بر اساس این گزارش، عبدالناصر همتی، رییس کل بانک مرکزی و علی باقری کنی، معاون بین‌الملل دبیرخانه شورای عالی امنیت ملی نیز در این سفر حضور خواهند داشت.
+
+همچنین کاظم غریب‌آبادی، معاون و اسماعیل بقائی، سخنگوری وزارت خارجه و حمید بورد، معاون وزیر نفت نیز این افراد را همراهی می‌کنند.
+
+پیش‌تر وزارت خارجه پاستان اعلام کرد که مذاکرات فنی میان جمهوری اسلامی و آمریکا، یکشنبه در سوئیس آغاز خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246538
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246538_1781970154.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ خبرگزاری رسمی مجلس شورای اسلامی، خانه ملت، روز شنبه ۳۰ خرداد گزارش داد که هیئت مذاکره‌کننده جمهوری اسلامی ایران، تهران را به مقصد سوئیس ترک کرده است. بر اساس این گزارش، محمدباقر قالیباف، رئیس مجلس شورای اسلامی، عباس عراقچی، وزیر امور خارجه، علی باقری کنی، معاون بین‌الملل دبیرخانه شورای عالی امنیت ملی، عبدالناصر همتی، رئیس بانک مرکزی، کاظم غریب‌آبادی، معاون وزیر خارجه، اسماعیل بقایی، سخنگوی وزیر خارجه و حمید بورد، معاون وزیر نفت از اعضای اصلی هیئت اعزامی هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246537
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246537_1781970155.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یک هواپیمای شرکت هواپیمایی مهر روز شنبه ۳۰ خردادماه در مسیر شیراز به تهران، هنگام فرود در فرودگاه مهرآباد از باند خارج شد و در حاشیه باند متوقف شد.
+بر اساس گزارش‌ها، این حادثه منجر به وارد شدن خسارت به هواپیما و بخشی از تأسیسات فرودگاه شده است، اما تلفات جانی یا مصدومی در پی نداشته است.
+جزئیات بیشتر درباره علت وقوع این حادثه و میزان خسارت‌ها هنوز اعلام نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246536
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246536_1781970155.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میثم ظهوریان، نماینده مشهد در مجلس، با اشاره به سفر هیات مذاکره‌کننده جمهوری اسلامی به سوئیس، در شبکه ایکس نوشت: «در حالی که بندهای ۱ و ۱۰ متن تفاهم‌نامه با آمریکا، مطلقا اجرا نشده است، شهوت وزارت خارجه برای شروع مذاکرات عجیب است.»
+
+شایان ذکر است که بند یک تفاهم‌نامه به پایان عملیات نظامی در همه جبهه‌ها، از جمله لبنان اشاره داشته و بند ۱۰ نیز در رابطه با صدور مجوز از سوی ایالات متحده، برای صادرات نفت فرآورده‌های نفتی ایران است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246535
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246535_1781970156.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فهد الدوسری، سفیر جدید عربستان سعودی در لبنان، وارد بندر بیروت شده تا در مراسم آغاز نخستین محموله صادراتی لبنان به مقصد بندر جده حضور پیدا کند.
+این رویداد پس از لغو ممنوعیت واردات کالاهای لبنانی به عربستان انجام شده؛ محدودیتی که در سال‌های اخیر بر روابط تجاری دو کشور تأثیر گذاشته بود.
+بر اساس گزارش‌ها، ارسال این محموله کانتینری به عربستان، گامی مهم در مسیر ازسرگیری روابط اقتصادی و تجاری میان بیروت و ریاض تلقی می‌شود. حضور سفیر جدید عربستان در این مراسم نیز نشانه‌ای از تلاش دو کشور برای بهبود و تقویت روابط دوجانبه عنوان شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246534
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246534_1781970158.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاکستان اعلام کرد که نمایندگان آمریکا و جمهوری اسلامی به همراه میانجی‌گران پاکستان و قطر در گفت‌وگوهای یکشنبه در سوئیس شرکت خواهند کرد.
+
+عصر شنبه خبرگزاری دولتی ایرنا گزارش داد که هیات مذاکره‌کننده جمهوری اسلامی عازم سوئیس شده است.
+
+پیش‌تر اسماعیل بقائی، سخنگوی وزارت خارجه گفته بود که سفر هیات مذاکره‌کننده جمهوری اسلامی به سوئیس، به معنای آغاز مرحله دوم مذاکرات نیست و با هدف مطالبه‌گری و پیگیری اجرای تعهدات طرف مقابل انجام می‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246533
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246533_1781970159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی نیروی دریایی سپاه پاسداران اعلام کرد تنگه هرمز در واکنش به «نقض تعهدات آمریکا در اجرای آتش‌بس» و «حملات اسرائیل در لبنان»، به روی همه شناورها بسته شده است.
+
+نیروی دریایی سپاه همچنین از شناورها خواست به تنگه هرمز نزدیک نشوند و هشدار داد در غیر این صورت امنیت آن‌ها به خطر خواهد افتاد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246532
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246532_1781970160.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، روز شنبه ۳۰ خرداد در گفتگو با فاکس‌نیوز اعلام کرد که استیو ویتکاف، فرستاده ویژه ترامپ و جرد کوشنر، داماد او، «چند ساعتی است» که در سوئیس حضور دارند و مشغول بررسی «برخی از ابعاد فنی این مذاکرات» با ایران هستند. به گفته ونس، کوشنر و ویتکاف در گزارش‌های خود تاکید کرده‌اند که «امور به خوبی پیش می‌رود.»
+
+ونس همچنین از احتمال ورود میانجی‌های قطری و پاکستانی به سوئیس برای پیوستن به این گفتگوها خبر داد و افزود: «قطری‌ها و پاکستانی‌ها می‌خواهند مطمئن شوند که ما این کار را به شیوه درست انجام می‌دهیم، بنابراین من تلاش می‌کنم به این روند احترام بگذارم.»
+
+معاون ترامپ که سفر خود به سوئیس را در اواخر پنج‌شنبه شب به تعویق انداخته بود، بار دیگر تاکید کرد که انتظار دارد طی دو روز آینده عازم این کشور شود. او با این حال خاطرنشان کرد که هماهنگی‌های این سفر «همواره یک رقص هماهنگی ظریف دیپلماتیک است.» این مذاکرات که پیش‌تر قرار بود روز جمعه برگزار شود، پس از وقفه‌ای کوتاه دوباره در آستانه ازسرگیری است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246531
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246531_1781970161.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران به نقل از یک منبع نظامی در نیروی دریایی سپاه، عصر شنبه اعلام کرد که تنگه هرمز از دقایقی پیش به‌طور کامل بسته شده است.
+
+پیش‌تر قرارگاه مرکزی خاتم‌الانبیا اعلام کرده بود که به دلیل ادامه حملات اسرائیل به جنوب لبنان، تنگه هرمز بسته خواهد شد.
+
+این در حالی است که اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، از سفر هیات مذاکره‌کننده به سوئیس خبر داد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246530
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246530_1781970161.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی ایران، از سفر قریب‌الوقوع هیئت دیپلماتیک به سوئیس خبر داد و تاکید کرد که هدف از این سفر، «مطالبه‌گری و مشخص شدن نحوه اجرای تعهدات طرف مقابل» است.
+
+بقایی با اشاره به رویکرد «تعهد در برابر تعهد» هشدار داد: «اگر بخشی از تعهدات طرف مقابل اجرا نشود، کلیت تفاهم‌نامه دچار مشکل خواهد شد. ما توافقی را امضا نکرده‌ایم که اجرا نشود.» او بند اول این یادداشت تفاهم را مهم‌ترین بند آن دانست و تصریح کرد که آمریکا به تعهد خود برای وادار کردن اسرائیل به توقف حملات به لبنان عمل نکرده است.
+
+سخنگوی وزارت خارجه هم‌چنین با تاکید بر اینکه واشنگتن باید فرآیند اجرای تعهدات خود را تسریع کند، افزود: «طرف مقابل باید هرچه سریع‌تر تدابیر لازم را به کار بگیرد؛ در غیر این صورت، این روند با مشکل جدی مواجه خواهد شد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246529
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246529_1781970162.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، تایید کرد که هیات مذاکره‌کننده جمهوری اسلامی به سوئیس سفر خواهد کرد.
+
+بقائی افزود: «این سفر با هدف مطالبه‌گری و پیگیری اجرای تعهدات طرف مقابل انجام می‌شود، چرا که معیار اصلی سنجش هر توافقی، مرحله اجرای آن است.»
+
+او اضافه کرد که آمریکا موظف است اسرائیل را به توقف حمله به لبنان وادار کند و اگر آمریکا از اجرای تعهداتش سرباز بزند، با تدابیر لازم پاسخ خواهیم داد.
+
+سخنگوی وزارت خارجه جمهوری اسلامی افزود: «اگر بخشی از تعهدات طرف مقابل اجرا نشود کلیت تفاهم دچار مشکل می‌شود.
+
+بقائی ادامه داد: «ما تعهد را امضا نکردیم که اجرا نشود؛ رویکرد ما تعهد در برابر تعهد است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246528
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246528_1781970163.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی زینی‌وند، سخنگوی وزارت کشور، شنبه ۳۰ خرداد در یک نشست خبری گفت کشور همچنان در «میانه جنگ» قرار دارد. او تاکید کرد: «مردم نباید تصور کنند با امضای یادداشت تفاهم میان جمهوری اسلامی و آمریکا همه مشکلات برطرف شده است.»
+
+زینی‌وند در واکنش به انتقادها درباره بحران اقتصادی و افزایش قیمت‌ها گفت: «دولت باید پاسخگو باشد، ولی پیچ انصاف‌تان را تنظیم کنید و عملکرد دولت را از روز تحلیف تاکنون بررسی کنید.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246527
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246527_1781970164.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یائیر لاپید، رهبر اپوزیسیون اسرائیل، روز شنبه ۳۰ خردادماه ، با انتقاد از عملکرد نتانیاهو، از آنچه «فهرست ۱۳ شکست» او خواند، سخن گفت.
+لاپید گفت نتانیاهو طرحی را به آمریکا ارائه کرده که وعده سقوط حکومت ایران را می‌داد، اما به گفته او، «ریسک‌ها، پیامدهای منطقه‌ای و تأثیرات اقتصادی» آن به‌درستی برای افکار عمومی تشریح نشده بود.
+او همچنین گفت نتانیاهو «نمی‌دانست چگونه این هدف را عملی کند» و پس از ناکامی در تحقق این طرح، در میانه جنگ اعتماد داخلی را از دست داده است.
+لاپید با اشاره به مواضع اخیر ترامپ درباره تعویق حملات، این موضوع را نشانه‌ای از سردرگمی در تصمیم‌گیری دانست و از سیاست‌های او در قبال ایران و منطقه انتقاد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246526
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246526_1781970166.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یائیر لاپید، رهبر اپوزیسیون اسرائیل، روز شنبه ۳۰ خردادماه ، با انتقاد از عملکرد نتانیاهو، از آنچه «فهرست ۱۳ شکست» او خواند، سخن گفت.
+لاپید گفت نتانیاهو طرحی را به آمریکا ارائه کرده که وعده سقوط حکومت ایران را می‌داد، اما به گفته او، «ریسک‌ها، پیامدهای منطقه‌ای و تأثیرات اقتصادی» آن به‌درستی برای افکار عمومی تشریح نشده بود.
+او همچنین گفت نتانیاهو «نمی‌دانست چگونه این هدف را عملی کند» و پس از ناکامی در تحقق این طرح، در میانه جنگ اعتماد داخلی را از دست داده است.
+لاپید با اشاره به مواضع اخیر ترامپ درباره تعویق حملات، این موضوع را نشانه‌ای از سردرگمی در تصمیم‌گیری دانست و از سیاست‌های او در قبال ایران و منطقه انتقاد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15425
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15425_1781970167.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترکیه اولین تیمی شد که از جام جهانی حذف شد.
+@withyashar
+</div>
+
+## WithYashar — post 15424
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون جی دی ونس به فاکس نیوز :
+ما هیچ مدرکی مبنی بر اینکه ایرانی‌ها هنوز تنگه هرمز را می‌بندند، نمی‌بینیم.
+@withyashar
+</div>
+
+## WithYashar — post 15423
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی تیم مذاکره‌کننده: طبق بند ۱۳ یادداشت تفاهم، آغاز مذاکرات برای توافق نهایی مشروط به شروع و تداوم اجرای تعهدات طرف مقابل بر اساس بندهای ۱، ۴، ۵، ۱۰ و ۱۱ است.
+@withyashar
+</div>
+
+## WithYashar — post 15422
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بقایی: سفر به ژنو فاز دوم مذاکرات نیست و صرفا برای امضای یادداشت تفاهم به صورت حضوری است
+@withyashar
+</div>
+
+## WithYashar — post 15421
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز به نقل از ونس، معاون ترامپ: اوضاع در مذاکرات با ایران خوب پیش میره و انتظار دارم به سوئیس سفر کنیم.
+@withyashar
+</div>
+
+## WithYashar — post 15420
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایسنا: هیات مذاکره کننده ایران تا دقایقی دیگر عازم سوئیس می‌شوند
+@withyashar
+</div>
+
+## WithYashar — post 15419
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث: عراقچی امشب همراه وزیر کشور پاکستان به سوئیس سفر می‌کند
+@withyashar
+</div>
+
+## mwarmonitor — post 11284
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝کت و شلوار صلح بر تن باروت؛ دونالد، این تو بمیری از آن تو بمیری‌ها نیست!
+
+🔰دونالد عزیز، سلام؛ شنیده‌ایم دوباره با ژست «مرد توافق‌ها» چشم دوخته‌ای به اینکه بند اول آتش‌بس لبنان به باد نرود، اما راستش را بخواهی باید بگویم زهی خیال باطل! خاورمیانه برج ترامپ نیست که با دو تا امضا جابجا شود. اینجا فرمول بیزینس فرق می‌کند؛ جمهوری اسلامی حزب‌الله را درست کرده تا دقیقاً «مو دماغ» اسرائیل باشد و امنیتش را تهدید کند. قاعده بازی هم ساده است: کارکرد در ازای پول. اگر این کار را انجام ندهند، پولی از تهران در کار نیست و پول هم نباشد، اصلاً حزب‌اللهی وجود ندارد؛ پس بقای آن‌ها به همین تنش بند است.
+حالا تو چطور فکر می‌کنی اسرائیل با یک تکه کاغذ بی‌خیالِ این سایه مجهز بیخ گوشش می‌شود؟ تل‌آویو تا مطمئن نشود این تهدید ریشه‌کن شده آرام نمی‌نشیند. پس کله نارنجی ، خیلی دلت را به این توافق‌های ویترینی خوش نکن؛ تا وقتی شیرهای پول تهران می‌چرخند و لوله‌های تفنگ داغ‌اند، هیچ‌کس «معامله» تو را نقد نخواهد کرد. این تو بمیری از آن تو بمیری‌ها نیست!
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال ۱۲ اسرائیل: به دستور نتانیاهو و کاتس، ارتش آتش‌بس را در لبنان متوقف می‌کند، اما از مناطق تحت کنترل خود عقب‌نشینی نخواهد کرد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11282
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عبور کشتی‌های تجاری از تنگه هرمزِ باز همچنان جریان دارد
+
+🔸فرماندهی مرکزی ایالات متحده (سنتکام)
+
+🔰تامپا، فلوریدا — هم‌زمان با ادامه عملیات نیروهای آمریکایی در منطقه با هدف حمایت از آزادی کشتیرانی، ترافیک کشتی‌های تجاری در تنگه هرمز در تاریخ ۲۰ ژوئن افزایش یافت.
+
+🔸عبور و مرور امن از این آبراه بین‌المللی امروز نیز پابرجا بود و ۵۵ کشتی تجاری با عبور از آن، حجم بالایی از کالا و بیش از ۱۷ میلیون بشکه نفت را به بازارهای جهانی منتقل کردند.
+
+🔸«مرکز مشترک اطلاعات دریایی» این هفته با صدور توصیه‌نامه‌ای، بر عبور امن تمامی شناورها از یک مسیر مشخص‌شده تأکید کرد؛ مسیری که عاری از هرگونه ادعای الزامات خودسرانه یا موانع است. جزئیات مربوط به این عبور امن را می‌توانید در این آدرس مشاهده کنید
+
+
+🔸نیروهای ایالات متحده همچنان در منطقه حاضر و هوشیار هستند تا تضمین کنند که تمام ابعاد توافق با ایران به طور کامل رعایت، اجرا و عملیاتی می‌شود.
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11281
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴معاون رئیس‌جمهور ونس قرار است امروز به سوئیس سفر کند تا در مذاکرات آمریکا–ایران (که برای فردا برنامه‌ریزی شده) شرکت کند.
+
+🔸استیو ویتکاف و جرد کوشنر هم از قبل در آنجا حضور دارند. CNN
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11279
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11279_1781970168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸«۳ نفتکش فوق‌سنگین (VLCC) ایرانی امروز در حال بارگیری نفت خام در پایانه غربی جزیره خارگ دیده شدند
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11278
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزارت خارجه پاکستان: مذاکرات فنی میان آمریکا و ایران فردا در بورگنشتوک سوئیس برگزار خواهد شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11277
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جورجیا ملونی، نخست‌وزیر ایتالیا، در طول نشست گروه ۷ در فرانسه، بارها و بارها از من خواست که با هم عکس بگیریم. او در ایتالیا از نظر میزان محبوبیت وضعیت ضعیفی دارد؛ احتمالاً به این دلیل که وقتی نوبت به جلوگیری از دستیابی یا توسعه سلاح هسته‌ای توسط ایران رسید،…
+</div>
+
+## mwarmonitor — post 11276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران تنگه هرمز را در پی حملات اسرائیل به لبنان می‌بندد
+
+📝نویسنده: باراک راوید AXIOS
+
+🔸نیروهای مسلح ایران روز شنبه اعلام کردند که تنگه هرمز را — تنها سه روز پس از بازگشایی مجدد آن — مسدود خواهند کرد. ایران مدعی است که ناکامی آمریکا در مهار حملات اسرائیل به لبنان، توافق آتش‌بس جدید را نقض کرده است.
+
+🔸چرا این موضوع اهمیت دارد؟
+این نخستین بحران بزرگ میان ایالات متحده و ایران از زمان امضای تفاهم‌نامه برای پایان دادن به جنگ در اوایل این هفته است.
+
+🔸این اتفاق در حالی رخ می‌دهد که فرستادگان رئیس‌جمهور ترامپ از قبل برای آغاز احتمالی دور اول مذاکرات هسته‌ای در سوئیس حضور دارند، اما هیئت ایرانی هنوز در این محل حاضر نشده است.
+
+🔸آخرین وضعیت
+یک مقام ارشد دفاعی ایالات متحده اظهار داشت که ارتش آمریکا هنوز هیچ‌گونه تحرک نظامی از سوی ایران روی زمین که نشان‌دهنده پتانسیل «بستن» این تنگه باشد، مشاهده نکرده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343202
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343202_1781970169.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A G7 photo op has turned into a full-blown international spat.
+
+President Trump slammed Italian PM Giorgia Meloni after she publicly sounded off, rejecting his claims that she repeatedly asked for a photo with him, calling his comments "completely made up."
+
+"There is one thing he should remember: neither I nor Italy ever beg," Meloni added.
+
+Trump accused Meloni of wanting to be friends again after the U.S. military victory over Iran and suggesting she was trying to boost her political standing at home.
+
+His response ended with a blunt message: "No thanks!"
+</div>
+
+## FoxNewsTwitter — post 343201
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343201_1781970169.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A group of children and parents were left dangling more than 50 feet in the air after an amusement park ride malfunctioned on Long Island.
+
+The Wave Twister ride at Adventureland in Farmingdale suddenly became stuck Friday night, trapping riders in their seats reportedly for more than two hours as firefighters launched a painstaking rescue operation.
+</div>
+
+## FoxNewsTwitter — post 343197
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Not every postgame moment is about the highlights.
+
+After securing a 2-0 win over Australia, Team USA gathered in a huddle and shared a powerful moment of prayer on the field.
+</div>
+
+## FoxNewsTwitter — post 343196
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343196_1781970174.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"My genuine hope was that the lesson the Democrats learned from the 2024 election is maybe we should stop being so crazy."
+
+VP Vance warns democratic socialism is gaining influence inside the Democratic Party, arguing that its loudest voices are pulling the party farther away from the working-class voters who once defined it. | @foxandfriends
+</div>
+
+## FoxNewsTwitter — post 343195
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343195_1781970177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Vice President JD Vance reflects on his deeply personal journey of losing and ultimately reclaiming his Christian faith, offering insight for parents whose children may be drifting from the church.
+
+Vance says as an "arrogant kid," he briefly dismissed his upbringing, but his perspective radically shifted once he focused on the true responsibilities of adulthood and family.
+
+"As I became older and cared less about how much money I made or whether I was going to the right schools, I started to care about the important things, you know, becoming a good husband, becoming a good father, and actually raising my kids with the kind of values that I was raised with."
+
+"I realized that Christianity was not this superstition that I had dismissed as a 22-year-old kid. It was actually this very profound set of values and teachings, and those values and teachings came from a source of real truth." | @foxandfriends
+</div>
+
+## pm_afshaa — post 94462
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع عبری: عملیات ها در لبنان متوقف شد اما نیروهای ارتش اسرائیل هیچ عقب نشینی در لبنان نخواهند داشت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94461
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94461_1781970177.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل: نتانیاهو با توقف حملات ارتش اسرائیل به لبنان موافقت کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94460
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94460_1781970178.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هیئت مذاکره کننده جمهوری اسلامی دقایقی قبل راهی سوئیس شد.
+
+محمدباقر قالیباف، عباس عراقچی، علی باقری، عبدالناصر همتی رییس بانک مرکزی، حمید بورد معاون وزیر نفت، کاظم غریب ابادی و اسماعیل بقایی معاونین وزیرخارجه و... اعضای هیئت اعزامی هستند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94459
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94459_1781970179.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بقائی، سخنگوی وزارت خارجه: هیئت ایرانی برای پیگیری و مطالبه اجرای تعهدات طرف مقابل راهی سوئیس میشه تا مشخص بشه اون‌ها دقیقاً چه برنامه‌ای برای عمل به تعهداتشون دارن. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94458
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94458_1781970180.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پاکستان: مذاکرات فنی ایران و آمریکا فردا در سوئیس برگزار میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94457
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94457_1781970181.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قرارگاه خاتم الانبیا: تنگه هرمز بسته شد با توجه به اینکه آمریکا بند اول تفاهم‌نامه یعنی توقف جنگ حتی در لبنان رو رعایت نکرده، ماهم تنگه هرمز رو تا اطلاع ثانوی میبندیم. اگر عهدشکنی‌های آمریکا ادامه پیدا کنه پاسخ سنگین‌تری میدیم. 
+💧 Rainbet.com the #1 Non…
+</div>
+
+## pm_afshaa — post 94456
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94456_1781970182.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز به نقل از ونس، معاون ترامپ:
+اوضاع در مذاکرات با ایران خوب پیش میره و انتظار دارم به سوئیس سفر کنیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94455
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94455_1781970183.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بقائی، سخنگوی وزارت خارجه:
+هیئت ایرانی برای پیگیری و مطالبه اجرای تعهدات طرف مقابل راهی سوئیس میشه تا مشخص بشه اون‌ها دقیقاً چه برنامه‌ای برای عمل به تعهداتشون دارن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94454
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94454_1781970183.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بقایی، سخنگوی وزارت خارجه:
+ما به تعهداتمون پایبند بودیم حالا نوبت طرف مقابله که توضیح بده چطور می‌خواد به تعهداتش عمل کنه و جلوی ادامه حملات اسرائیل به لبنان رو بگیره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## iaghapour — post 2691
+
+<div align="center">
+  <img src="telegram/content/iaghapour_2691_1781970184.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ آموزش 4 روش تانل پیشرفته و مقاوم در برابر فیلترینگ
+
+🔹تو این ویدیو قراره با هم ۴ تا از بهترین روش‌های تانل زدن رو بررسی کنیم و یاد بگیریم چطوری تانل‌هایی بسازیم که در برابر فیلترینگ پایداری خودشون رو حفظ کنن.
+
+🔗 تماشا ویدیو در یوتیوب
+
+
+#آموزش #فیلترشکن #تانل
+برای دور زدن فیلترینگ و آموزش تکنولوژی و هوش مصنوعی ما رو دنبال کنید 💚
+🆔 @iaghapour
+</div>
+
+## iaghapour — post 2690
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دوستان عزیز، ربات «تماس با ما» چون نسخه رایگانه، به محدودیت ۵ هزار پیام در ماه رسیده و رفته رو حالت تعمیر!
+
+اگه تنظیماتش بر اساس تایم‌زون باشه، اول ماه جدید یعنی 2 روز دیگه خودبه‌خود درست میشه؛ وگرنه به ناچار نسخه پرو رو می‌خرم تا دوباره در دسترس قرار بگیره.🥸
+</div>
+
+## DEJradio — post 5848
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5848_1781970185.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 سنتکام:
+کشتی‌ها با اسکورت ناوهای آمریکا از تنگه هرمز عبور می‌کنند
+
+ساعاتی پس از آنکه قرارگاه خاتم‌الانبیا تنگه هرمز را بست، فرماندهی مرکزی ایالات متحده آمریکا ( سنتکام) اعلام کرد تنگه هرمز مسدود نشده است، و شناورها با پشتیبانی و اسکورت ناوگان پنجم در حال عبور از تنگه هستند!
+
+#تنگه_هرمز #توافق #آتشبس
+@DEJradio
+</div>
+
+## DEJradio — post 5847
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5847_1781970186.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️ تنگه هرمز بسته شد؛ هشدار سپاه به کشتی‌های خارجی
+
+در پی ادامه حملات اسرائیل به حزب‌الله لبنان، قرارگاه خاتم‌الانبیا در بیانیه‌ای که شنبه ۳۰ خرداد ۱۴۰۵ صادر شد اعلام کرد در واکنش به حملات اسراییل به حزب‌الله لبنان تنگه هرمز بسته می‌شود.
+
+در این بیانیه آمده علت این اقدام، "بدعهدی‌ و پیمان‌شکنی آشکار آمریکا نسبت به عدم اجرای بند اول تفاهم‌نامه پایان جنگ" است.
+
+قرارگاه خاتم الانبیا تهدید کرد "اين گام اول پاسخ به عهدشکنی دشمن است و در صورت ادامه تجاوز گام‌های بعدی برای پایبند کردن دشمن به اجرای تعهدات برنامه ریزی و اقدام خواهد شد."
+
+نیروی دریایی سپاه پاسداران نیز هشدار داد که شناورها به تنگه هرمز نزدیک نشوند.
+
+در بیانیه سپاه آمده، تنگه هرمز بر روی همه شناورها بسته می‌‌باشد، در غیر این صورت امنیت آنها به مخاطره خواهد افتاد.
+
+#تنگه_هرمز #توافق #آتشبس
+@DEJradio
+</div>
+
+## DEJradio — post 5846
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سپاه پاسداران عصر شنبه دوباره تنگۀ هرمز را بست
+
+قرارگاه مرکزی خاتم‌الانبیا عصر شنبه ۳۰ خردادماه ادعا کرد در واکنش به «بدعهدی آمریکا» و ادامۀ حملات اسرائیل به حزب‌الله لبنان، تنگۀ هرمز به روی شناورها بسته شد.
+قرارگاه خاتم‌الانبیا مدعی شد بسته شدن تنگۀ هرمز «گام نخست» پاسخ جمهوری اسلامی است.
+بنا بر ادعای سپاه، در صورت ادامۀ وضعیت کنونی، اقدامات دیگری نیز انجام می‌شود.
+نیروی دریای سپاه با انتشار پیام‌هایی از کشتی‌ها خواسته تا برای عبور به تنگۀ هرمز نزدیک نشوند وگرنه امنیت آنها به خطر می‌افتد.
+ساعاتی پیش از اعلام قرارگاه خاتم‌الانبیا، خبرگزاری حکومتی تسنیم خواهان بسته شدن آبراه هرمز شده بود.
+
+#تنگه_هرمز
+@DEJradio
+</div>
+
+## DEJradio — post 5845
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5845_1781970186.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 سازمان "دانشجویان ایرانی برای دموکراسی" (ISAD) روز شنبه ۳۰ خرداد ۱۴۰۵ در شهر فرانکفورت میزبان یک کنفرانس سیاسی با محور تحولات ایران بود.
+
+شماری از سیاستمداران آلمانی و دانشجویان ایرانی و آلمانی در این کنفرانس حضور داشتند.
+
+به گزارش خبرنگار دژ از محل برگزاری این کنفرانس، یکی از سخنرانان دکتر تورستن لیب سیاستمدار آلمانی و عضو حزب دموکرات آزاد آلمان (FDP) بود.
+
+او در سخنانی با اشاره به تفاهم دولت ترامپ با ملاها گفت، که معامله با این رژیم یک فاجعهٔ مطلق برای مردم ایران است.
+
+او با انتقاد از مماشات دولت آلمان با جمهوری اسلامی افزود: "برای آلمان مایه شرمساری است که دو سال پیش وزارت امور خارجه [المان] و رژیم ایران باعث شدند که شاهزاده رضا پهلوی از کنفرانس امنیتی مونیخ کنار گذاشته شود."
+
+او تاکید کرد حزب دموکرات آزاد آلمان (FDP)، به‌طور کامل در کنار مردم ایران ایستاده است. او همچنین افزود که "دربارهٔ آیندهٔ ایران، مردم ایران تصمیم می‌گیرند. آلمان و هیچ کشور دیگری نباید برای ایران تصمیم بگیرد، بلکه باید به تصمیم مردم ایران احترام بگذارد و از آن تبعیت کند."
+
+#دانشجویان_ایرانی_برای_دموکراسی #ISAD #فرانکفورت
+@DEJradio
+</div>
+
+## DEJradio — post 5844
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5844_1781970187.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤡
+🔺 تبریز؛ حضور تکاوران مسلح سپاه در دسته سینه‌زنی!
+
+در اقدامی نه چندان دور از انتظار، شماری از سپاهی‌های مسلح با کلاه کج دسته عزاداری محرم را اسکورت کردند.
+
+#IRGCterrorists #عاشورا #تجمعات_حکومتی #تبریز
+@DEJradio
+</div>
+
+## DEJradio — post 5843
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5843_1781970188.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️ العربیه:
+جمهوری اسلامی تهدید به ترک مذاکره کرده است
+
+منابعی به «العربیه» اطلاع داده‌اند هیئت ایرانی در مذاکرات این کشور و آمریکا تهدید کرده است اگر حملات اسرائیل به لبنان ادامه داشته باشد، تهران از مذاکره با واشنگتن صرف‌نظر خواهد کرد.
+
+این منابع تاکید کردند مهم‌ترین مسئله اختلافی جمهوری اسلامی ایران و آمریکا پرونده لبنان است و محسن نقوی وزیر کشور پاکستان، در این زمینه پیام‌هایی را به تهران منتقل خواهد کرد. نقوی روز شنبه وارد مشهد شد.
+
+#مذاکرات #آتشبس #جمهوری_اسلامی
+@DEJradio
+</div>
+
+## DEJradio — post 5842
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5842_1781970189.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 صف کیلومتری در زاهدان برای۲۰ لیتر بنزین
+
+بحران کمبود سوخت در ایران تشدید شده است. براساس گزارش‌های میدانی در بسیاری از استان‌ها پخش بنزین و گازوئیل کاهش یافته است و رانندگان برای پر کردن باک‌ ماشین‌ها ساعت‌ها در صف معطل می‌شوند. براساس ویدیویی که شهروندان از شهر زاهدان منتشر کردند برای دریافت ۲۰ لیر بنزین در گرمای شدید هوا صف کیلومتری تشکیل شد.
+
+#زاهدان #گازوئیل #کمبود_سوخت #بنزین
+@DEJradio
+</div>
+
+## DEJradio — post 5841
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5841_1781970191.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 سازمان "دانشجویان ایرانی برای دموکراسی" (ISAD) روز شنبه ۳۰ خرداد ۱۴۰۵ در شهر فرانکفورت میزبان یک کنفرانس سیاسی با محور تحولات ایران بود.
+
+شماری از سیاستمداران آلمانی و دانشجویان ایرانی و آلمانی در این کنفرانس حضور داشتند.
+
+به گزارش خبرنگار دژ از محل برگزاری این کنفرانس، یکی از سخنرانان دکتر تورستن لیب سیاستمدار آلمانی و عضو حزب دموکرات آزاد آلمان (FDP) بود.
+
+او در سخنانی با اشاره به تفاهم دولت ترامپ با ملاها گفت، که معامله با این رژیم یک فاجعهٔ مطلق برای مردم ایران است.
+
+او با انتقاد از مماشات دولت آلمان با جمهوری اسلامی افزود: "برای آلمان مایه شرمساری است که دو سال پیش وزارت امور خارجه [المان] و رژیم ایران باعث شدند که شاهزاده رضا پهلوی از کنفرانس امنیتی مونیخ کنار گذاشته شود."
+
+او تاکید کرد حزب دموکرات آزاد آلمان (FDP)، به‌طور کامل در کنار مردم ایران ایستاده است. او همچنین افزود که "دربارهٔ آیندهٔ ایران، مردم ایران تصمیم می‌گیرند. آلمان و هیچ کشور دیگری نباید برای ایران تصمیم بگیرد، بلکه باید به تصمیم مردم ایران احترام بگذارد و از آن تبعیت کند."
+
+#دانشجویان_ایرانی_برای_دموکراسی #ISAD #فرانکفورت
+@DEJradio
+</div>
+
+## mamlekate — post 103746
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103746_1781970192.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+
+«ایران هرگز سلاح هسته‌ای نخواهد داشت؛ آن‌ها هیچ‌وقت به سلاح هسته‌ای دست پیدا نمی‌کنند، خب؟ این موضوع خیلی روشن و ساده است.
+
+اما اگر من همین الان به آن‌ها حمله کنم... ببینید، وقتی حملات را متوقف کنید قضیه این‌طوری می‌شود؛ اگر قرار نباشد نیروی نظامی روی زمین پیاده کنیم (خب؟ منظورم این است که شما هم مایل نیستید نیروی پیاده اعزام بشود، درسته؟)، اگر نیروی زمینی نفرستیم، احتمالاً همان آدم‌ها می‌روند به اعماق غارها؛ آن‌ها غارهای گرانیتی دارند که بسیار محکم هستند. آن‌ها به اعماق غارها می‌روند و بعد، وقتی ما حملاتمان را متوقف کنیم، بیرون می‌آیند و احتمالاً همان رهبران سابق دوباره سر کار خواهند بود. بنابراین این کار فایده‌ای ندارد...
+
+اما اگر بخواهیم کارشان را یک‌سره کنیم و چنان ضربه سنگینی به آن‌ها بزنیم [که نابود شوند، آن‌وقت آن‌ها هم تلافی می‌کنند]؛ در این صورت، تنگه هرمز به‌طور کامل بسته خواهد شد، همه‌جای آن مین‌گذاری می‌شود و موشک‌هایشان بر فراز کشتی‌های میلیارد دلاری به پرواز درمی‌آیند؛ به طوری که آن کشتی‌ها دیگر هرگز قادر به حرکت نخواهند بود. آن‌وقت [با این اوضاع] ما برای ماه‌ها نفت نخواهیم داشت.»
+
+
++ گزارش سی‌ان‌ان (رسانه دموکرات‌ها و مخالف ترامپ) از پشت پرده «شتاب دیوانه‌وار» ترامپ برای امضای توافق با جمهوری اسلامی
+
+@mamlekate
+</div>
+
+## VahidOnline — post 76551
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76551_1781970193.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران گزارش دادند که هیات مذاکره‌کننده جمهوری اسلامی به ریاست محمدباقر قالیباف و با حضور عباس عراقچی، عازم سوئیس شده است.
+
+بر اساس این گزارش، عبدالناصر همتی، رییس کل بانک مرکزی و علی باقری کنی، معاون بین‌الملل دبیرخانه شورای عالی امنیت ملی نیز در این سفر حضور خواهند داشت.
+
+همچنین کاظم غریب‌آبادی، معاون و اسماعیل بقائی، سخنگوری وزارت خارجه و حمید بورد، معاون وزیر نفت نیز این افراد را همراهی می‌کنند.
+
+پیش‌تر وزارت خارجه پاستان اعلام کرد که مذاکرات فنی میان جمهوری اسلامی و آمریکا، یکشنبه در سوئیس آغاز خواهد شد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76550
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76550_1781970193.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: تنگه هرمز باز است
+
+پست اکانت فرماندهی مرکزی ایالات متحده،
+ترجمه ماشین:
+
+عبور کشتی‌های تجاری از تنگه باز هرمز
+
+تامپا، فلوریدا — تردد کشتی‌های تجاری در تنگه هرمز در ۲۰ ژوئن افزایش یافت؛ همزمان نیروهای آمریکایی به عملیات خود در منطقه کلی ادامه دادند تا از آزادی کشتیرانی حمایت کنند.
+
+امروز عبور امن از این آبراه بین‌المللی همچنان برقرار بود و ۵۵ کشتی تجاری از آن عبور کردند؛ کشتی‌هایی که حجم زیادی بار و بیش از ۱۷ میلیون بشکه نفت را به بازارهای جهانی منتقل کردند.
+
+مرکز مشترک اطلاعات دریایی این هفته اطلاعیه‌ای صادر کرد و در آن عبور امن همه کشتی‌ها را در یک مسیر تعیین‌شده تأیید کرد؛ مسیری که از ادعاهای خودسرانه درباره الزامات یا هرگونه مانع، آزاد است. جزئیات مربوط به عبور امن را می‌توان در اینجا دید:ukmto.org
+
+نیروهای آمریکایی همچنان در منطقه حضور دارند و هوشیارند تا اطمینان حاصل کنند که همه جنبه‌های توافق با ایران رعایت، اجرا و به‌طور کامل برقرار و لازم‌الاجرا باقی می‌ماند.
+
+CENTCOM
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76548
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76548_1781970194.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدئویی در شبکه‌های اجتماعی پربازدید شده که مادر مانی صفرپور، جوان کشته‌شده در اعتراضات دی‌ماه، را در حال سوگواری برای فرزندش در کنار یک دستۀ عزاداری نشان می‌دهد.
+عکس پسرش را بالای دست گرفته و می‌گوید «پسرم، پسرم».
+مانی صفر‌پور، جوان ۱۸ سالۀ لاهیجانی، ۱۸ دی‌ماه ۱۴۰۴ با شلیک نیروهای حکومتی در محلۀ سلسبیل تهران کشته شد.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76547
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76547_1781970195.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی دریایی سپاه پاسداران اعلام کرد تنگه هرمز در واکنش به «نقض تعهدات امریکا در اجرای آتش‌بس» و «حملات اسرائیل در لبنان»، به روی همه شناورها بسته شد.
+نیروی دریایی سپاه همچنین از شناورها خواست به تنگه هرمز نزدیک نشوند و هشدار داد در غیر این صورت، امنیت آن‌ها به خطر خواهد افتاد.
+
+قرارگاه مرکزی خاتم‌الانبیا، واحدی از سپاه پاسداران هم اعلام کرد تنگه هرمز به‌دلیل «بدعهدی و پیمان‌شکنی» امریکا نسبت به‌عدم اجرای بند اول تفاهم‌نامه، به روی تردد کشتی‌ها بسته شده است.
+
+قرارگاه مرکزی خاتم‌الانبیا روز شنبه اضافه کرد این گام اول «پاسخ به عهدشکنی دشمن» است و در صورت ادامه این وضعیت، گام‌های بعدی برای «پایبند کردن دشمن به اجرای تعهدات»، برنامه‌ریزی و اقدام خواهد شد.
+
+خبرگزاری فارس، وابسته به سپاه پاسداران به نقل از یک منبع نظامی در نیروی دریایی سپاه، عصر شنبه اعلام کرد که تنگه هرمز از دقایقی پیش به‌طور کامل بسته شده است.
+
+حملات اسرائیل به جنوب لبنان در روز شنبه دست‌کم ۱۰ کشته بر جا گذاشته است. اسرائیل اعلام کرد این حملات در واکنش به پرتاب گلوله‌هایی از سوی حزب‌الله، گروه مورد حمایت جمهوری اسلامی، انجام شد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76546
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76546_1781970195.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، روز شنبه ۳۰ خرداد در گفتگو با فاکس‌نیوز اعلام کرد که استیو ویتکاف، فرستاده ویژه ترامپ و جرد کوشنر، داماد او، «چند ساعتی است» که در سوئیس حضور دارند و مشغول بررسی «برخی از ابعاد فنی این مذاکرات» با ایران هستند. به گفته ونس، کوشنر و ویتکاف در گزارش‌های خود تاکید کرده‌اند که «امور به خوبی پیش می‌رود.»
+
+ونس همچنین از احتمال ورود میانجی‌های قطری و پاکستانی به سوئیس برای پیوستن به این گفتگوها خبر داد و افزود: «قطری‌ها و پاکستانی‌ها می‌خواهند مطمئن شوند که ما این کار را به شیوه درست انجام می‌دهیم، بنابراین من تلاش می‌کنم به این روند احترام بگذارم.»
+
+معاون ترامپ که سفر خود به سوئیس را در اواخر پنج‌شنبه شب به تعویق انداخته بود، بار دیگر تاکید کرد که انتظار دارد طی دو روز آینده عازم این کشور شود. او با این حال خاطرنشان کرد که هماهنگی‌های این سفر «همواره یک رقص هماهنگی ظریف دیپلماتیک است.» این مذاکرات که پیش‌تر قرار بود روز جمعه برگزار شود، پس از وقفه‌ای کوتاه دوباره در آستانه ازسرگیری است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76545
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76545_1781970196.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«طاها نظری» معترض ۱۸ساله که پیشتر به‌دلیل حضور در اعتراضات ۱۸ و ۱۹دی۱۴۰۴ بازداشت شده بود، پس از تشکیل جلسه رسیدگی به پرونده، به ۵سال حبس تعزیری محکوم شده است.
+
+ماموران اطلاعات شاهرود، در فروردین ۱۴۰۵، طاها نظری را شناسایی و به صورت تلفنی احضار کردند. بعد از مراجعه به محل، این جوان ۱۸ساله به‌صورت موقت بازداشت و تحت فشار برای پذیرش اتهاماتی نظیر «ارتباط با تلویزیون‌های فارسی‌زبان و فیلم‌برداری از اعتراضات» به او نسبت داده شد.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76543
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت دلار و دیگر ارزهای خارجی که در پی نتیجه موقت مذاکرات ایران و آمریکا کاهش یافته بود بار دیگر افزایشی شد.
+روز شنبه، ۳۰ خردادماه، قیمت دلار آمریکا در بازار به ۱۶۲ هزار و ۵۰۰ تومان رسید. قیمت یک یوروی اروپا نیز در این روز به ۱۸۶ هزار و ۴۰۰ تومان رسید.
+
+این در حالی است که در طی روند کاهشی قیمت ارزهای خارجی در بازار آزاد ایران، روز چهارشنبه ۲۷ خرداد قیمت هر دلار آمریکا به حدود ۱۵۳ هزار تومان رسیده و قیمت سکه طلا هم در محدوده ۱۶۰ میلیون تومان اعلام شده بود.
+روزنامه هم‌میهن روز شنبه قیمت سکه امامی را در بازار طلای ایران ۱۶۹ میلیون تومان گزارش کرد.
+از زمان اعلام تفاهم‌نامه ایران و آمریکا در تلاش برای پایان جنگ، قیمت ارزهای خارجی و سکه طلا در بازار آزاد ایران شاهد کاهش قابل توجهی بود.
+@VahidHeadline
+حسین صمصامی، عضو کمیسیون اقتصادی مجلس شورای اسلامی، در گفت‌وگو با سایت خبری تابناک افشا کرد که در هفت سال گذشته بیش از ۱۳۰ میلیارد دلار ارز حاصل از صادرات به کشور بازنگشته است.
+این در حالی است که حکومت برای بازگرداندن ۲۴ میلیارد دلار دارایی مسدودشده کشور وارد چانه‌زنی فراوان با دولت ایالات متحده شده است، امری که نشان می‌دهد تا چه حد به این پول نیاز دارد.
+در این میان بیشترین میزان عدم بازگشت ارز صادرات مربوط به سال ۱۴۰۴ است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76541
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76541_1781970196.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدئویی که هاجر نادری، مادر متین پرویزی، در صفحۀ شخصی خود منتشر کرده است او را در کنار آرامگاه پسرش نشان می‌دهد که می‌گوید «من به پسرم فقط یاحسین و تشنگی را یاد ندادم، به او یاد دادم که جلوی حرف زور بایستد»
+
+خانم نادری در ادامه با شرح کشته شدن فرزندش در اعتراضات ۱۸ دی‌ماه می‌گوید امسال محرم برای فرزندان میهن که «ناجوانمردانه کشته شدند» عزاداری خواهد کرد و ادامه می‌دهد که «می‌دانم امام حسین هم برای این جوانان عزاداری خواهد کرد»
+
+متین پرویزی ۱۸ دی‌ماه سال گذشته در سبزه‌میدان زنجان با شلیک گلوله جنگی نیروهای حکومتی به سرش کشته شد.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76540
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76540_1781970198.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن نقوی، وزیر کشور پاکستان، صبح امروز وارد مشهد شد.
+
+ایرنا به نقل از منابع خبری در استانداری خراسان رضوی گفته است که او سپس برای گفتگو با مقامات عازم تهران خواهد شد.
+
+بر اساس گزارش‌ها وزیر کشور پاکستان قرار است در این سفر در مورد از سرگیری مذاکرات مستقیم بین آمریکا و ایران در سوئیس، با مقامات ایران گفتگو کند.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76539
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76539_1781970199.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرکز اطلاع‌رسانی پلیس استان لرستان از پلمب یک واحد صنفی و معرفی فرد متخلف به مرجع قضایی خبر داده و اعلام کرده است این اقدام پس از آن صورت گرفته که به گفته این نهاد، واحد مذکور «ضمن عدم رعایت قوانین و مقررات، اقدام به هنجارشکنی» کرده بود.
+
+این در حالی است که تنها سه روز پیش نیز مرکز اطلاع‌رسانی پلیس لرستان از پلمپ پنج کافه‌رستوران و سفره‌خانه سنتی در سطح استان خبر داده بود. در آن گزارش، دلیل برخورد با این اماکن، اجرای طرح موسوم به «ارتقای امنیت اخلاقی و اجتماعی» و آنچه «هنجارشکنی» عنوان شده، اعلام شده بود.
+
+در هفته‌های اخیر و هم‌زمان با فروکش کردن فضای امنیتی ناشی از تنش‌های بیرونی، گزارش‌هایی از افزایش تمرکز نهادهای انتظامی و قضایی بر حوزه‌های مرتبط با سبک زندگی شهروندان منتشر شده است؛ روندی که به نظر می‌رسد بار دیگر کسب‌وکارهایی مانند کافه‌ها، رستوران‌ها، فضاهای موسیقی، پوشش و نوع تعاملات اجتماعی را هدف قرار داده است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76537
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_76537_1781970199.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع‌های اعتراضی زنان به فعالیت‌های معدنی حوالی دو روستا در استان‌های کرمان و سیستان‌وبلوچستان با حضور نیروی انتظامی به خشونت کشیده شد.
+
+بر اساس گزارش‌ها زنان روستای پشموکی از توابع فاریاب استان کرمان روز ۲۷ خرداد در ادامه اعتراضات مردمی نسبت به نحوه واگذاری و بهره‌برداری از معدن کرومیت پشموکی تجمع کرده بودند.
+
+گفته شده که نیروی انتظامی علاوه بر ضرب‌وشتم معترضان، شماری از آن‌ها را بازداشت کرد.
+
+هم‌چنین منابع بلوچ گزارش داده‌اند که زنان روستای سرسیاه از توابع تفتان استان سیستان‌وبلوچستان هم روز ۲۶ خرداد در اعتراض به گسترش فعالیت‌های معدن طلای تفتان و پیامدهای آن بر زندگی مردم منطقه تجمع کرده بودند.
+
+در ویدئویی که منتشر شده شنیده می‌شود که مأموران نیروی انتظامی با خشونت، تهدید، توهین و واژه‌های تحقیرآمیز با این زنان برخورد کردند.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 343411
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343411_1781970200.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اندرو جولیانی، رییس کارگروه جام جهانی کاخ سفید به روزنامه تلگراف گفت که آمریکا آمادگی دارد درباره شرایط ورود تیم فوتبال ایران به خاک این کشور مذاکره مجدد انجام دهد تا به تیم ملی اجازه دهد مدت بیشتری در آمریکا و در فاصله بین مسابقات حضور داشته باشد.
+
+🔹توضیحات مزدک میرزایی در هت‌تریک
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343410
+
+
+
+
+## IranIntlTV — post 343409
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/343409" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | شنبه ۳۰ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 343408
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343408_1781970203.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام اعلام کرد نیروهای آمریکایی همچنان در منطقه حضور دارند و با هوشیاری کامل فعالیت می‌کنند تا اطمینان حاصل شود همه مفاد توافق با جمهوری اسلامی اجرا می‌شود.
+
+سنتکام اعلام کرد که روز شنبه عبور ایمن از تنگه هرمز برقرار بود و ۵۵ کشتی که مقادیر زیادی بار و بیش از ۱۷ میلیون بشکه نفت را به بازارهای جهانی منتقل می‌کردند، از این آبراه تردد کردند.
+https://iranintl.com/202606204513
+</div>
+
+## IranIntlTV — post 343407
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343407_1781970204.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسالی یک شهروند ایرانی در بریتانیا نصب تصاویر جاویدنامان انقلاب ایران در بخش از این شهر را نشان می‌دهد. فرستند ویدیو می‌گوید یاد این جاویدنامان و خانواده‌های آن‌ها فراموش نخواهد شد.
+</div>
+
+## IranIntlTV — post 343406
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343406_1781970207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های اسرائیل خبر دادند که بنیامین نتانیاهو، نخست وزیر این کشور، دستور اجرای آتش‌بس در لبنان را صادر کرد، اما ارتش همچنان از مناطق تصرف‌شده عقب‌نشینی نخواهد کرد.
+
+پیش‌تر نیروی دریایی سپاه پاسداران اعلام کرده بود به دلیل تداوم حملات اسرائیل به جنوب لبنان، تنگه هرمز بسته شده است.
+https://iranintl.com/202606208153
+</div>
+
+## IranIntlTV — post 343405
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343405_1781970208.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از اعلام موضع جنجالی مجتبی خامنه‌ای درباره توافق، مخالفت‌ها با ادامه مذاکرات با آمریکا در تهران افزایش یافت و در آستانه سفر عراقچی به ژنو، سپاه پاسداران دوباره تنگه هرمز را بست. آیا با تثبیت توقف جنگ، نزاع قدرت در درون نظام، به شکست مذاکرات می‌انجامد؟
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## IranIntlTV — post 343404
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343404_1781970211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران گزارش دادند که هیات مذاکره‌کننده جمهوری اسلامی به ریاست محمدباقر قالیباف و با حضور عباس عراقچی، عازم سوئیس شده است.
+
+بر اساس این گزارش، عبدالناصر همتی، رییس کل بانک مرکزی و علی باقری کنی، معاون بین‌الملل دبیرخانه شورای عالی امنیت ملی نیز در این سفر حضور خواهند داشت.
+
+همچنین کاظم غریب‌آبادی، معاون و اسماعیل بقائی، سخنگوری وزارت خارجه و حمید بورد، معاون وزیر نفت نیز این افراد را همراهی می‌کنند.
+
+پیش‌تر وزارت خارجه پاکستان اعلام کرد که مذاکرات فنی میان جمهوری اسلامی و آمریکا، یکشنبه در سوئیس آغاز خواهد شد.
+https://iranintl.com/202606207200
+</div>
+
+## IranIntlTV — post 343403
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343403_1781970212.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میثم ظهوریان، نماینده مشهد در مجلس، با اشاره به سفر هیات مذاکره‌کننده جمهوری اسلامی به سوئیس، در شبکه ایکس نوشت: «در حالی که بندهای ۱ و ۱۰ متن تفاهم‌نامه با آمریکا، مطلقا اجرا نشده است، شهوت وزارت خارجه برای شروع مذاکرات عجیب است.»
+
+شایان ذکر است که بند یک تفاهم‌نامه به پایان عملیات نظامی در همه جبهه‌ها، از جمله لبنان اشاره داشته و بند ۱۰ نیز در رابطه با صدور مجوز از سوی ایالات متحده، برای صادرات نفت فرآورده‌های نفتی ایران است.
+https://iranintl.com/202606203878
+</div>
+
+## IranIntlTV — post 343402
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343402_1781970212.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻جرمی دوکو، ستاره تیم ملی بلژیک و باشگاه منچسترسیتی، اعلام کرد برای حضور در زمان تولد نخستین فرزندش اردوی تیم ملی کشورش در جام جهانی ۲۰۲۶ را ترک می‌کند. به همین دلیل ممکن است بازی با ایران را از دست بدهد.
+
+🔹دوکو پیش از آغاز جام جهانی درباره این موضوع گفته بود: «همه چیز به زمان تولد بستگی دارد، اما این نخستین فرزند من است و قطعا دوست دارم کنار خانواده‌ام باشم. هیچ‌کس نمی‌خواهد لحظه تولد اولین فرزندش را از دست بدهد.»
+
+🔹این وینگر ۲۴ ساله در دیدار نخست بلژیک در جام جهانی مقابل مصر به میدان رفت.
+
+🔹همین موضوع باعث شد فرانس پیرون، خبرنگار اکیپ، در اظهاراتی جنجالی در یک برنامه تلویزیونی گفت: «چطور می‌شود جام جهانی را از دست داد؟ قرار است برای بریدن بند ناف نوزاد بازی را رها کنی؟ صدها فوتبالیست آرزو دارند جای تو در جام جهانی باشند، اما تو می‌خواهی این فرصت را کنار بگذاری تا در زمان تولد فرزندت حاضر باشی.»
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343401
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343401_1781970213.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد تقوی، ایران‌اینترنشنال، درباره اعتراض فدراسیون فوتبال جمهوری اسلامی به محدودیت‌های اعمال‌شده برای تیم فوتبال ایران در آمریکا و جابه‌جایی تیم از تیخوانا به لس‌آنجلس گفت: «همه تیم‌ها با این شرایط روبه‌رو هستند و تیخوانا نزدیک‌ترین کمپ به لس‌آنجلس را دارد. طرح این موضوع از سوی فدراسیون فوتبال، بهانه‌ای برای توجیه شکست احتمالی است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343400
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343400_1781970216.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاکستان اعلام کرد که نمایندگان آمریکا و جمهوری اسلامی به همراه میانجی‌گران پاکستان و قطر در گفت‌وگوهای یکشنبه در سوئیس شرکت خواهند کرد.
+
+عصر شنبه خبرگزاری دولتی ایرنا گزارش داد که هیات مذاکره‌کننده جمهوری اسلامی عازم سوئیس شده است.
+
+پیش‌تر اسماعیل بقائی، سخنگوی وزارت خارجه گفته بود که سفر هیات مذاکره‌کننده جمهوری اسلامی به سوئیس، به معنای آغاز مرحله دوم مذاکرات نیست و با هدف مطالبه‌گری و پیگیری اجرای تعهدات طرف مقابل انجام می‌شود.
+https://iranintl.com/202606202976
+</div>
+
+## IranIntlTV — post 343399
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343399_1781970217.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی نیروی دریایی سپاه پاسداران اعلام کرد تنگه هرمز در واکنش به «نقض تعهدات آمریکا در اجرای آتش‌بس» و «حملات اسرائیل در لبنان»، به روی همه شناورها بسته شده است.
+
+نیروی دریایی سپاه همچنین از شناورها خواست به تنگه هرمز نزدیک نشوند و هشدار داد در غیر این صورت امنیت آن‌ها به خطر خواهد افتاد.
+https://iranintl.com/202606207631
+</div>
+
+## IranIntlTV — post 343398
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343398_1781970217.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران اینترنشنال از آزار صوتی هیات‌های عزاداری در زرند کرمان برای مردم روایت می‌کند.
+</div>
+
+## IranIntlTV — post 343397
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343397_1781970220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران به نقل از یک منبع نظامی در نیروی دریایی سپاه، عصر شنبه اعلام کرد که تنگه هرمز از دقایقی پیش به‌طور کامل بسته شده است.
+
+پیش‌تر قرارگاه مرکزی خاتم‌الانبیا اعلام کرده بود که به دلیل ادامه حملات اسرائیل به جنوب لبنان، تنگه هرمز بسته خواهد شد.
+
+این در حالی است که اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، از سفر هیات مذاکره‌کننده به سوئیس خبر داد.
+https://iranintl.com/202606204968
+</div>
+
+## IranIntlTV — post 343395
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343395_1781970221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قرارگاه مرکزی خاتم‌الانبیا با انتشار بیانیه‌ای اعلام کرد به دلیل حملات اسرائیل به حزب‌الله لبنان، تنگه هرمز بار دیگر بسته خواهد شد.
+
+حسین آقایی، عضو تحریریه ایران‌اینترنشنال، گفت دولت دونالد ترامپ، با وجود کارشکنی‌های سپاه پاسداران همچنان به دنبال پیشبرد مذاکرات است. به گفته او، جمهوری اسلامی از اهرم تنگه هرمز هم برای حمایت از حزب‌الله و هم برای افزایش فشار بر واشینگتن استفاده می‌کند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 343394
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343394_1781970223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه جمهوری اسلامی، تایید کرد که هیات مذاکره‌کننده جمهوری اسلامی به سوئیس سفر خواهد کرد.
+
+بقائی افزود: «این سفر با هدف مطالبه‌گری و پیگیری اجرای تعهدات طرف مقابل انجام می‌شود، چرا که معیار اصلی سنجش هر توافقی، مرحله اجرای آن است.»
+
+او اضافه کرد که آمریکا موظف است اسرائیل را به توقف حمله به لبنان وادار کند و اگر آمریکا از اجرای تعهداتش سرباز بزند، با تدابیر لازم پاسخ خواهیم داد.
+
+سخنگوی وزارت خارجه جمهوری اسلامی افزود: «اگر بخشی از تعهدات طرف مقابل اجرا نشود کلیت تفاهم دچار مشکل می‌شود.
+
+بقائی ادامه داد: «ما تعهد را امضا نکردیم که اجرا نشود؛ رویکرد ما تعهد در برابر تعهد است.»
+https://iranintl.com/202606209951
+</div>
+
+## IranIntlTV — post 343393
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343393_1781970224.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی زینی‌وند، سخنگوی وزارت کشور، شنبه ۳۰ خرداد در یک نشست خبری گفت کشور همچنان در «میانه جنگ» قرار دارد. او تاکید کرد: «مردم نباید تصور کنند با امضای یادداشت تفاهم میان جمهوری اسلامی و آمریکا همه مشکلات برطرف شده است.»
+
+زینی‌وند در واکنش به انتقادها درباره بحران اقتصادی و افزایش قیمت‌ها گفت: «دولت باید پاسخگو باشد، ولی پیچ انصاف‌تان را تنظیم کنید و عملکرد دولت را از روز تحلیف تاکنون بررسی کنید.»
+https://iranintl.com/202606209310
+</div>
+
+## IranIntlTV — post 343384
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال برزیل در دومین دیدار خود در جام جهانی ۲۰۲۶ با نتیجه ۳-۰ هائیتی را شکست داد تا اولین پیروزی خود را در این بازی‌ها جشن بگیرد.
+
+🔹مردم برزیل که همواره یکی از پرشورترین هواداران فوتبال محسوب می‌شوند، همزمان با بازی تیم ملی کشورشان، در داخل و بیرون استادیوم فلادلفیا اولین پیروزی سلسائو را جشن گرفتند.
+
+@iranintltvsport
+</div>
+
+## Iliaen — post 4503
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران با انتشار یک بیانیه، رسماً خبر از بسته شدن تنگه هرمز به علت حملات اسرائیل در لبنان داد.
+
+از آنجا که اینبار بیانیه رسمی صادر شده است، بعید است دوباره وزارت خارجه موفق به اعلام تکذیبیه شود.
+
+روز گذشته نیز سپاه پاسدارن اقدام به جلوگیری از عبور و مرور کشتی‌ها به مدت حدود ۴۰ دقیقه کرد.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 221334
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با رضا طالبی، روزنامه‌نگار و تحلیلگر سیاسی، از شکاف درون حاکمیت پس از امضای تفاهم با آمریکا و غیبت صدای موافقان عادی‌سازی روابط با آمریکا گفتیم. آقای طالبی می‌گوید در منطق جمهوری اسلامی، نه پذیرش شکست در میدان جنگ معنا دارد و نه تعامل با مردم در عرصه سیاست.
+</div>
+
+## FarsiVOA — post 221333
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221333_1781970225.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با حسن هاشمیان از صدای آمریکا تناقض روایت‌ها درباره «یادداشت تفاهم» و تداوم درگیری در جنوب لبنان را بررسی کردیم. به گفته حسن هاشمیان «لبنان می‌تواند مهمترین محور پیمان ابراهیم باشد.»
+</div>
+
+## FarsiVOA — post 221332
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺از اتهام «محاربه» یک معترض تا صدور احکام سنگین حبس علیه دو تن دیگر؛ تیغ تیز رژیم بر گردن مردم ایران
+
+▪️قوه قضائیه جمهوری اسلامی در ادامه روند صدور احکام ظالمانه برای مخالفان خود یک جوان ۱۸ ساله را به «محاربه» متهم و به بند امنیتی زندان کرمانشاه منتقل کرد و برای یک وکیل دادگستری نیز حکم ده سال زندان برید.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-arrest-prison-protest-lawyer-azerbaijan-/8162950.html/?nocach=1
+</div>
+
+## FarsiVOA — post 221331
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بیانیه سنتکام پس از تهدید جمهوری اسلامی: تنگه هرمز باز است
+
+▪️فرماندهی مرکزی ایالات متحده، سنتکام، روز شنبه ۳۰ خرداد ۱۴۰۵ اعلام کرد تنگه هرمز باز است و تردد کشتی‌های تجاری از این آبراه ادامه دارد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/centcom-says-strait-remains-open/8162953.html/?nocach=1
+</div>
+
+## FarsiVOA — post 221330
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221330_1781970226.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشر شده در شبکه‌های اجتماعی، مادر مانی صفرپور، از کشته‌شدگان دی ماه ۱۴۰۴، را نشان می‌دهد که کنار یک دسته عزاداری محرم، برای فرزندش سوگواری می‌کند.
+
+مانی صفرپور، ۱۸ ساله و اهل لاهیجان، ۱۸ دی ۱۴۰۴، با شلیک گلوله ماموران حکومتی در سرسبیل تهران کشته شد.
+</div>
+
+## FarsiVOA — post 221329
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراسم یادبود مرجان ساتراپی در سوئد با حضور خانواده و دوستانش؛ گزارش آنا-ماریا هولمگرن
+</div>
+
+## FarsiVOA — post 221319
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مروری تصویری بر بازی‌های پرهیجان جام جهانی ۲۰۲۶؛ از صعود آمریکا و نخستین برد برزیل تا دوئل‌های نفس‌گیر، گل‌های سرنوشت‌ساز، و شادی هواداران.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221307
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221307_1781970229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خواهر صهبا رشتیان، از کشته‌شدگان دی ماه ۱۴۰۴، ویدیویی از گرامیداشت زادروز صهبا در ۳۰ خرداد ۱۴۰۵ بر آرامگاهش منتشر کرده است.
+
+صهبا رشتیان، ۲۳ ساله، ۱۹ دی ۱۴۰۴، با شلیک گلوله ماموران حکومتی به پهلویش در اصفهان کشته شد.
+
+نسخه اصلی این ویدیو با موسیقی متن منتشر شده است.
+</div>
+
+## FarsiVOA — post 221306
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺برنامه‌ریزی برای دور آینده مذاکرات اسرائیل و لبنان به‌رغم تداوم درگیری‌ها با حزب‌الله
+
+▪️بنا به گزارش رسانه‌های عربی در روز شنبه ۳۰ خرداد، لبنان در سه روز مانده به دور پنجم مذاکرات مستقیم با اسرائیل، شاهد افزایش تنش نظامی میان اسرائیل و حزب‌الله در جنوب کشور از یک سو، و از سوی دیگر تحرک سیاسی و دیپلماتیک برای رسیدن به یک آتش‌بس فراگیر و پایدار شدت گرفته است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/lebanon-israel-hezbollah-war-ceasfire-/8162941.html/?nocach=1
+</div>
+
+## FarsiVOA — post 221305
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جمهوری اسلامی به‌رغم «یادداشت تفاهم» تهدید کرد: هرمز بسته خواهد شد
+
+▪️تنها چند روز پس از امضای یادداشت تفاهم میان آمریکا و رژیم ایران مبنی بر رفع محاصره و متقابلا باز شدن تنگه هرمز، قرارگاه مرکزی خاتم‌الانبیا روز شنبه ۳۰ خرداد ادعا کرد که تنگه هرمز به روی تردد شناورها «بسته خواهد شد.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-threatens-hormuz-closure-despite-deal/8162946.html/?nocach=1
+</div>
+
+## FarsiVOA — post 221304
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221304_1781970232.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رابرت اف کندی جونیور، وزیر بهداشت و خدمات انسانی آمریکا، با انتشار این تصویر اعلام کرد به همراه لوری چاوز درمر، وزیر کار آمریکا، در دیدار تیم‌های ملی آمریکا و استرالیا در جام جهانی فوتبال در شهر سیاتل حضور داشته است.
+
+او در پیام خود نوشت ورزش مردم را فراتر از فرهنگ‌ها و مرزها به هم نزدیک می‌کند، روحیه کار گروهی و رقابت سالم را تقویت می‌کند و به استحکام جوامع کمک می‌کند.
+
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 126243
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126243_1781970232.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶پاکستان: مذاکرات فنی ایران و آمریکا یکشنبه در سوئیس برگزار می‌شود
+
+وزارت خارجه پاکستان اعلام کرد که مذاکرات فنی برای اجرای تفاهم‌نامه ایران و آمریکا با هدف پایان دادن به جنگ منطقه‌ای، روز یکشنبه ۲۱ ژوئن (۳۱ خرداد) در بورگن‌اشتوک سوئیس برگزار خواهد شد.
+
+به گفته مقامات اسلام‌آباد، نمایندگان ایران، آمریکا، پاکستان و قطر در این نشست حضور خواهند داشت.
+
+این مذاکرات در ادامه تفاهم‌نامه‌ای برگزار می‌شود که پیش‌تر با میانجیگری پاکستان به امضا رسیده بود.
+
+وزارت خارجه سوئیس نیز روز شنبه ۳۰ خرداد اعلام کرده بود که همچنان بستر "محرمانه، بی‌طرف و قابل اعتماد" مجموعه بورگن‌اشتوک را برای این گفت‌وگوها فراهم می‌کند.
+
+وزارت خارجه سوئیس همچنین گفت، به دلیل محرمانه بودن مذاکرات، جزئیاتی درباره شرکت‌کنندگان و محتوای نشست‌ها منتشر نخواهد شد.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 126242
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126242_1781970233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶وزارت اطلاعات از بازداشت ۱۷ نفر در ایلام به اتهام همکاری با "شبکه خرابکاری" خبر داد
+
+وزارت اطلاعات جمهوری اسلامی از بازداشت "۱۷ نفر" در استان ایلام خبر داد و آن‌ها را به عضویت و همکاری با آنچه "شبکه خرابکاری خیابانی وابسته به آمریکا و اسرائیل" نامیده، متهم کرد.
+
+در اطلاعیه این وزارتخانه آمده است که سه نفر از بازداشت‌شدگان به عنوان "لیدرهای میدانی" این شبکه شناسایی شده‌اند و ۱۴ نفر دیگر نیز به اتهام همکاری با این گروه بازداشت شده‌اند.
+
+وزارت اطلاعات مدعی است که این افراد در اعتراضات دی ۱۴۰۴ قصد اجرای ماموریت‌هایی را در چارچوب موسوم به "جنگ تحمیلی سوم" داشته‌اند.
+
+وزارت اطلاعات همچنین مدعی شده که از این افراد مواد منفجره، یک قبضه کلاشنیکف، یک نارنجک و تعدادی سلاح سرد کشف شده است.
+
+تاکنون درباره هویت افراد بازداشت‌شده گزارشی منتشر نشده است.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 126241
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126241_1781970234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶جی‌دی ونس: هیچ مدرکی مبنی بر بسته شدن تنگه هرمز وجود ندارد
+
+جی‌دی ونس، معاون رئیس‌جمهور آمریکا در گفت‌وگو با شبکه فاکس‌نیوز و در واکنش به ادعای ایران مبنی بر مسدود کردن تنگه هرمز گفت که هیچ نشانه‌ای مبنی بر بسته شدن این آبراه وجود ندارد.
+
+قرارگاه مرکزی خاتم‌الانبیا روز شنبه، ۳۰ خرداد (۲۰ ژوئن) مدعی شد که تنگه هرمز "در واکنش به بدعهدی آمریکا در اجرای تفاهم‌نامه پایان جنگ و نقض مداوم آتش‌بس از سوی اسرائیل در جنوب لبنان"، به روی تردد شناورها بسته خواهد شد.
+
+این نهاد نظامی همچنین نوشت: « اين گام اول پاسخ به عهدشکنی دشمن است و در صورت ادامه تجاوز گام‌های بعدی برای پایبند کردن دشمن به اجرای تعهدات برنامه ریزی و اقدام خواهد شد.»
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 126240
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶بیژن جیرسرایی: توافق جدید آمریکا و ایران "خطرناک" است
+
+بیژن جیرسرایی، سیاستمدار حزب دموکرات آزاد آلمان (FDP) توافق میان آمریکا و ایران را به‌شدت مورد انتقاد قرار داده و آن را "خطرناک" توصیف کرد.
+
+جیرسرایی در گفت‌وگو با شبکه "ان‌تی‌وی" آلمان گفت "برخلاف برخی ارزیابی‌ها، این توافق نشانه‌ای از برقراری صلح پایدار نیست" و به باور او می‌تواند به تقویت جمهوری اسلامی و افزایش نقش آن در منطقه منجر شود.
+
+این سیاستمدار با اشاره به توافق هسته‌ای سال ۲۰۱۵ در دولت باراک اوباما، موسوم به برجام گفت دونالد ترامپ، رئيس‌جمهور آمریکا زمانی آن را "بدترین توافق تاریخ" می‌خواند، اما توافق جدید امتیازهای بیشتری به جمهوری اسلامی می‌دهد.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 126239
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126239_1781970235.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶هلند ناوچه خود را به سمت تنگه هرمز تغییر مسیر داد
+
+دولت هلند اعلام کرد یک ناوچه پدافند هوایی این کشور را به سمت منطقه تنگه هرمز تغییر مسیر داده است تا در صورت تشکیل یک ماموریت بین‌المللی، امکان پیوستن به آن را داشته باشد.
+
+به گزارش رویترز، وزیر دفاع هلند در نامه‌ای به پارلمان این کشور گفته است که این ناوچه هم‌اکنون در منطقه هند و اقیانوس آرام حضور دارد و رسیدن آن به تنگه هرمز چند هفته زمان خواهد برد.
+
+این اقدام در حالی صورت می‌گیرد که فرانسه و بریتانیا در حال رایزنی برای تشکیل یک ماموریت چندملیتی به منظور حفاظت از کشتیرانی و مقابله با تهدیدات امنیتی در تنگه هرمز هستند. آلمان نیز پیش‌تر از اعزام دو کشتی به دریای سرخ برای آمادگی جهت مشارکت احتمالی در چنین ماموریتی خبر داده بود.
+
+مقامات هلندی تاکید کرده‌اند که هنوز تصمیم نهایی برای مشارکت در هیچ عملیات مشخصی گرفته نشده و این اقدام با هدف حفظ آمادگی انجام شده است.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 126238
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_126238_1781970236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥برگزاری مراسم تولد صهبا رشتیان بر مزارش
+
+یلدا رشتیان با انتشار ویدیویی در صفحه اینستاگرام خود زادروز خواهرش صهبا رشتیان را گرامی داشت. صهبا رشتیان یکی از جان‌باختگان اعتراضات دی‌ماه ۱۴۰۴ است که در ۲۳ سالگی با شلیک مستقیم ماموران در اصفهان کشته شد. صهبا مربی بدنسازی بود و به عنوان کمک‌داور در لیگ‌های فوتبال استانی فعالیت داشت.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17691
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17691_1781970238.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌟
+☣️کانال 12 اسرائیل: نتانیاهو با توقف حملات ارتش اسرائیل به لبنان موافقت کرد. این خبر هنوز بصورت رسمی از سوی ارتش اسرائیل تأیید نشده.... Phantom 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17690
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشست سران قوا به میزبانی پزشکیان برگزار شد.
+
+صداوسیما: نشست سران قوا به میزبانی مسعود پزشکیان، رئیس‌جمهور و با حضور محمدباقر قالیباف، رئیس مجلس شورای اسلامی و حجت‌الاسلام والمسلمین غلامحسین محسنی اژه‌ای، رئیس قوه قضاییه برگزار شد.
+
+در این نشست، آخرین وضعیت و تحولات جاری کشور در ابعاد مختلف سیاسی، اقتصادی و اجتماعی و بین المللی واکاوی شد و سران سه قوه ضمن ارزیابی شرایط پس از جنگ اخیر، راهکارهای تقویت تاب‌آوری ملی، ارتقای انسجام نهادی، تسریع در جبران خسارات و بازسازی ظرفیت‌های آسیب‌دیده در جنگ اخیر را بررسی کردند.
+
+همچنین روند مذاکرات پیش‌رو، الزامات هماهنگی میان دستگاه‌های مسئول و راهبردهای صیانت از منافع ملی در چارچوب سیاست‌های کلان کشور، از دیگر محورهای مورد بحث و تبادل نظر در این نشست بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17689
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17689_1781970239.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌟
+☣️کانال 12 اسرائیل: نتانیاهو با توقف حملات ارتش اسرائیل به لبنان موافقت کرد.
+این خبر هنوز بصورت رسمی از سوی ارتش اسرائیل تأیید نشده....
+Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17688
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17688_1781970239.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیئت مذاکره‌کننده ایرانی میناب 168 راهی سوئیس شد.
+
+صداوسیما: هیئت مذاکره کننده ایرانی میناب 168 دقایقی قبل راهی زوریخ سوئیس شد. محمدباقر قالیباف رئیس مجلس و سیدعباس عراقچی وزیر خارجه، علی باقری معاون بین‌الملل دبیرخانه شورای‌عالی امنیت ملی، عبدالناصر همتی رییس بانک مرکزی، حمید بورد معاون وزیر نفت و رییس شرکت ملی نفت ایران،کاظم غریب ابادی و اسماعیل بقایی معاونین وزیرخارجه و ... اعضای هیئت اعزامی کشورمان را تشکیل می‌دهند.
+
+بنابر اعلام بقایی سخنگوی هیئت مذاکره کننده میناب 168، این سفر جهت پیگیری اجرای تعهدات طرف مقابل است و هر توافق و تفاهمی وقتی محک می خورد که زمان اجرای آن رسیده باشد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17687
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17687_1781970240.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام ادعای بسته شدن تنگه هرمز را رد کرد.
+
+سنتکام: ترافیک کشتی‌های تجاری در تنگه هرمز در 20 ژوئن افزایش یافت، زیرا نیروهای آمریکایی به عملیات خود در منطقه عمومی برای حمایت از آزادی دریانوردی ادامه دادند.
+
+عبور ایمن از این آبراه بین‌المللی امروز با عبور 55 کشتی تجاری که مقادیر زیادی محموله و بیش از 17 میلیون بشکه نفت را به بازارهای جهانی منتقل می‌کردند، همچنان برقرار بود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17686
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17686_1781970240.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به اعلام قرارگاه مرکزی خاتم‌الانبیا، تنگه هرمز بطور مجدد بسته شد. 📝 Amir 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17685
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17685_1781970241.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت خارجه: اگر بخشی از تعهدات طرف مقابل اجرا نشود کلیت تفاهم دچار مشکل می‌شود. طرف مقابل باید هرچه سریع‌تر تدابیر لازم را به کار بگیرد وگرنه کلیت تفاهم دچار مشکل خواهد شد. هیئت ایرانی برای پیگیری و مطالبۀ اجرای تعهدات طرف مقابل به سوئیس سفر خواهد…
+</div>
+
+## Persian_Trend_Official — post 17684
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17684_1781970242.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت خارجه: اگر بخشی از تعهدات طرف مقابل اجرا نشود کلیت تفاهم دچار مشکل می‌شود.
+
+طرف مقابل باید هرچه سریع‌تر تدابیر لازم را به کار بگیرد وگرنه کلیت تفاهم دچار مشکل خواهد شد.
+
+هیئت ایرانی برای پیگیری و مطالبۀ اجرای تعهدات طرف مقابل به سوئیس سفر خواهد کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 158547
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158547_1781970242.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رسانه‌های ایران گزارش دادند که هیئت مذاکره‌کنندهٔ جمهوری اسلامی به ریاست محمدباقر قالیباف و با حضور عباس عراقچی عازم سوئیس شده است.
+
+🔸بر اساس این گزارش، عبدالناصر همتی، رئیس کل بانک مرکزی، و علی باقری کنی، معاون بین‌الملل دبیرخانه شورای عالی امنیت ملی، نیز در این سفر حضور خواهند داشت.
+
+🔸کاظم غریب‌آبادی، معاون وزیر خارجه، اسماعیل بقائی، سخنگوری وزارت خارجه، و حمید بورد، معاون وزیر نفت، نیز از دیگر اعضای هیئت ایرانی هستند که عازم سوئیس شده‌اند.
+
+🔸پیش از انتشار این گزارش، بقائی تداوم جنگ در لبنان را «نقض صریح تفاهم» امضاشده بین ایران و آمریکا خوانده و در عین حال گفته بود هیئت ایرانی برای پیگیری و مطالبهٔ تعهدات طرف مقابل عازم سوئيس خواهد شد.
+
+🔸بر اساس گزارش‌های قبلی، استیو ویتکاف نیز راهی سوئیس شده تا به جرد کوشنر و تیم آمریکایی طرف مذاکره بپیوندد.
+
+🔸پاکستان قبلاً اعلام کرده بود مذاکرات فنی ایران و آمریکا از روز یکشنبه ۳۱ خرداد در سوئیس آغاز خواهد شد.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158546
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158546_1781970243.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ستاد فرماندهی مرکزی ارتش آمریکا، سنتکام، اعلام کرد تردد کشتی‌های تجاری در تنگه هرمز روز ۳۰ خرداد افزایش یافته و ۵۵ کشتی باری از این آبراه بین‌المللی عبور کرده‌اند.
+
+🔸سنتکام در پیامی در شبکه ایکس نوشت این کشتی‌ها بیش از ۱۷ میلیون بشکه نفت و مقادیر زیادی کالا را به بازارهای جهانی منتقل کرده‌اند.
+
+🔸به‌گفته سنتکام، عبور و مرور ایمن در تنگه هرمز همچنان برقرار است و مرکز مشترک اطلاعات دریایی نیز این هفته با انتشار اطلاعیه‌ای، ایمنی مسیر تعیین‌شده برای تردد کشتی‌ها را تأیید کرده است.
+
+🔸بیانیۀ سنتکام ساعاتی پس از آن منتشر شد که قرارگاه مرکزی خاتم‌الانبیاء اعلام کرد که در واکنش به تداوم حملات اسرائیل به جنوب لبنان، تنگه هرمز را به روی تردد شناورها می‌بندد.
+
+🔸سنتکام در بیانیۀ خود تأکید کرد نیروهای آمریکایی همچنان در منطقه حضور دارند و برای اطمینان از اجرای کامل توافق با ایران و حفظ آزادی کشتیرانی به فعالیت خود ادامه می‌دهند.
+
+🔸این نهاد نظامی پیش‌تر اعلام کرده بود که در چارچوب توافق اخیر با ایران، اجرای محاصره دریایی بنادر ایران را متوقف کرده است.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158545
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158545" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفت‌وگو با حمیدرضا عزیزی؛ بین خطوط تفاهم‌نامه ایران و آمریکا چیست؟
+
+🔸توافق اسلام‌آباد میان ایران و آمریکا، اگرچه هنوز نهایی نیست و بسیاری از مسائل قرار است طی ۶۰ روز آینده، یا حتی بیشتر، مورد مذاکره قرار گیرند، اما در مرحله نخست توانسته به جنگ علیه ایران پایان دهد؛ هرچند سازوگارهای اجرایی مفاد آن هنوز چندان روشن نیست. حمیدرضا عزیزی، پژوهشگر غیرمقیم در شورای خاورمیانه در امور جهانی و پژوهشگر حوزه بین‌الملل، از برلین در گفت‌وگو با برنامه خبری-تحلیلی «ایستگاه ۱۹» رادیو فردا تلاش کرده است درکی از آنچه این توافق پیش روی طرفین قرار می‌دهد، ارائه دهد.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158544
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه ایران: هیئت ایرانی عازم سوئيس می‌شود
+
+🔸سخنگوی وزارت خارجه ایران تداوم جنگ در لبنان را «نقض صریح تفاهم» امضاشده بین ایران و آمریکا خواند و در عین حال گفت هیئت ایرانی برای پیگیری و مطالبهٔ تعهدات طرف مقابل عازم سوئيس خواهد شد.
+
+🔸اسماعیل بقائی بعدازظهر شنبه ۳۰ خرداد گفت سفر برنامه‌ریزی‌شدهٔ عباس عراقچی به سوئیس که قرار بود روز جمعه انجام شود، پس از امضای دیجیتال یادداشت تفاهم میان رؤسای جمهور ایران و آمریکا لغو شد، زیرا به‌گفتهٔ او دیگر «فوریت اجرایی» نداشت.
+
+🔸او افزود سفر جدید هیئت ایرانی با هدف پیگیری اجرای تعهدات آمریکا و روشن شدن نحوه پایبندی طرف مقابل به مفاد تفاهم‌نامه انجام می‌شود.
+
+🔸آقای بقائی با اشاره به بند ۱۳ این تفاهم‌نامه گفت آغاز مذاکرات برای دستیابی به توافق نهایی، مشروط به آغاز و تداوم اجرای برخی تعهدات از سوی طرف مقابل است و این شرط هنوز محقق نشده است.
+
+🔸سخنگوی وزارت خارجه ایران گفت بند نخست تفاهم‌نامه، یعنی «خاتمه جنگ در همه جبهه‌ها از جمله لبنان»، مهم‌ترین بخش تعهدات متقابل طرفین است. او گفت ایران و آمریکا به تعهدات خود در «خاتمه محاصره دریایی و بازگشایی تنگه هرمز» عمل کرده‌اند، اما آمریکا نتوانسته اسرائیل را به توقف عملیات نظامی در لبنان وادار کند و از این رو تفاهم‌نامه «به‌صراحت نقض شده است».
+
+🔸دقایقی پیش از این اظهارات، قرارگاه مرکزی خاتم‌الانبیاء در بیانیه‌ای اعلام کرد که در واکنش به تداوم حملات اسرائیل به جنوب لبنان، تنگه هرمز را به روی تردد شناورها می‌بندد.
+
+🔸حملات اسرائیل به لبنان روز شنبه، تنها چند ساعت پس از اعلام آتش‌بس میان اسرائیل و حزب‌الله، از سر گرفته شد و بنا بر گزارش‌ها بیش از ۱۰ نفر کشته شدند. اسرائیل اعلام کرده است که این حملات در پاسخ به شلیک راکت و موشک از سوی حزب‌الله انجام شده است.
+
+🔸همزمان، وزارت خارجه سوئیس روز شنبه اعلام کرد گفت‌وگوها درباره اجرای تفاهم‌نامه میان ایران و آمریکا همچنان در بورگن‌اشتوک ادامه دارد. این وزارتخانه با اشاره به محرمانه بودن مذاکرات، از ارائه جزئیات درباره شرکت‌کنندگان و محتوای گفت‌وگوها خودداری کرد.
+
+🔸پیشتر وب‌سایت اکسیوس گزارش داده بود که استیو ویتکاف، فرستاده ویژه دونالد ترامپ، و عباس عراقچی برای گفت‌وگو درباره اجرای تفاهم‌نامه راهی سوئیس خواهند شد. جی‌دی ونس، معاون دونالد ترامپ، نیز بعدزاظهر شنبه اعلام کرد احتمالاً «طی چند روز آینده» به سوئیس سفر خواهد کرد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 23015
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیات مذاکره‌کننده ایران به ریاست قالیباف راهی سوئیس شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23014
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23014_1781970244.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بقایی:
+سفر به ژنو فاز دوم مذاکرات نیست
+
+سفر به ژنو فاز دوم مذاکرات نیست و صرفا برای امضای یادداشت تفاهم به صورت حضوری است.
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23013
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز :
+
+معاون رئیس‌جمهور آمریکا ونس: برنامه‌ ریزی ها برای بازدید از سوئیس
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23012
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23012_1781970246.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تظاهرات امروز ایرانیان سوئد، ۲۰ ژوئن به فرمان شاهزاده رضا پهلوی در همبستگی با مردم دلیر ایران و زندانیان در بند.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284502
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رسانه‌های ایران: هیئت ایرانی به سوئیس رفت
+
+رسانه‌های ایران می‌گویند که هیئت مذاکره کننده ایران به ریاست محمدباقر قالیباف، رئیس مجلس، و با همراهی عباس عراقچی، وزیر خارجه این کشور روانه سوئیس شده است.
+
+خبرگزاری‌ فارس به نقل از یک منبع نزدیک به تیم مذاکره‌کننده گزارش کرده که علی باقری کنی، معاون معاون دبیر شورای‌عالی امنیت، ملی نیز در این سفر حضور دارد.
+
+پیشتر اسماعیل بقایی، سخنگوی وزارت خارجه، گفته بود که هدف از این سفر «پیگیری اجرای تعهدات طرف مقابل» خواهد بود و به معنای «شروع فاز دوم مذاکرات نخواهد بود».
+
+این سفر در شرایطی است که قرارگاه مرکزی خاتم‌الانبیا اعلام کرده بود در واکنش به «عهدشکنی طرف مقابل» در حمله به جنوب لبنان، تنگه هرمز را بسته است.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سنتکام: در تنگه هرمز حاضر و هوشیار باقی می‌مانیم
+
+در پی اعلام بسته شدن تنگه هرمز توسط سپاه پاسداران، ارتش آمریکا روز شنبه اعلام کرد که در تنگه هرمز «حاضر و هوشیار» باقی می‌ماند.
+
+فرماندهی مرکزی ایالات متحده، سنتکام، در بیانیه‌ای اعلام کرد: «نیروهای آمریکایی همچنان(در تنگه هرمز) حضور دارند و هوشیار هستند تا اطمینان حاصل کنند که تمام ابعاد توافق با ایران رعایت و با قدرت و اثربخشی کامل اجرا می‌شود.»
+
+ساعاتی پیش سپاه پاسداران اعلام کرد در واکنش به آنچه «نقض بی‌وقفه و مستمر آتش‌بس» توسط اسرائیل خوانده، تنگه هرمز را بسته است.
+
+نیروی دریایی سپاه پاسداران از شناورها خواسته است که به تنگه هرمز نزدیک نشوند.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284500
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کمیته انضباطی دانشگاه صنعتی شریف برای شش دانشجوی خود به دلیل «نقش‌آفرینی در ناآرامی‌های اسفندماه، برگزاری و هدایت تجمعات غیرقانونی، هتاکی و فعالیت علیه نظام» حکم اخراج از دانشگاه صادر کرده است.
+
+رسانه‌های ایران نام‌های سپنتا سعیدی، حسین شادمان، مسیحا باقری، فاطمه خاکپور، فریبرز کهن‌زاد و پرنیان خدابخشی را در فهرست این دانشجویان منتشر کرده‌اند.
+
+به گفته کمیته انضباطی دانشگاه شریف، این احکام بدوی بوده و به صورت جداگانه صادر شده است.
+
+برخی از این احکام علاوه بر اخراج از دانشگاه، شمال محرومیت چندساله از ادامه تحصیل نیز می‌شود.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284499
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرتضی آخوندی،‌ عکاس هرمزگانی برای عکس هوایی از ردیف قبرهای کودکان مدرسه میناب برنده مدال طلای جشنواره بین‌المللی تک‌عکس طلایی (جی‌اس‌پی اواردز) شد آقای آخوندی به‌خاطر تصویر هوایی از تشییع دانش‌آموزان میناب که با موشک تاماهاک آمریکایی کشته شدند، در بخش عکس…
+</div>
+
+## BBCPersian — post 284497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرتضی آخوندی،‌ عکاس هرمزگانی برای عکس هوایی از ردیف قبرهای کودکان مدرسه میناب برنده مدال طلای جشنواره بین‌المللی تک‌عکس طلایی (جی‌اس‌پی اواردز) شد
+آقای آخوندی به‌خاطر تصویر هوایی از تشییع دانش‌آموزان میناب که با موشک تاماهاک آمریکایی کشته شدند، در بخش عکس خبری برنده مدال طلای عکاسی گلدن شات ۲۰۲۶ شد.
+
+مرتضی آخوندی که این عکس را با عنوان «میناب - ۱۶۸ دانش‌اموز» در این رقایت‌ها شرکت داده در توضیح این قاب نوشته است: «آرامگاه کودکانی که تنها “گناه” آنها بچگی‌شان بود… بی‌گناهانی که خاموششان کردند و تاریخ هرگز این جنایت را فراموش نخواهد کرد.»
+
+بنابر اعلام این جشنواره مدال‌ طلای عکاسی گلدن شات به برندگان رتبه نخست هر بخش از رقابت‌ها اهدا می‌شود. این مدال‌ها به آثاری تعلق می‌گیرد که بالاترین سطح خلاقیت، برتری فنی و بیان هنری را به نمایش گذاشته‌اند.
+
+وبسایت جایزه گلدن شات درباره جوایز عکاسی نوشته که «این مدال به عنوان نمادی ماندگار، به عکاسان برگزیده کمک می‌کند تا در سطح بین‌المللی بیشتر دیده شوند و از اعتبار گسترده‌تری برخوردار شوند.»
+</div>
+
+## BBCPersian — post 284496
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284496_1781970251.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻محسن نقوی» وزیر کشور پاکستان، در ادامه رایزنی‌های مقامات پاکستان درباره مذاکرات ایران و آمریکا، ظهر امروز با عباس عراقچی، وزیر امور خارجه ایران، دیدار و گفت‌وگو کرد.
+
+خبرگزار ایرنا گزارش داد آقای نقوی که بعد از زیارت حرم امام رضا به تهران سفر کرد، در دیدار با وزیر امور خارجه ایران به بررسی تازه‌ترین تصمیمات و تحولات در مورد «یادداشت تفاهم اسلام‌آباد» پرداخت. آقای نقوی صبح امروز وارد ایران شد و ابتدا به مشهد رفت.
+
+وزیر کشور پاکستان پیش از این در ۱۷ خرداد ماه هم به تهران سفر کرد و با وزیر امور خارجه ایران گفتگو کرد. او در این دیدار حامل پیام مکتوب شهباز شریف، نخست وزیر پاکستان برای مجتبی خامنه‌ای، رهبر جمهوری اسلامی ایران، بود.
+
+همزمان وزارت خارجه پاکستان در بیانیه‌ای گفته است که در ادامه امضای «تفاهم‌نامه اسلام‌آباد»، مذاکرات فنی در سطح کارشناسی در روز یکشنبه ۲۱ ژوئن ۲۰۲۶ در بورگن‌اشتوک در سوئیس برگزار خواهد شد.
+
+بر اساس این بیانیه نمایندگان آمریکا و ایران به همراه میانجی‌گرانی از پاکستان و قطر در این گفت‌وگوها شرکت خواهند کرد.
+
+📸Reuters
+
+https://bbc.in/4w6P9a9
+@BBCPersian
+</div>
+
+## BBCPersian — post 284495
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284495_1781970252.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اسماعیل بقایی، سخنگوی وزارت خارجه ایران، تداوم جنگ در لبنان را «نقض تفاهم‌نامه» میان ایران و آمریکا خواند و اعلام کرد هیئتی از ایران «برای پیگیری و مطالبه تعهدات طرف مقابل» به سوئیس می‌رود.
+
+با این حال اسماعیل بقایی، زمان این سفر را اعلام نکرد.
+
+وی در گفت‌و‌گو با تلویزیون دولتی ایران گفت هدف از این سفر «پیگیری اجرای تعهدات طرف مقابل» خواهد بود و به معنای «شروع فاز دوم مذاکرات نخواهد بود».
+
+سخنگوی وزارت خارجه ایران با اشاره به اینکه آمریکا تعهدات مندرج در بند سیزده تفاهم‌نامه را اجرا نکرده است، گفت که «در سوئیس قرار است دربارۀ اجرای تعهدات طرف مقابل مطالبه‌گری داشته باشیم و مشخص شود آن‌ها چطور می‌خواهند به تعهداتشان عمل کنند.»
+
+او حملات اسرائیل به لبنان را از جمله موارد نقض تفاهم‌نامه عنوان کرد.
+
+پیشتر قرار بود که روز جمعه، ۲۹ خرداد ماه، نمایندگان ایران و آمریکا در هتل بورگن‌اشتوک مذاکرات را آغاز کنند.
+
+📸Reuters
+
+https://bbc.in/4xLKegu
+@BBCPersian
+</div>
+
+## BBCPersian — post 284494
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_284494_1781970252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️سرخط خبرها، شنبه ۳۰ خرداد ۱۴۰۵
+@BBCPersian
+</div>
+
+## BBCPersian — post 284493
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284493_1781970255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻قرارگاه خاتم‌الانبیا در اطلاعیه‌ای اعلام کرده است که تنگۀ هرمز به روی شناورها «بسته خواهد شد.»
+
+در این اطلاعیه، دلیل این اقدام «بدعهدی‌ و پیمان‌شکنی آشکار» آمریکا در اجرای بند اول تفاهم‌نامه پایان جنگ، «نقض بی‌وقفه و مستمر آتش‌بس» توسط اسرائیل در جنوب لبنان و«کشتار بی‌رحمانه و آوارگی صدها هزار نفر» از شهروندان لبنانی عنوان شده است.
+
+در بند اول تفاهم‌نامه ایران و آمریکا آمده است که آمریکا، ایران و متحدان آنها «پایان فوری و دائمی» عملیات نظامی در «همه جبهه ها» از جمله لبنان را اعلام خواهند کرد.
+
+قرارگاه خاتم‌الانبیا «عدم عقب‌نشینی» نیروهای اسرائیلی از جنوب لبنان را از دیگر دلایل بسته شدن تنگه هرمز عنوان کرده است.
+
+این نهاد، این اقدام را «گام اول پاسخ به عهدشکنی دشمن» برشمرده است.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 284492
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284492_1781970256.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزارت خارجه سوئیس روز شنبه اعلام کرد که این کشور همچنان به ارائه «محیطی امن و قابل اعتماد» در بورگن‌استوک برای تسهیل مذاکرات در مورد اجرای یادداشت تفاهم بین ایالات متحده و ایران ادامه می‌دهد.
+
+این وزارت‌خانه در بیانیه‌ای افزود که به دلیل محرمانه بودن، جزئیات بیشتری در مورد شرکت‌کنندگان و محتوای مذاکرات فاش نخواهد شد.
+
+دیشب یک مقام آمریکایی به وب‌سایت خبری آکسیوس گفت که استیو ویتکاف، فرستاده کاخ سفید، در راه سوئیس است.
+
+به گفته این مقام، جرد کوشنر، داماد و دیگر فرستاده دونالد ترامپ، هم‌اکنون در سوئیس حضور دارد.
+
+📸AFP via Getty Images
+
+https://bbc.in/4uPIT5t
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392673
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392673_1781970257.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران هر روز سورپرایزت می‌کنه؛ خیلی جدی اومدن به مربیِ مرد شال دادن سرش کنه تا بتونه بیاد بالا سر خانوما وایسه تیم رو مربی‌گری کنه!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392672
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392672_1781970257.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق گزارش رسانه‌های اسرائیلی؛
+بنیامین نتانیاهو دستور آتش‌بس تو لبنان رو صادر کرد ولی ارتش اسرائیل گفته‌ از مناطقی که تصرف کردیم، عقب‌نشینی نمی‌کنیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392671
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392671_1781970258.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۵۰۰ تا پسر افتادن دنبال یه دختر تا بلندش کنن 😂😂😂 اعتقادات انقد عمیقه که با یه جنیفر لوپز میشه همشونو یزیدی کرد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392670
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392670_1781970259.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از طرفدارای حسین فقط تزریقی مزیریقیا موندن😂😂😂 یکیش توجیه نشده داره میرقصه @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392669
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392669_1781970259.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوباره محرم و اومد و جنگ و دعوا سر نذری گرفتن😂😂۲ تا زن سن بالای تو صف به خاطر یه قیمه همدیگه رو تیکه پاره میکنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392668
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏واقعا دخترا خیلی وقیح و پررو شدن، قبلا نصف پیتزاشون یا حداقل نصف سیب زمینیشون میموند، الان همشو میخورن.
+
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392667
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392667_1781970262.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه دختر بچه وسط جمع مردونه چیکار می‌کنه؟
+
++ خود عرزشیا پشماشون ریخته بود
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392666
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392666_1781970265.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا میگیم ج.ا همین الانم هم سقوط کرده!
+زمانی محرم احترام خاصی بین مردم و مخصوصا مذهبیون داشت و مردم عادی هم حرمت این ماه رو نگه میداشتند الان شده سیرک جنده و جنده‌بازان هر شهر و حکومت هم توان جمع کردن این سیرک رو نداره.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392665
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیروز اسباب‌کشی داشتیم.
+یارو اول کلا ۷ تومن طی کرد. کار که تموم شد گفت ۵۰ تومن، با بحث و اینا آوردش ۲۸ تومن. با فحش و تهدید و دعوا ۱۲ تومن بهش دادیم.
+مملکت در همه ابعاد و اقشار دزد پرورش میده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392664
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392664_1781970267.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهین صمدپور گفته مودب باشید. چشم از این به بعد کسی خواست تو صورت بچه ۱۱ ساله گلوله خالی کنه بهش می‌گیم قربونت بشم لطفا شلیک نکن. کصمادرت شاهین صمدپور. آقای شاهین صمدپور کاش مثل همون دی ماه لال میموندی.اونموقع که سیلاب خون‌ راه انداخته بودن تو از روی ادب…
+</div>
+
+## Dirty_Kids — post 392661
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهین صمدپور گفته مودب باشید. چشم از این به بعد کسی خواست تو صورت بچه ۱۱ ساله گلوله خالی کنه بهش می‌گیم قربونت بشم لطفا شلیک نکن.
+کصمادرت شاهین صمدپور.
+
+آقای شاهین صمدپور کاش مثل همون دی ماه لال میموندی.اونموقع که سیلاب خون‌ راه انداخته بودن تو از روی ادب سکوت کرده بودی درسته؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113741
+
+<div align="center">
+  <img src="telegram/content/Hranews_113741_1781970269.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصطفی محمدی و مجتبی یاور بازداشت و به زندان منتقل شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – مصطفی محمدی و مجتبی یاور، شهروندان ساکن دهلران امروز شنبه ۳۰ خردادماه، در این شهر #بازداشت و به زندان ایلام منتقل شدند.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، امروز شنبه ۳۰ خرداد ۱۴۰۵، مصطفی محمدی و مجتبی یاور بازداشت شدند.
+
+یک منبع نزدیک به خانواده یکی از این شهروندان ضمن تایید این موضوع به هرانا گفت: امروز ماموران مصطفی محمدی را در منزل شخصی‌اش بازداشت و به ساختمان دادگستری دهلران منتقل کردند. مجتبی یاور نیز برای پیگیری وضعیت و همراهی با آقای محمدی به یکی از شعب قضایی مستقر در دادگستری مراجعه کرده بود که با دستور رئیس این شعبه بازداشت شد. این دو شهروند پس از بازداشت به زندان ایلام منتقل شدند.
+
+ادامه مطلب
+
+#مصطفی_محمدی
+#مجتبی_یاور
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## Hranews — post 113740
+
+<div align="center">
+  <img src="telegram/content/Hranews_113740_1781970269.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«کبوتر صلح»، «جنگ» و «بازمانده»؛ سه شعر کوتاه از جمشید عزیزی
+
+کبوتر صلح
+در سینه‌خیز شعر
+بر زمینی که به‌جای خاک
+بوی باروت می‌دهد
+بعد از موشک‌باران آرزوها
+به‌دنبال پناهگاه دستان تو هستم
+ای کبوتر بی‌مرز
+زمین خسته‌ی ما
+دیگر تاب پوتین ندارد
+
+جنگ
+از آفتاب خون می‌تابد
+که کار و بارمان
+مثل همیشه لخته شده است!
+و چه عجیب کودکان پرنده می‌شوند
+می‌گویند: واقعیت تلخ است.
+می‌گویند: چاره‌ای نداشتیم.
+خبرگزاری‌ها بار دیگر می‌بافند
+آدم‌بزرگ‌ها تصمیم می‌گیرند
+آدم‌کوچک‌ها می‌میرند
+و خون تنها شعری‌ست که جاری می‌شود
+و این زخم‌ها خوب شدنی نیستند.
+
+بازمانده
+جنگ تمام شد
+من اما
+هنوز تنهایم
+هنوز خالی‌ام
+هنوز درد دارم
+و هنوز می‌ترسم
+مثل آپارتمانی که
+موشکی را خورده است!
+
+لینک اشعار در وبسایت خط صلح
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## Hranews — post 113739
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک زندانی در زندان مراغه اعدام شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – حکم یک زندانی که پیشتر از بابت اتهام قتل به #اعدام محکوم شده بود، در زندان مراغه اجرا شد.
+
+ادامه مطلب
+
+#علی_آقاحسینی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 129404
+
+<div align="center">
+  <a href="telegram/content/alonews_129404_1781970270.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سنتکام بسته شدن تنگه هرمز را تکذیب کرد و اعلام کرد این تنگه همچنان به روی تمام کشتی‌ها باز است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129403
+
+<div align="center">
+  <a href="telegram/content/alonews_129403_1781970270.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون ترامپ: احتمالا طی ۴۸ ساعت آینده به سوئیس خواهم رفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129402
+
+<div align="center">
+  <a href="telegram/content/alonews_129402_1781970270.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه ۱۲ اسرائیل: تصمیم نتانیاهو و کاتس برای آتش‌بس در لبنان با هماهنگی ایالات متحده اتخاذ شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129401
+
+<div align="center">
+  <a href="telegram/content/alonews_129401_1781970271.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله اسرائیل به غرب خان یونس در غزه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129400
+
+<div align="center">
+  <a href="telegram/content/alonews_129400_1781970271.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایران‌خودرو: دوباره گران می‌کنیم!
+‌
+
+🔴شرکت ایران‌خودرو اعلام کرد که اصلاحیهٔ قیمت محصولات شرکت که در ۲۸ خرداد منتشر شد تنها تا پایان عرضه دورهٔ سیزدهم اولویت بندی محصولات این شرکت معتبر است.
+
+
+🔴‌لذا پس از پایان این دورهٔ ثبت‌نام، قیمت‌های اعلام شده در ۲۷ خرداد ملاک قرار میگیرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129399
+
+<div align="center">
+  <a href="telegram/content/alonews_129399_1781970271.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 هواپیمای هیئت مذاکره کننده ایرانی در راه زوریخ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129398
+
+<div align="center">
+  <a href="telegram/content/alonews_129398_1781970272.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌ان‌ان: ونس امروز به سوئیس می‌رود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129397
+
+<div align="center">
+  <a href="telegram/content/alonews_129397_1781970272.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی ونس درباره ایران: من بسیار مطمئنم که می‌توانیم این آتش‌بس را حفظ کنیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129396
+
+<div align="center">
+  <a href="telegram/content/alonews_129396_1781970272.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / کانال ۱۲ عبری : نتانیاهو دستور توقف حملهِ‌ها به لُبنان رو صادر کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129395
+
+<div align="center">
+  <a href="telegram/content/alonews_129395_1781970273.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل (IDF) انجام دهها حمله هوایی در جنوب لبنان را در طول شب و صبح امروز تایید کرد، اما هرگونه اظهارنظر درباره تهاجم به تپه «علی الطاهر» در نزدیکی «نبطیه» را به طور کامل رد کرده و به جای آن، حملات را به «نقض آتش‌بس» توسط حزب‌الله نسبت می‌دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129394
+
+<div align="center">
+  <a href="telegram/content/alonews_129394_1781970273.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بدون شرح
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129393
+
+<div align="center">
+  <a href="telegram/content/alonews_129393_1781970273.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ملونی به ترامپ پاسخ داد: رئیس‌جمهور ترامپ، این حملات مداوم و بی‌دلیل بی‌معنی است. در مورد محبوبیتم، دوستی با شما قطعاً کمکی نکرده است و همچنین به رابطه من با شما بستگی ندارد.
+
+
+🔴محبوبیتم به توانایی من در دفاع از منافع ملی ایتالیا بستگی دارد، و این دقیقاً همان کاری است که همیشه انجام داده‌ام. این همچنین کاری است که در مورد پایگاه‌های نظامی آمریکا در ایتالیا انجام دادم. استفاده از آن‌ها توسط توافقاتی که همیشه به آن‌ها احترام گذاشته‌ایم، تنظیم می‌شود و تا زمانی که من نخست‌وزیر هستم، نمی‌توان آن‌ها را نقض کرد.
+
+
+🔴ایتالیا همچنان یک کشور مستقل است. به هر حال، محبوبیتم به شما مربوط نیست. پیشنهاد می‌کنم روی محبوبیت خودتان تمرکز کنید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129392
+
+<div align="center">
+  <a href="telegram/content/alonews_129392_1781970274.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 هم اکنون تردد بدون مشکل کشتی آمریکایی در تنگه هرمز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129391
+
+<div align="center">
+  <a href="telegram/content/alonews_129391_1781970274.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فکت:
+هروقت عراقچی تنها رفته مذاکره، جنگ شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129390
+
+<div align="center">
+  <a href="telegram/content/alonews_129390_1781970274.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه: قالیباف به ژنو نمی رود؛ عراقچی ریاست هیئت مذاکره‌کننده ایران با آمریکا را بر عهده خواهد داشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129389
+
+<div align="center">
+  <a href="telegram/content/alonews_129389_1781970274.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 نیروی دریایی سپاه: شناورها به تنگۀ هرمز نزدیک نشوند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129388
+
+<div align="center">
+  <a href="telegram/content/alonews_129388_1781970275.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی تیم مذاکره‌کننده: آغاز مذاکرات توافق نهایی، مشروط به اجرای بندهای پنج‌گانه تفاهم‌نامه است
+
+
+🔴طبق بند ۱۳ یادداشت تفاهم، آغاز مذاکرات برای توافق نهایی مشروط به شروع و تداوم اجرای تعهدات طرف مقابل بر اساس بندهای ۱، ۴، ۵، ۱۰ و ۱۱ است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129387
+
+<div align="center">
+  <a href="telegram/content/alonews_129387_1781970275.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی تیم مذاکره‌کننده: طبق بند ۱۳ یادداشت تفاهم، آغاز مذاکرات برای توافق نهایی مشروط به شروع و تداوم اجرای تعهدات طرف مقابل بر اساس بندهای ۱، ۴، ۵، ۱۰ و ۱۱ است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129386
+
+<div align="center">
+  <a href="telegram/content/alonews_129386_1781970275.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ایسنا: هیات مذاکره کننده ایران تا دقایقی دیگر عازم سوئیس می‌شوند 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129385
+
+<div align="center">
+  <a href="telegram/content/alonews_129385_1781970276.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ایسنا: هیات مذاکره کننده ایران تا دقایقی دیگر عازم سوئیس می‌شوند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 17:08
 ---
 
@@ -2646,8 +5060,6 @@ https://bbc.in/4ewZBjU
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
