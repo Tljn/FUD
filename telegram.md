@@ -7,6 +7,737 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/31 00:44
+---
+
+## VahidOOnLine — post 246583
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246583_1781990093.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، در راه سفر به سوئیس برای شرکت در مذاکرات روز یکشنبه با ایران، ابراز امیدواری کرد که واشنگتن و تهران بتوانند در خصوص «مسئله هسته‌ای» و همچنین «موضوع آتش‌بس در لبنان» به پیشرفت‌هایی دست یابند. ونس پیش از ترک واشنگتن در گفتگو با خبرنگاران اظهار داشت: «برخلاف آنچه در سرخط اخبار دیده می‌شود، اوضاع در لبنان در واقع رو به بهبود است و فضا کمی آرام‌تر شده است. این موضوعی است که ما باید به طور مداوم آن را مدیریت کنیم تا از امنیت کامل اسرائیل و لبنان مطمئن شویم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246582
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246582_1781990094.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمود نبویان، عضو کمیسیون امنیت ملی مجلس، با اشاره به مواضع مجتبی خامنه‌ای، رهبر جمهوری اسلامی، در ۱۵ فروردین، ۲۹ فروردین و ۴ اردیبهشت، در صداوسیما گفت او سه بار تصریح کرده است که در موضوع هسته‌ای، یا باید «به پیروزی برسیم» و طرف مقابل حق غنی‌سازی را کاملا به رسمیت بشناسد، یا این موضوع برای همیشه از دستور کار مذاکرات خارج شود.
+او افزود خامنه‌ای حتی مدیریت مشترک تنگه هرمز با عمان را هم نپذیرفته بود.
+این مصاحبه از سوی صداوسیما قطع شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فارس، خبرگزاری وابسته به سپاه با انتشار تصاویری از رسیدن کاروان تیم فوتبال ایران به هتل محل اقامت خود در لس‌آنجلس خبر داد. تیم فوتبال ایران قرار است در دومین دیدار جام‌جهانی خود، یکشنبه ساعت ۱۰:۳۰ شب (به وقت ایران) مقابل بلژیک به میدان برود. پیش از این، مهدی محمدنبی، نایب‌رییس فدراسیون فوتبال جمهوری اسلامی و سرپرست تیم ملی فوتبال اعلام کرده بود: «تمامی تیم‌های حاضر در مسابقات دو روز زودتر به محل بازی اعزام می‌شوند تا فرصت کافی برای تطبیق با شرایط محیطی و انجام تمرینات داشته باشند، اما تیم ملی ایران به دلیل مشکلات پروازی تنها یک روز زودتر راهی محل مسابقه می‌شود که این موضوع می‌تواند روی عملکرد تیم تاثیرگذار باشد. متاسفانه محدودیت‌هایی که برای تیم ملی کشورمان ایجاد شده، تنها به یکی دو مورد خلاصه نمی‌شود. از تغییر کمپ تیم ملی گرفته تا اعزام با تاخیر به محل برگزاری مسابقه، همگی شرایطی را رقم زده که به هیچ وجه با سایر تیم‌ها برابر نیست».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد در جریان برگزاری مراسم زادروز صهبا رشتیان، شهروند معترض کشته‌شده در انقلاب ملی، مادر این جاویدنام بر سر مزارش گفت که در کشتار بزرگ دی‌ماه «صدها هزار سال» از عمر پدران و مادرانی که فرزند تربیت کرده بودند، دود شد و به فنا رفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246579
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246579_1781990096.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی جی‌دی ونس، معاون رییس‌جمهوری آمریکا، اعلام کرد که ونس از واشینگتن به مقصد سوئیس پرواز کرده است.
+
+همزمان رسانه‌های ایران گزارش دادند که هیات مذاکره‌کننده جمهوری اسلامی به ریاست محمدباقر قالیباف، وارد سوئیس شد.
+
+پیش‌تر دفتر نخست‌وزیر پاکستان اعلام کرد که شهباز شریف و عاصم منیر، نخست‌وزیر و فرمانده ارتش این کشور یکشنبه در سوئیس در مذاکرات فنی آمریکا و جمهوری اسلامی شرکت خواهند کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246578
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246578_1781990097.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، اواخر بعدازظهر روز شنبه (به وقت شرق آمریکا) پایگاه مشترک «اندروز» را به مقصد «لوسرن» در سوئیس ترک کرد تا در مذاکرات جاری با ایران شرکت کند. پیش از پرواز او، استیو ویتکاف، فرستاده ویژه آمریکا، و جرد کوشنر، داماد دونالد ترامپ، برای بررسی و رسیدگی به ابعاد فنی این گفتگوها وارد خاک سوئیس شده بودند. ونس پیش از حرکت با اشاره به تغییرات پیاپی برنامه‌هایش طی هفته گذشته، هماهنگی‌های مربوط به این سفر را به یک «رقص هماهنگ ظریف» تشبیه کرد که در آن باید تمامی «سازوکارهای دیپلماتیک» به دقت در نظر گرفته شوند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تسنیم، خبرگزاری وابسته به سپاه، شنبه‌شب از ورود هیات مذاکره‌کننده جمهوری اسلامی ایران به زوریخ در سوئیس خبر داد. بر اساس این گزارش، محمدباقر قالیباف، رئیس مجلس شورای اسلامی و سرپرست تیم مذاکره‌کننده، عباس عراقچی، وزیر امور خارجه، علی باقری کنی، معاون بین‌الملل دبیرخانه شورای عالی امنیت ملی، عبدالناصر همتی، رئیس بانک مرکزی، کاظم غریب‌آبادی، معاون وزیر خارجه، اسماعیل بقایی، سخنگوی وزیر خارجه و حمید بورد، معاون وزیر نفت از اعضای اصلی این هیئت هستند. به گزارش «سی‌بی‌اس نیوز» تهران و واشنگتن قرار است روز یکشنبه در استراحتگاه مجلل «بورگن‌اشتوک» در سوئیس مذاکرات را آغاز کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246576
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش پایگاه اطلاع‌رسانی دولت، رئیس‌جمهوری اسلامی ایران روز شنبه در دیدار با وزیر کشور پاکستان از نقش سازنده اسلام‌آباد در حمایت از روندهای دیپلماتیک منجر به توافق پایان جنگ قدردانی کرد. مسعود پزشکیان در دیدار با محسن نقوی که در راس هیاتی به ایران سفر کرده است، بر «عزم تهران برای گسترش همکاری‌های همه‌جانبه با پاکستان» تاکید کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246575
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246575_1781990097.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ایرانی به سی‌ان‌ان گفت که مذاکرات یکشنبه بخشی از مذاکرات رسمی پیش‌بینی‌شده در یادداشت تفاهم میان آمریکا و جمهوری اسلامی محسوب نمی‌شود، زیرا سایر مفاد هنوز اجرا نشده‌اند؛ به‌ویژه بند نخست که شامل پایان جنگ در لبنان است.
+
+یک مقام ایرانی به سی‌ان‌ان گفت که پایان دادن به درگیری در لبنان مهم‌ترین موضوع در دستور کار هیات ایرانی در روز یکشنبه است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15463
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15463_1781990098.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+️جی‌دی ونس : «من مشتاقانه منتظر شروع مذاکرات فنی با ایرانی‌ها، پاکستانی‌ها و قطری‌ها هستم...»
+@withyashar
+</div>
+
+## WithYashar — post 15462
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان: «ونس» از پایگاه هوایی مشترک اندروز، برای شرکت در مذاکرات با ایران راهی سوئیس شد.
+@withyashar
+</div>
+
+## WithYashar — post 15461
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15461_1781990099.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیئت مذاکره کننده ایران، با اسم میناب ۱۶۸، وارد زوریخ سوئیس شد.
+
+ونس معاون ترامپ برای شرکت تو مذاکرات با ایران،راهی سوئیس شد.
+@withyashar
+</div>
+
+## WithYashar — post 15460
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام یاشار جان
+باور کن محرم شده میرن بیرون الواطی برای همین ری اکشنا اومده پایین😐
+</div>
+
+## WithYashar — post 15459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شیفت شبی آ فوتبال میبینن
+</div>
+
+## WithYashar — post 15458
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15458_1781990101.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیده شدن همای سعادت در ارتفاع پنج هزار متری دماوند
+@withyashar
+</div>
+
+## WithYashar — post 15457
+
+
+
+
+## WithYashar — post 15456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بی‌بی‌سی‌: کیر استارمز نخست وزیر بریتانیا دوشنبه استعفا میده
+@withyashar
+</div>
+
+## WithYashar — post 15455
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15455_1781990103.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ای .. ..
+@withyashar
+</div>
+
+## mwarmonitor — post 11294
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11294_1781990104.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 بالاخره کاروان عشاق به مقصد رسید و هواپیمای اختصاصی بر زمین نشست تا «مملی» به همراه «عباس» و چندتا خدنگِ جیره‌خوار و دست‌آموز، برای عرض ارادت و دم تکاندن وارد سوئیس شوند. این جماعتِ همیشه غایب در روزهای سخت، حالا با کت‌وشلوارهای اتوکشیده و لبخندهای کریه، آماده‌اند تا فردا پشت تریبون بروند و با وقاحت تمام اعلام کنند: «ما همین چند ساعت پیش با امام زمان صحبت کردیم؛ ایشان فرمودند خودشان شخصاً می‌آیند و انتقام موشعلی از شما مستکبرین می‌گیرند، شما اصلاً نگران نباشید، فقط به مذاکراتِ نان‌وآب‌دارِ خودتان ادامه دهید که حفظ نظام از اوجب واجبات است!» تماشای این خدنگ‌های بی‌خاصیت که این‌گونه برای چند روز اقامت در هتل‌های لوکس سویس به دست‌بوسیِ اربابانشان می‌روند، اوج طنز سیاه روزگار ماست؛ سیرکِ وقاحت و دلقک‌هایی که سهم مردم را جنگ و فقر کرده‌اند و سهم خودشان را سفرهای فرست‌کلاس و چای قندپهلو در ژنو.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11293
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ونس واشنگتن را ترک کرد و به سمت سوئیس عازم شد.
+</div>
+
+## FoxNewsTwitter — post 343214
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Country roads, take me home..."
+
+USMNT fans serenaded the team with a rendition of “Take Me Home, Country Roads” after another strong World Cup performance.
+
+Thousands celebrated the 2-0 win over Australia in Seattle as players soaked it in, fans sang every word, and for a few minutes the celebration echoed throughout the stadium.
+</div>
+
+## pm_afshaa — post 94481
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94481_1781990105.mov" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تیم کودتا کنندگان جمهوری اسلامی هم به زوریخ سوئیس رسیدن :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94480
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94480_1781990106.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس راهی سوئیس شد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94479
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94479_1781990107.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس راهی سوئیس شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94478
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94478_1781990108.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بی‌بی‌سی: کیر استارمر، نخست وزیر بریتانیا روز دوشنبه استعفا میده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103748
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103748_1781990109.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📺 فیلم کامل سخنان نبویان تا لحظه قطع آنتن
+
+
+
+📝 محمود نبویان، عضو کمیسیون امنیت ملی مجلس، با اشاره به مواضع مجتبی خامنه‌ای، رهبر جمهوری اسلامی، در ۱۵ فروردین، ۲۹ فروردین و ۴ اردیبهشت، در صداوسیما گفت او سه بار تصریح کرده است که در موضوع هسته‌ای، یا باید «به پیروزی برسیم» و طرف مقابل حق غنی‌سازی را کاملا به رسمیت بشناسد، یا این موضوع برای همیشه از دستور کار مذاکرات خارج شود.
+او افزود خامنه‌ای حتی مدیریت مشترک تنگه هرمز با عمان را هم نپذیرفته بود.
+این مصاحبه از سوی صداوسیما قطع شد.
+IranIntl
+
+
+
+📝 استعفای مدیر شبکه خبر پس از اظهارات نبویان درباره مذاکره با آمریکا، منتسب به مجتبی خامنه‌ای
+
+
+
+📝 صدا و سیما خواستار پیگرد قضایی نبویان به‌دلیل خواندن نامه‌های به‌کلی سری مجتبی خامنه‌ای شد
+
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 343454
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343454_1781990110.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمود نبویان، عضو کمیسیون امنیت ملی مجلس، با اشاره به مواضع مجتبی خامنه‌ای، رهبر جمهوری اسلامی، در ۱۵ فروردین، ۲۹ فروردین و ۴ اردیبهشت، در صداوسیما گفت او سه بار تصریح کرده است که در موضوع هسته‌ای، یا باید «به پیروزی برسیم» و طرف مقابل حق غنی‌سازی را کاملا به رسمیت بشناسد، یا این موضوع برای همیشه از دستور کار مذاکرات خارج شود.
+او افزود خامنه‌ای حتی مدیریت مشترک تنگه هرمز با عمان را هم نپذیرفته بود.
+این مصاحبه از سوی صداوسیما قطع شد.
+</div>
+
+## IranIntlTV — post 343453
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343453_1781990112.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم‌های فوتبال ایران و بلژیک در دومین بازی خود در جام جهانی ۲۰۲۶، یکشنبه ۳۱ خرداد ۱۴۰۵ در استادیوم سوفای لس‌آنجلس به مصاف یکدیگر می‌روند، به نظر شما این بازی با چه نتیجه‌ای به پایان می‌رسد؟
+
+🔹برای شرکت در این نظرسنجی، به صفحه اینستاگرام ایران اینترنشنال ورزشی مراجعه کنید؛👇
+https://www.instagram.com/p/DZyOXITghRy/
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد در جریان برگزاری مراسم زادروز صهبا رشتیان، شهروند معترض کشته‌شده در انقلاب ملی، مادر این جاویدنام بر سر مزارش گفت که در کشتار بزرگ دی‌ماه «صدها هزار سال» از عمر پدران و مادرانی که فرزند تربیت کرده بودند، دود شد و به فنا رفت.
+</div>
+
+## IranIntlTV — post 343451
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343451_1781990112.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی جی‌دی ونس، معاون رییس‌جمهوری آمریکا، اعلام کرد که ونس از واشینگتن به مقصد سوئیس پرواز کرده است.
+
+همزمان رسانه‌های ایران گزارش دادند که هیات مذاکره‌کننده جمهوری اسلامی به ریاست محمدباقر قالیباف، وارد سوئیس شد.
+
+پیش‌تر دفتر نخست‌وزیر پاکستان اعلام کرد که شهباز شریف و عاصم منیر، نخست‌وزیر و فرمانده ارتش این کشور یکشنبه در سوئیس در مذاکرات فنی آمریکا و جمهوری اسلامی شرکت خواهند کرد.
+https://iranintl.com/202606202532
+</div>
+
+## IranIntlTV — post 343450
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343450_1781990113.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دسترسی به حساب‌های کاربری برخی از سازمان‌های فعال در حوزه حقوق اقلیت‌های جنسی و جنسیتی، حقوق زنان و حقوق بشر در شبکه ایکس در ترکیه محدود شده است. این محدودیت‌ها در پی درخواست دولت ترکیه و در چارچوب قوانین محلی این کشور اعمال شده‌اند.
+
+گزارش فرزیا ثابتی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 343449
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343449_1781990114.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ایرنا گزارش داده که تاکنون بیش از ۱۴ هزار و ۵۰۰ بلیت به مبلغ تقریبا ۲ میلیارد و ۷۰۰ میلیون تومان، برای پخش مسابقه تیم ملی فوتبال برابر بلژیک در سینماها فروخته شده است.
+
+🔹بر اساس این گزارش، پلتفرم سینماتیکت با فروش بیش از ۱۱ هزار بلیت و ثبت تراکنش نزدیک به ۲ میلیارد و ۱۰۰ میلیون تومان، بیش از ۸۱ درصد از بازار فروش آنلاین بلیت این رویداد را به خود اختصاص داده است.
+
+🔹آمار این سامانه نشان می‌دهد استان تهران با سهم ۵۱ درصدی از کل فروش، بیشترین میزان خرید بلیت را داشته است. خراسان رضوی با ۲۴ درصد و اصفهان با ۶ درصد در رتبه‌های بعدی قرار دارند.
+
+🔹نکته اینکه برای بازی اول تیم ملی فوتبال برابر نیوزیلند، مجوز پخش مسابقه در سینماها صادر نشده بود.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343448
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343448_1781990114.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻هواپیمای حامل تیم ملی فوتبال ایران دقایقی پیش برای برگزاری دیدار برابر بلژیک وارد فرودگاه بین‌المللی لس‌آنجلس شد. شاگردان قلعه‌نویی بلافاصله پس از خروج از فرودگاه و حضور در هتل محل اقامت، راهی استادیوم محل برگزاری مسابقه خواهند شد تا تمرین پیش از مسابقه را برگزار کنند.
+
+🔹همچنین امیر قلعه‌نویی و سعید عزت‌اللهی در نشست خبری پیش از این بازی حاضر خواهند بود.
+
+🔹پیش از این سفر مهدی محمدنبی، نایب‌رییس فدراسیون و سرپرست تیم ملی فوتبال که موفق به حضور در آمریکا هم نشده، گفته بود: «تمامی تیم‌های حاضر در مسابقات دو روز زودتر به محل بازی اعزام می‌شوند تا فرصت کافی برای تطبیق با شرایط محیطی و انجام تمرینات داشته باشند، اما تیم ملی ایران به دلیل مشکلات پروازی تنها یک روز زودتر راهی محل مسابقه می‌شود که این موضوع می‌تواند روی عملکرد تیم تاثیرگذار باشد.»
+
+🔹نبی گفته بود: «متاسفانه محدودیت‌هایی که برای تیم ملی کشورمان ایجاد شده، تنها به یکی دو مورد خلاصه نمی‌شود. از تغییر کمپ تیم ملی گرفته تا اعزام با تاخیر به محل برگزاری مسابقه، همگی شرایطی را رقم زده که به هیچ وجه با سایر تیم‌ها برابر نیست.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343447
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343447_1781990115.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ایرانی به سی‌ان‌ان گفت که مذاکرات یکشنبه بخشی از مذاکرات رسمی پیش‌بینی‌شده در یادداشت تفاهم میان آمریکا و جمهوری اسلامی محسوب نمی‌شود، زیرا سایر مفاد هنوز اجرا نشده‌اند؛ به‌ویژه بند نخست که شامل پایان جنگ در لبنان است.
+
+یک مقام ایرانی به سی‌ان‌ان گفت که پایان دادن به درگیری در لبنان مهم‌ترین موضوع در دستور کار هیات ایرانی در روز یکشنبه است.
+https://iranintl.com/202606202079
+</div>
+
+## IranIntlTV — post 343446
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343446_1781990115.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حاشیه تجمع ایرانیان برای برافراشتن پرچم شیر و خورشید در ساختمان شهرداری شهر بری کانادا، الن بستاکیان، مشاور پروژه شکوفایی ایران، گفت: «هر ملتی برای گردهم آمدن حول یک هدف مشترک، به نمادی ملی نیاز دارد که مردم بتوانند خود را در آن بازتاب دهند.»
+
+او افزود: «بخش بزرگی از جامعه ایران پرچم شیر و خورشید را نمادی برای هویت ملی می‌داند؛ نمادی که می‌تواند حس همبستگی و تعلق ملی ایجاد کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343445
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343445_1781990117.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ده‌ها نفر از فعالان حقوق زنان و اعضای جامعه افغانستان در واشینگتن در حمایت از زنان افغانستان و در اعتراض به آپارتاید جنسیتی تجمع کردند.
+
+برگزارکنندگان می‌گویند این راهپیمایی با هدف جلب توجه افکار عمومی به محرومیت میلیون‌ها زن و دختر افغان از حق تحصیل، کار و آزادی‌های اساسی و درخواست اقدام جدی‌تر جامعه جهانی برگزار شده است.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال و گفت‌وگو با زحل صمیم، یکی از برگزارکنندگان
+@iranintltv
+</div>
+
+## FarsiVOA — post 221364
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221364_1781990119.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی‌دی ونس، معاون رئيس‌جمهوری آمریکا، روز شنبه برای مذاکره با جمهوری اسلامی عازم سوئيس شد. آقای ونس پیش از سوار شدن به هواپیما،گفت: «مشتاقم مذاکرات فنی با نمایندگان [جمهوری اسلامی] ایران، پاکستان و قطر را آغاز کنیم. امیدواریم هم در مسئله هسته‌ای و هم در موضوع آتش‌بس لبنان پیشرفت کنیم. این دو محور، مهم‌ترین موضوعاتی است که به نظرم مورد توجه ما خواهند بود.»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221362
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221362_1781990119.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️با وجود تکرار تهدیدات سپاه پاسداران علیه تنگه هرمز، رسانه‌های حکومتی در ایران خبر دادند که مذاکره‌کنندگان جمهوری اسلامی وارد شهر زوریخ در سوئیس شدند. تصاویر منتشر شده محمدباقر قالیباف، رئیس مجلس شورای اسلامی و عباس عراقچی، وزیر خارجه را در بین این هیئت نشان می‌دهد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221361
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پنج سرباز اسرائیلی در دو حمله جداگانه در جنوب لبنان کشته شدند
+
+▪️ارتش اسرائیل اعلام کرد پنج سرباز این کشور در دوحمله جداگانه در جنوب لبنان کشته شده‌اند؛ چهار تن از آنان بامداد جمعه در پی اصابت یک شیء به تانکشان کشته شدند و یک سرباز دیگر نیز در حمله‌ای منتسب به گروه حزب‌الله کشته شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/fighting-kills-five-israeli-troops/8163001.html
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 126251
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 نیمه اول | جام جهانی ۲۰۲۶؛ آلمان صفر − ساحل عاج یک
+
+در دومین دیدار گروه ای(E) جام جهانی، آلمان در پایان نیمه نخست با یک گل از ساحل عاج عقب افتاد. آلمان در دقیقه ۲۲ توپ را وارد دروازه کرد، اما گل پس از بازبینی ویدیویی به دلیل خطای پاولوویچ روی دروازه‌بان ساحل عاج مردود شد.
+در دقیقه ۳۹ هم گل کای هاورتز به دلیل خطای جمال موسیالا در صحنه قبل از گل پذیرفته نشد. ساحل عاج اما در دقیقه ۳۰ با شوت زمینی فرانک کاسیه به گل رسید و نیمه اول را با برتری به پایان برد.
+این دیدار در ورزشگاه ۴۵ هزار نفری تورنتو برگزار می‌شود.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17707
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17707_1781990119.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث سوشال: در طول دوره آتش بس، به مدت 60 روز هیچ عوارضی در تنگه هرمز وجود نخواهد داشت و پس از انقضای دوره 60 روزه نیز هیچ عوارضی وجود نخواهد داشت، مگر اینکه توسط ایالات متحده آمریکا و برای آن وضع شده باشد.
+
+این توافق نباید تکمیل شود، زیرا به عنوان فرشته نگهبان به کشورهای خاورمیانه برای بازپرداخت هزینه‌ها در گذشته، حال و آینده خدمات ارائه شده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 23035
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23035_1781990120.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنان زنده‌‌یاد مانوک خدابخشیان در سال ۱۳۹۸.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23034
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23034_1781990121.mov" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ورود قالیباف و عراقچی به سوئیس.
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هیئت مذاکره‌کننده جمهوری اسلامی وارد سوئیس شدند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23032
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23032_1781990122.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😏😏😏
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23031
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ونس هم از واشنگتن حرکت کرد به سمت سوئیس
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23030
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عراقچی در راه سوئیس @IranianMinds
+</div>
+
+## BBCPersian — post 284525
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284525_1781990123.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ، رئیس‌جمهوری آمریکا، می‌گوید در دوره آتش‌بس، به مدت ۶۰ روز، هیچ عوارضی برای عبور از تنگه هرمز دریافت نخواهد شد.
+
+او در شبکه اجتماعی تروث سوشال نوشت پس از پایان این دوره نیز عوارضی دریافت نمی‌شود، مگر آن‌که توافق نهایی نشود.
+
+آقای ترامپ گفت که در این صورت، ایالات متحده ممکن است برای جبران هزینه‌های گذشته، حال و آینده خود عوارض وضع کند.
+
+او همچنین نقش آمریکا در قبال کشورهای خاورمیانه را «فرشته نگهبان» توصیف کرد.
+
+📸 Getty
+
+https://bbc.in/4uSiKmu
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392700
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392700_1781990123.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه عقل این دختربچه رو عرزشیا داشتن ایران بهترین کشور برای زندگی بود
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392699
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392699_1781990124.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یه دختر 140 کیلویی پرید بغل دوس پسرش و دوس پسرش له شد و مُرد.
+
++ دختر رو به جرم قتل دستگیر کردن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392698
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392698_1781990125.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینا با خودشون اینکارو میکنن ببینید با مردم چیکار میکنن!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129466
+
+<div align="center">
+  <a href="telegram/content/alonews_129466_1781990127.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈این وسط ساعت رولکس امیر نیوکاسل در مکزیک دزدیده شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129465
+
+<div align="center">
+  <a href="telegram/content/alonews_129465_1781990127.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جی‌دی ونس :
+«من مشتاقانه منتظر شروع مذاکرات فنی با ایرانی‌ها، پاکستانی‌ها و قطری‌ها هستم...»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129464
+
+<div align="center">
+  <a href="telegram/content/alonews_129464_1781990128.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ویدیویی از راهی شدن جی‌دی ونس به سوئیس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129463
+
+<div align="center">
+  <a href="telegram/content/alonews_129463_1781990130.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈همه رفتن سوئیس فقط آقامجتبی مونده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129462
+
+<div align="center">
+  <a href="telegram/content/alonews_129462_1781990130.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گویا بعد از اظهارات ضد امنیت ملی توسط نبویان، تنگه وی هم اکنون درحال باز شدن است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129461
+
+<div align="center">
+  <a href="telegram/content/alonews_129461_1781990130.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصاویری از ورود تیم مذاکره کننده ایرانی به سوئیس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129460
+
+<div align="center">
+  <a href="telegram/content/alonews_129460_1781990131.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس هنگام عزیمت به سوئیس: امیدواریم در مسئلهٔ آتش‌بس در لبنان پیشرفت حاصل کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129459
+
+<div align="center">
+  <a href="telegram/content/alonews_129459_1781990132.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هیئت مذاکره کننده ایران وارد زوریخ سوئیس شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129458
+
+<div align="center">
+  <a href="telegram/content/alonews_129458_1781990132.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / جی‌دی ونس، معاون رئیس جمهور آمریکا برای پیوستن به مذاکرات بل ایران ، واشنگتن را به مقصد سوئیس ترک کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129457
+
+<div align="center">
+  <a href="telegram/content/alonews_129457_1781990132.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ بی‌بی‌سی‌: کیر استارمز نخست وزیر بریتانیا دوشنبه استعفا میده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/30 23:50
 ---
 
