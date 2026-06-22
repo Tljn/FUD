@@ -7,6 +7,1093 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/02 03:02
+---
+
+## VahidOOnLine — post 246919
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246919_1782171157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایمان عطارزاده، سخنگوی کمیته برگزاری مراسم تشییع و خاکسپاری علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، گفت این مراسم با شعار «باید برخاست» و با نماد «مشت گره‌کرده» برگزار می‌شود.
+او افزود مراسم تشییع روز دوشنبه ۱۵ تیر در تهران، سه‌شنبه ۱۶ تیر در قم و چهارشنبه ۱۷ تیر در شهرهای نجف و کربلای عراق برگزار خواهد شد.
+به گفته عطارزاده، جنازه علی خامنه‌ای در نهایت روز پنج‌شنبه ۱۸ تیر، هم‌زمان با ۲۴ محرم و شب «شهادت امام سجاد، جد ایشان»، در حرم «امام رضا» به خاک سپرده خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246918
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در جریان نشست مطبوعاتی در کاخ سفید با اشاره به آزادسازی بخشی از دارایی‌های مسدودشده ایران گفت: «تمام این پول‌ها در قالب خرید مواد غذایی که آن‌ها نیاز مبرم به آن دارند، به کشور ما بازمی‌گردد. آن‌ها ۹۱ میلیون جمعیت دارند که نمی‌توانند غذایشان را تامین کنند و در نتیجه، پولی که ما آزاد می‌کنیم عمدتا به جیب کشاورزان خودمان می‌رود.» ترامپ در پاسخ به پرسش خبرنگاران درباره احتمال استفاده ایران از درآمدهای نفتی برای بازسازی صنایع نظامی افزود: «آن‌ها قرار نیست چنین کاری بکنند. این مبالغ باید برای خرید اقلام غذایی هزینه شود و آن‌ها اکنون این محصولات از جمله ذرت و سویا را به‌طور انحصاری از ما خریداری می‌کنند که امیدوارم حجم مالی این مبادلات بسیار بالا باشد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246917
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246917_1782171158.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنیامین نتانیاهو، نخست‌وزیر اسرائیل، یسرائیل کاتز، وزیر دفاع، ایال زمیر، رئیس ستاد کل ارتش و رافی میلو، فرمانده جبهه شمالی، در جریان یک گفتگوی تلفنی مشترک بر تداوم اقدامات نظامی در خاک لبنان تاکید کردند. نتانیاهو، کاتز و زمیر در بیانیه‌ای مشترک اعلام کردند: «ارتش اسرائیل به اقدامات قاطع خود برای خنثی کردن تهدیدها علیه سربازان و شهروندان ما، نابودی زیرساخت‌های تروریستی و حفظ منطقه امنیتی در جنوب لبنان ادامه خواهد داد.» مقامات ارشد سیاسی و نظامی اسرائیل در پایان این بیانیه صراحتا تاکید کردند که امنیت شهروندان غیرنظامی و نیروهای نظامی ارتش اسرائیل، کماکان و بدون هیچ‌گونه سازشی، در اولویت اصلی و پیش چشمان آن‌ها قرار خواهد داشت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246916
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246916_1782171159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز دوشنبه در جمع خبرنگاران اعلام کرد که هرگونه اموال و دارایی آزادشده ایران، منحصرا برای خرید مواد غذایی از ایالات متحده استفاده خواهد شد و این مبالغ در قالب خرید محصولات کشاورزی به کشاورزان آمریکایی بازمی‌گردد. ترامپ با ادعای اینکه ایران با جمعیت ۹۱ میلیون نفری نیاز مبرمی به این اقلام دارد، بر این سازوکار تاکید کرد. با این حال، عبدالناصر همتی، رئیس کل بانک مرکزی ایران با اشاره به اینکه تهران طبق توافق‌های موجود، هیچ‌گونه الزامی برای خرید نهاده‌های کشاورزی و اقلام غذایی از ایالات متحده ندارد گفت:‌ «اگر نرخ و کیفیت نهاده‌های آمریکایی در مقایسه با سایر کشورها مناسب‌تر باشد، مانعی برای خرید از آن کشور نداریم».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246915
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246915_1782171160.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس جمهوری آمریکا روز دوشنبه، اول تیرماه، از آزادسازی بخشی از دارایی‌های ایران خبر داد و درباره نحوه استفاده از این دارایی‌ها گفت آمریکا از قطر خواسته است در ایجاد سازوکاری برای نظارت بر هزینه‌کرد این منابع مالی همکاری کند تا اطمینان حاصل شود پول‌ها در مسیری که واشنگتن تعیین کرده مصرف می‌شوند. او افزود دولت قطر با این درخواست موافقت کرده است. همزمان، عبدالناصر همتی، رئیس کل بانک مرکزی درباره دارایی‌های آزاد شده ایران گفت: اصولا مبنا و اساس نحوه استفاده از ۶ میلیارد دلار اول براساس متن توافق امضا شده در سال ۱۴۰۲ بین ایران و امریکا است که در برگیرنده کالاهای اساسی و دارو خواهد بود. همتی با اعلام این خبر تاکید کرد که دسترسی به این منابع به تدریج و تحت شرایط مشخصی در روزهای آینده عملیاتی خواهد شد.
+دونالد ترامپ، رئیس‌جمهوری آمریکا، نیز با اعلام اینکه پول‌های آزادشده ایران صرفا برای خرید انحصاری مواد غذایی از ایالات متحده استفاده خواهد شد و سود آن به کشاورزان آمریکایی می‌رسد، اعلام کرد که تهران برای تامین نیازهای غذایی جمعیت خود به این منابع نیاز مبرم دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246914
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246914_1782171161.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو، یسرائیل کاتز، وزیر دفاع اسرائیل، و رییس ستاد کل ارتش اسرائیل در بیانیه‌ای مشترک اعلام کردند که ارتش این کشور به اقدام برای «خنثی کردن» تهدیدها علیه سربازان و شهروندان اسرائیلی، نابود کردن زیرساخت‌های گروه‌های مسلح و حفظ منطقه امنیتی در جنوب لبنان ادامه خواهد داد.
+در این بیانیه آمده است که این سه مقام «به‌روشنی اعلام کردند که امنیت شهروندان اسرائیلی و نیروهای ارتش اسرائیل، بدون هیچ‌گونه مصالحه‌ای، همچنان اصل راهنمای آنها باقی خواهد ماند.»
+
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246913
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246913_1782171162.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خارجه عمان در ایکس نوشت که در گفت‌وگو با مذاکره‌کنندگان ایرانی، بر پایبندی به حقوق بین‌الملل و تضمین عبور امن و بدون عوارض از تنگه هرمز تاکید شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246912
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246912_1782171163.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمدباقر قالیباف، سرپرست تیم مذاکره‌کننده جمهوری اسلامی ایران، در واکنش به صحبت یکی از مجری‌های صداوسیما با انتشار پیامی در اکس نوشت: «در یکی از برنامه‌های صداوسیما دیدم که گفتند کاش فرودگاه مهرآباد را می‌بستند تا تیم مذاکره‌کننده به سوئیس نرود. به آن عزیزان می‌گویم اگر به سوئیس نمی‌رفتیم، هر لحظه خون بیشتری از مسلمانان و شیعیان لبنان ریخته می‌شد.» پیش از این، روز شنبه، یکی از مجری‌های صداوسیما گفته بود: «در کنار بستن تنگه هرمز باید فرودگاه مهرآباد را هم می‌بستیم تا مسئولان برای مذاکره نروند.»
+قطر و پاکستان در بیانیه مشترکی در پایان نشست لوسرن، اعلام کردند که در جریان ۱۸ ساعت مذاکره، آمریکا و رژیم ایران توافق کرده‌اند یک «مرکز کاهش تنش» با همکاری لبنان و میانجی‌ها ایجاد کنند تا «پایبندی به توقف عملیات نظامی در لبنان» تضمین شود.
+این در حالی است که بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز دوشنبه اول تیرماه تاکید کرد دستورالعمل‌های او و وزیر دفاع به ارتش این کشور «واضح و بدون تغییر» باقی مانده است و نیروهای اسرائیلی در جنوب لبنان «آزادی عمل کامل» دارند تا هرگونه تهدید مستقیم یا احتمالی علیه خود و ساکنان مناطق شمالی اسرائیل را خنثی کنند و در این زمینه هیچ محدودیتی برای ارتش وجود ندارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246911
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246911_1782171164.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالناصر همتی، رییس کل بانک مرکزی، گفت: بر اساس یادداشت‌های امضا شده، هیچ الزامی برای خرید نهاده‌های کشاورزی از آمریکا نداریم.
+او افزود: اگر نرخ و کیفیت نهاده‌های آمریکایی در مقایسه با سایر کشورها مناسب‌تر باشد، مانعی برای خرید از آن کشور نداریم.
+همتی اضافه کرد طی سال‌های اخیر خریدهای جهاد کشاورزی از طریق شرکت‌های بزرگ آمریکایی و اروپایی بوده است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15642
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/withyashar
+
+یه لول اومدیم پایین ایموجی کم شد لطفا اگر کاربر پرمیوم هستید بوست کنید و اگه نیستید از دوستانتون که هستند درخواست کنید بوست کنند
+</div>
+
+## WithYashar — post 15641
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar FPV آتش بس و
+</div>
+
+## WithYashar — post 15640
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar شصت روز سنگین
+</div>
+
+## mwarmonitor — post 11406
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_11406_1782171165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 توییت جدید ممدباقر ثابت کرد که این حرامی هنوز هم بزرگ‌ترین کاسب خون است؛ جانوری که تا دیروز با خون بچه‌ها میناب موج‌سواری می‌کرد، حالا خون بچه شیعه لبنان را پیش‌پرداختِ هتل‌های سوئیس و فاکتور تفریحاتش می‌کند. واقعاً از چه نطفه‌ای تشکیل شده‌ای و چطور ممکنه تمام صفات بارز یک زنازاده و لاشخور سیاسی را یکجا در خودت جمع کنی؟
+اما خیال نکن با بمب یا گلوله خلاص می‌شوی؛ کشتن تو یک لطف و پاداش بزرگ است که ما هرگز این لطف را در حقت انجام نخواهیم داد. ممدباقر، تو و آن هوش سرشارت که سقفش قاچاق سیسمونی و لوله کردن دانشجویان بود، باید روزی در دادگاه محاکمه بشوی. سهم تو از این دنیا مرگِ قهرمانانه نیست؛ تو باید تا لحظه مرگ مثل یک موش کثیف در انفرادی بپوسی و از فرط ذلت و تنهایی، هر روز به خودکشی فکر کنی تا بفهمی ته‌ماندهٔ بنزینِ این سیرکِ خونین، خاکستر کردنِ خودت بود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11405
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_11405_1782171165.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝‏ ظاهر امر نشون میده جراح پلاستیکش موقع بازسازی، آپشن "حالات چهره" رو کلاً از منو حذف کرده؛ یه طوری بتون‌کاری کرده که گریه‌اش مثل همون کاراکترهای صامت تلویزیون، فقط از روی زیرنویس قابل تشخیصه. اما نکته‌ جالبش اینجاست که چطور میشه با این حجم از تزریقات مدرن و کوبیدن و از نو ساختن، یهو یاد چادر و مقنعه‌ی صداوسیما افتاد؟
+این تناقضات ساختاری فقط تو همین سیستم جواب میده؛ با یه دست بوتاکس و ژل تزریق می‌کنی، با اون یکی دست چادرت رو محکم می‌گیری که ریاکاری و نمایش تلویزیونی خراب نشه. کل این سناریو، یه دلقک‌بازی عیان برای مخاطبیه که قراره باور کنه این آدم‌ها تو زندگی واقعیشون هم همین‌قدر "مومن و ساده‌زیست" هستند. حقیقت اینه که وقتی شوهرت تو مسیر یه جریان تروریستی به درک واصل میشه، تنها راه موندن تو ویترین، همین شوهای مسخره و حقیرانه‌ست؛ جماعتی که هیچ جای زندگیشون نرمال نیست و همه‌چیزشون، از قیافه تا اعتقاداتشون، فیک و ویترینیه.»
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343269
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343269_1782171169.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A 15-year-old didn't think twice before diving into a harbor to save a dog from drowning.
+
+Video shows 15-year-old Mateo Akerman diving into Newport Harbor after spotting a struggling dog named George who appeared unable to make it back to shore on his own.
+
+As friends cheered from the dock, Akerman swam George back to land, wrapped him in a towel, and stayed with him until his family could be reached.
+
+George was later reunited with his owners, and both he and his young rescuer were unharmed.
+</div>
+
+## FoxNewsTwitter — post 343268
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343268_1782171172.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Rep. Ilhan Omar's latest financial disclosure shows a dramatic change from the filing she submitted just one year ago.
+
+In a report covering 2024, the Minnesota Democrat disclosed that she and her husband controlled between $6 million and $30 million in assets. In a newly filed 2025 disclosure, that figure dropped to between $20,000 and $125,000.
+
+Her husband's venture capital advisory firm, which was previously valued at between $5 million and $25 million, is now listed with no value in the latest filing.
+
+The filing suggests Omar could potentially have a negative net worth, with her husband reporting between $15,000 and $50,000 in credit card debt and the congresswoman listing a student loan balance worth between $15,000 and $50,000.
+</div>
+
+## FoxNewsTwitter — post 343267
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343267_1782171173.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The roar of French fighter jets turned heads across Washington as they swept past the Washington Monument in a rare tribute to America’s upcoming 250th birthday.
+
+Spectators along the National Mall stopped to watch and applaud as the aircraft flew in formation over the nation's capital.
+
+The flyover honored the historic alliance forged during the American Revolution, when France helped support the colonies in their fight for independence.
+
+French officials say the display was meant to highlight the enduring bond between the two longtime allies.
+</div>
+
+## FoxNewsTwitter — post 343266
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343266_1782171176.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FULL INTERVIEW: Jeff Metcalf calls out the media and the "moral decay of society" after the tumultuous trial of Karmelo Anthony, who was convicted of murdering his son Austin. Jeff described Austin as a “leader” and a “God-fearing son.”
+
+“They don't know me. They don't know Hunter, Austin. They don't know Karmelo. They're looking for their 15 minutes of fame or their clickbait.
+
+“They're looking to monetize the death of my son. I really wish they wouldn't speak about it at all.”
+
+"Unfortunately in today's moral decay of society that we've witnessed, people believe that if they have their own voice, they scream loud enough, they're right."
+
+“I think our society is going the wrong direction right now. And us as parents are the only ones that are able to change this because our kids are the future.”
+
+Jeff shares with @willcain what he wants the world to remember about Austin:
+
+“He was a leader. He was a God-fearing son. He had compassion. He showed love. He always helped.”
+
+@WillCainShow
+</div>
+
+## FoxNewsTwitter — post 343265
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343265_1782171177.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Rep. Ilhan Omar’s financial disclosures just got a major revision.
+
+New filings show wealth and income figures tied to her husband’s companies were dramatically reduced after earlier reports valued them at as much as $30 million.
+
+The change is being attributed to an accounting error, but the correction is raising fresh questions about transparency and accuracy in financial disclosures for elected officials.
+
+John Roberts and Ben Domenech break down what changed — and why it matters. |@AmericaRpts
+</div>
+
+## FoxNewsTwitter — post 343264
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343264_1782171180.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A Texas grandfather was set on fire after an explosion — and he still managed to save his home and his grandchildren inside.
+
+Security footage shows Carl Motley engulfed in flames after leftover oil inside the barrel ignited while he was cutting it with a plasma torch. Motley had recently purchased the barrel from an auction and did not know there was leftover oil inside.
+
+Instead of running away, Motley disappeared into the smoke and moments later bravely reemerged with a fire extinguisher, working to stop the blaze from spreading.
+</div>
+
+## FoxNewsTwitter — post 343263
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343263_1782171183.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Unfortunately in today's moral decay of society that we've witnessed, people believe that if they have their own voice, they scream loud enough, they're right."
+
+"And they believe perception is their own reality. It may not be truth, but in their mind it is their own reality."
+
+Jeff Metcalf, the father of Austin Metcalf, speaks out against the media frenzy surrounding his son's case, slamming critics for what he calls an turning an obvious, fact-driven situation into a divisive national debate.
+
+"For a person to not able to objectively look at something, use common logic, common sense, to come to a determination just based on merely the facts, not the color of one's skin. That tells me a whole lot about your character if you choose that direction."
+
+@WillCainShow @willcain
+</div>
+
+## VahidOnline — post 76603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری که ترامپ پشت سر هم پست کرد + ترجمه ماشینی
+
+دونالد ترامپ، رئیس جمهوری آمریکا، دوشنبه عصر نتایج چندین نظرسنجی مختلف درباره توافق با جمهوری اسلامی را منتشر کرد.
+از جمله یک نظرسنجی مشترک «سی‌بی‌اس نیوز» و «شرکت یوگاو» می‌گوید که به عقیده ۸۰درصد جمهوری‌خواهان، این تفاهم‌نامه «بهتر» برای آمریکا، و یا «خوب» برای هر دو کشور، است.
+در یک نظرسنجی دیگر، ۶۷ درصد می‌گویند از تفاهم‌نامه اخیر صلح میان دو دولت حمایت می‌کنند.
+در نظرسنجی دیگری نیز ۴۷درصد گفته‌اند که این تفاهم‌نامه اثر مثبتی روی نرخ تورم و توانایی مالی خرید مردم آمریکا خواهد داشت.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 76602
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76602_1782171185.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، سرپرست تیم مذاکره‌کننده جمهوری اسلامی ایران، در واکنش به صحبت یکی از مجری‌های صداوسیما با انتشار پیامی در اکس نوشت: «در یکی از برنامه‌های صداوسیما دیدم که گفتند کاش فرودگاه مهرآباد را می‌بستند تا تیم مذاکره‌کننده به سوئیس نرود. به آن عزیزان می‌گویم اگر به سوئیس نمی‌رفتیم، هر لحظه خون بیشتری از مسلمانان و شیعیان لبنان ریخته می‌شد.»
+
+پیش از این، روز شنبه، یکی از مجری‌های صداوسیما گفته بود: «در کنار بستن تنگه هرمز باید فرودگاه مهرآباد را هم می‌بستیم تا مسئولان برای مذاکره نروند.»
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 343848
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343848_1782171186.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایمان عطارزاده، سخنگوی کمیته برگزاری مراسم تشییع و خاکسپاری علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، گفت این مراسم با شعار «باید برخاست» و با نماد «مشت گره‌کرده» برگزار می‌شود.
+او افزود مراسم تشییع روز دوشنبه ۱۵ تیر در تهران، سه‌شنبه ۱۶ تیر در قم و چهارشنبه ۱۷ تیر در شهرهای نجف و کربلای عراق برگزار خواهد شد.
+به گفته عطارزاده، جنازه علی خامنه‌ای در نهایت روز پنج‌شنبه ۱۸ تیر، هم‌زمان با ۲۴ محرم و شب «شهادت امام سجاد، جد ایشان»، در حرم «امام رضا» به خاک سپرده خواهد شد.
+</div>
+
+## IranIntlTV — post 343847
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/343847" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: بازی‌های فاسد‌ترین سردار
+@iranintlTV
+</div>
+
+## IranIntlTV — post 343846
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343846_1782171189.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهشید از تهران: ونس درباره مردم و تاریخ ایران شناختی ندارد؛ چقدر بد که نرفته و مطالعه نکرده
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/XRK8JBlpuCY
+@iranintltv
+</div>
+
+## IranIntlTV — post 343845
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343845_1782171191.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهرداد از تهران: زمان ثابت کردن ایران به دنیاست؛ ما حتی بدون اسلحه از پس این‌ها برمی‌آییم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/XRK8JBlpuCY
+@iranintltv
+</div>
+
+## IranIntlTV — post 343844
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343844_1782171194.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسایی: مجلس را باز نکنید، کنار خیابان جلسه می‌گذاریم! حمید رسایی، نماینده مجلس، در واکنش به ادامه تعطیلی جلسات علنی گفته است اگر مجلس هفته آینده باز نشود، نمایندگان و مردم را جمع می‌کند و جلسه مجلس را کنار خیابان برگزار خواهد کرد. کامبیز حسینی در «برنامه»…
+</div>
+
+## IranIntlTV — post 343843
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343843_1782171196.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسایی: مجلس را باز نکنید، کنار خیابان جلسه می‌گذاریم!
+
+حمید رسایی، نماینده مجلس، در واکنش به ادامه تعطیلی جلسات علنی گفته است اگر مجلس هفته آینده باز نشود، نمایندگان و مردم را جمع می‌کند و جلسه مجلس را کنار خیابان برگزار خواهد کرد.
+
+کامبیز حسینی در «برنامه» به این موضوع می پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/XRK8JBlpuCY
+@iranintltv
+</div>
+
+## IranIntlTV — post 343842
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد قائدی، مدرس روابط بین‌الملل، گفت: «تعلیق غنی‌سازی در ازای رفع تحریم‌ها، همان چارچوبی است که پیش‌تر در برجام وجود داشت. بنابراین از نظر کلیات، با چارچوبی مشابه برجام روبه‌رو هستیم، هرچند ممکن است در جزییات تفاوت‌هایی وجود داشته باشد.»
+
+او افزود: «این تفاوت‌ها هنوز روشن نیست، اما به نظر من محور اصلی مذاکرات روزهای آینده دقیقا همین جزییات خواهد بود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343841
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343841_1782171199.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت در صورت رفع تحریم‌ها، منابع مالی آزادشده ایران عمدتا صرف خرید مواد غذایی و دارو خواهد شد.
+
+او افزود: «این پول را در اختیار ایران نمی‌گذاریم که صرف هر کاری بخواهد بکند. این منابع برای خرید غذا و دارو برای مردم استفاده خواهد شد و بخش زیادی از آن نیز به کشاورزان آمریکایی خواهد رسید.»
+
+ترامپ تاکید کرد: «اگر ایران به توافق پایبند بماند، ما نیز به تعهدات خود عمل خواهیم کرد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343840
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343840_1782171201.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ با هشدار به جمهوری اسلامی گفت اگر ایران به توافق پایبند نماند یا رفتار مناسبی نداشته باشد، واشینگتن اقدام لازم را انجام خواهد داد.
+
+همزمان، جی‌دی ونس اعلام کرد بازرسان آژانس بین‌المللی انرژی اتمی به ایران خواهند رفت، اما رسانه‌های جمهوری اسلامی این موضوع را تکذیب کردند.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 343839
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343839_1782171204.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «در جمهوری اسلامی، داشتن پرونده‌های متعدد فساد تا زمانی که فرد به نظام وفادار باشد و در سرکوب مردم نقش ایفا کند، مانعی برای حفظ یا ارتقای موقعیت او محسوب نمی‌شود. با وجود اتهام‌ها و پرونده‌های متعدد فساد، نه‌تنها برخوردی با قالیباف نشده بلکه مسئولیت‌های مهم‌تری نیز به او واگذار شده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343838
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343838_1782171207.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با آغاز اجرای تفاهم‌نامه تهران و واشینگتن، همتی از پیشرفت در آزادسازی دارایی‌های مسدودشده ایران خبر داد. در همین حال، قالیباف به عمان و پزشکیان به ترکمنستان رفته‌اند؛ پیشتر پزشکیان گفته بود ایران در ۵۰ روز محاصره دریایی نتوانست حتی یک بشکه نفت صادر کند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 343837
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343837_1782171209.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «جمهوری اسلامی در حالی که علنی رجز می‌خواند که درباره برنامه هسته‌ای مذاکره نمی‌کنیم، در سوئیس در این باره مذاکره کرده و تعهد داده است که بازرسان آژانس برای ارزیابی وضعیت برنامه هسته‌ای ایران بازگردند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343836
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343836_1782171212.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو، یسرائیل کاتز، وزیر دفاع اسرائیل، و رییس ستاد کل ارتش اسرائیل در بیانیه‌ای مشترک اعلام کردند که ارتش این کشور به اقدام برای «خنثی کردن» تهدیدها علیه سربازان و شهروندان اسرائیلی، نابود کردن زیرساخت‌های گروه‌های مسلح و حفظ منطقه امنیتی در جنوب لبنان ادامه خواهد داد.
+در این بیانیه آمده است که این سه مقام «به‌روشنی اعلام کردند که امنیت شهروندان اسرائیلی و نیروهای ارتش اسرائیل، بدون هیچ‌گونه مصالحه‌ای، همچنان اصل راهنمای آنها باقی خواهد ماند.»
+
+
+https://iranintl.com/202606226599
+</div>
+
+## IranIntlTV — post 343835
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343835_1782171213.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ گفته ایران با بازرسی‌های گسترده برای «شفافیت هسته‌ای» موافقت کرده، اما رسانه‌های ایران بازگشت بازرسان آژانس را تکذیب کرده‌اند. همزمان آمریکا فروش نفت ایران را برای ۶۰ روز مجاز اعلام کرده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 343834
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343834_1782171215.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «نکته مهم در سیاست خبری و تبلیغاتی جمهوری اسلامی این است که ابتدا درباره عقب‌نشینی‌ها و شکست‌هایش سکوت می‌کند و امیدوار است خبر منتشر نشود. اما وقتی طرف مقابل موضوع را علنی می‌کند، ناچار اصل آن را می‌پذیرد و تلاش می‌کند اهمیتش را کم‌رنگ جلوه دهد. نمونه آن مذاکرات هسته‌ای است؛ همان‌طور که ابتدا مذاکرات یا ابعاد آن تکذیب شد، اما پس از تایید طرف مقابل، جمهوری اسلامی وجود گفت‌‌وگوها را پذیرفت و آن را محدود و کم‌اهمیت توصیف کرد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 343833
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343833_1782171217.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خارجه عمان در ایکس نوشت که در گفت‌وگو با مذاکره‌کنندگان ایرانی، بر پایبندی به حقوق بین‌الملل و تضمین عبور امن و بدون عوارض از تنگه هرمز تاکید شده است.
+https://iranintl.com/202606227102
+</div>
+
+## IranIntlTV — post 343832
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343832_1782171218.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کیلیان امباپه، کاپیتان تیم ملی فوتبال فرانسه، در بازی برابر عراق برای صدمین بار پیراهن خروس‌ها را بر تن کرد.
+
+🔹فوق‌ستاره ۲۷ ساله که در ۹۹ بازی گذشته برای تیم ملی کشورش ۵۸ بار موفق به گلزنی شده و به‌تازگی به رکورددار گلزنی برای تیم ملی فرانسه تبدیل شده بود، خیلی زود در این مسابقه گلزنی کرد و بازی شماره ۱۰۰ خود با لباس فرانسه را برای خود بیادماندنی‌تر کرد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343831
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343831_1782171219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال یکشنبه با نمایشی چشم‌گیر موفق شد بلژیک را با نتیجه تساوی بدون گل متوقف کند.
+
+🔹در حالی که عملکرد ضعیف شاگردان قلعه‌نویی در بخش دفاعی در بازی با نیوزیلند نگرانی‌ها نسبت به نمایش این تیم برابر شیاطین سرخ را افزایش داده بود، تدبیر کادر فنی در تغییر سیستم و بازی با خط دفاعی ۵ نفره، جواب داد و علیرضا بیرانوند توانست با عملکردی درخشان، کلین‌شیت کند.
+
+🔹در این بین روملو لوکاکو، چهارمین گلزن برتر بازی‌های ملی و امید اول شاگردان رودی گارسیا برای گلزنی برابر ایران، تا حدود زیادی از جریان بازی خارج بود و اصطلاحا به‌جز «ساباندن» توپ برای سایر بازیکنان، نتوانست خودش را در موقعیت گلزنی قرار بدهد.
+
+🔹اتفاقی که نقش مدافعین تیم ملی در وقوع آن قابل چشم‌پوشی نیست.
+
+🔹با وجود این، برخورد دقایق ابتدایی لوکاکو با علیرضا بیرانوند و فیزیک بدنی ویژه این مهاجم ۱۹۱ سانتی‌متری، در طول بازی مدافعین ایران را تحت تاثیر قرار داده بود و این تصویر، لحظه‌ای از این وضعیت را نشان می‌دهد.
+
+🔹شما برای این عکس چه تیتری می‌نویسید؟
+
+🔹برای اظهارنظر در این باره به صفحه اینستاگرام ایران اینترنشنال ورزشی مراجعه کنید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343830
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343830_1782171219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالناصر همتی، رییس کل بانک مرکزی، گفت: بر اساس یادداشت‌های امضا شده، هیچ الزامی برای خرید نهاده‌های کشاورزی از آمریکا نداریم.
+او افزود: اگر نرخ و کیفیت نهاده‌های آمریکایی در مقایسه با سایر کشورها مناسب‌تر باشد، مانعی برای خرید از آن کشور نداریم.
+همتی اضافه کرد طی سال‌های اخیر خریدهای جهاد کشاورزی از طریق شرکت‌های بزرگ آمریکایی و اروپایی بوده است.
+
+https://iranintl.com/202606223546
+</div>
+
+## FarsiVOA — post 221587
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221587_1782171220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئيس جمهوری آمریکا، دوشنبه عصر نتایج چندین نظرسنجی مختلف درباره توافق با جمهوری اسلامی را منتشر کرد. از جمله یک نظرسنجی مشترک «سی‌بی‌اس نیوز» و «شرکت یوگاو» می‌گوید که به عقیده بیش از ۸۰درصد جمهوری‌خواهان، این تفاهم‌نامه برای آمریکا، و یا هر دو کشور، بهتر است. در یک نظرسنجی دیگر، ۶۷ درصد می‌گویند از تفاهم‌نامه اخیر صلح میان دو حکومت حمایت می‌کنند. در نظرسنجی دیگری نیز ۴۷درصد گفته‌اند که این تفاهم‌نامه اثر مثبتی روی نرخ تورم و توانایی مالی برای خرید مردم آمریکا خواهد داشت.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221586
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221586_1782171221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️امیر عباس فخرآور در برنامه تفسیر خبر: مردم ایران خواهان کمک خارجی برای سرنگونی جمهوری اسلامی هستند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پوشش ویژه | دونالد ترامپ: عبور نفت از تنگه هرمز رکورد زد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️برنامه تفسیر خبر با مهدی آقازمانی دوشنبه اول تیر میزبان شقایق نوروزی، امیر عباس فخرآور و هیمن سیدی بود
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221583
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221583_1782171222.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️انتقاد حسین علیزاده از حکم شلاق پرستو احمدی: «عصر حجر است»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221582
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221582_1782171223.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️میررمضانی؛ مدیر پروژه ایران ۲۰۴۰ در دانشگاه استنفورد: ایران بازنده رقابت اقتصادی در منطقه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ: اگر جمهوری اسلامی به توافق پایبند نباشد هر کاری که باید انجام دهم را انجام خواهم داد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221580
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221580_1782171225.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از گل مردود تا سکوهای جنجالی؛ حواشی بازی ایران و بلژیک در گزارش آرش آرا
+@FarsiVIOA
+</div>
+
+## FarsiVOA — post 221579
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221579_1782171226.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شقایق نوروزی در برنامه تفسیر خبر: جامعه ایران یک جنگ واقعی را طی کرد که آنها را «واقعگرا» کرده‌است
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17833
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17833_1782171227.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+B-2 Spirit
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17832
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17832_1782171230.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف: آزادسازی پول‌های بلوکه شده و رفع تحریم‌ های نفتی در سفر سوئیس نهایی شد.
+
+رئیس هیأت مذاکره‌کننده ایران: برای آزادسازی اموال بلوکه‌شده، در بند 11 باید دو مبلغ 6 میلیارد دلاری آزاد می‌شد که پیش‌تر اقدامات آن در سفر به قطر انجام شده بود، اما امضای نهایی آن باید در سفر سوئیس صورت می‌گرفت که انجام شد.
+
+در خصوص بند 10 موضوع فروش نفت خام، پتروشیمی و مشتقات آن، همچنین مسائل بانکی، بیمه و حمل‌ونقل مطرح است. از آنجا که هنوز توافق نهایی نشده، تحریم‌ها همچنان پابرجاست؛ لذا بر اساس توافق‌نامه امضاشده، تا رسیدن به توافق نهایی، تحریم‌های نفتی رفع شد.
+
+یکی دیگر از مباحث مهم، چارچوب چگونگی پیگیری تحقق بندهای تفاهم تا پایان 60 روز بود که آن هم به نتیجه رسید. هماهنگی صورت گرفت تا هیأت‌های ایرانی و آمریکایی نشست داشته باشند و این مسائل و اجرای آن‌ها را پیگیری کنند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 23160
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23160_1782171234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری
+
+ترامپ درباره آزادشدن دارایی های بلوکه شده ایران:
+
+پولی که آزاد می‌شود برای خرید غذا استفاده خواهد شد و آنها ۹۱ میلیون نفر جمعیت دارند که نمی توانند آنها را تغذیه کنند
+این غذا به طور انحصاری از طریق آمریکا و از کشاورزان ما خریداری خواهد شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23159
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23159_1782171235.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😄
+😄
+😄
+😃 دلار درآمد با معرفی دوستات
+🤝
+💵
+همین الان وارد شو و علاوه بر 
+0️⃣
+0️⃣
+2️⃣
+🔣 بونوس اضافه اولین واریز با معرفی هرکدوم از دوستات به وینرو تا 
+🤩
+🤩
+🤩
+🤩 دلار درآمد کسب کن
+💰
+فرصت محدود
+🙂
+
+🔤 Winro.io
+
+🔤 Winro.io
+</div>
+
+## IranianMinds — post 23158
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23158_1782171235.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا 
+😄
+😄
+😄
+😃 دلار درآمد با معرفی دوستات
+🤝
+💵
+
+با معرفی هرکدوم از دوستات به وینرو میتونی تا 
+🤩
+🤩
+🤩
+🤩 دلار درآمد داشته باشی
+💰
+
+
+🔝فقط کافیه دوستتو به وینرو دعوت کنی و کسب درآمد کنی
+
+این پاداش پول نقده و لحظه‌ای به حسابت واریز میشه و به صورت آنی میتونی برداشتش کنی
+💰
+
+
+💣بالاترین بونوس‌ها فقط در سایت وینرو
+
+پیش بینی کن و برنده شو
+🎯
+#وینرو
+
+📺 تلویزیون لایو برای پوشش بازی ها
+
+🛍بالاترین ضرایب ممکن
+
+💰expert tips bets
+
+
+🎰 راستی با اولین واریزت هم میتونی تا ۲۰۰ درصد شارژ اضافه از ما هدیه بگی
+
+🔤 Winro.io         معتبرترین سایت ایران
+
+🔤 Winro.io   کلیک کن و درآمد کسب کن
+
+📱 کانال اخبار و هدایــا eA1
+🌟
+
+📱 @winro_io
+</div>
+
+## IranianMinds — post 23157
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+کسی دیگه جرات نداره رئیس جمهور ایران شه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23156
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ درباره ناتو و ایران:
+ایتالیا خیلی بد بود. آلمان خیلی بد بود. ناتو برای ما نبود.
+
+ما سالانه صدها میلیون دلار برای دفاع از آن‌ها در برابر روسیه هزینه می‌کنیم، و سپس آن‌ها به ما می‌گویند، «ما ترجیح می‌دهیم کمک نکنیم.» حرف احمقانه‌ای است.
+
+چون ما می‌توانیم این حرف را به آن‌ها بزنیم اگر بخواهیم، و ممکن است این کار را بکنیم.
+@IranianMinds
+</div>
+
+## BBCPersian — post 284788
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284788_1782171236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دونالد ترامپ، رئیس جمهور آمریکا ضمن ابراز رضایت از نتایج دور نخست مذاکرات در سوئیس از آزادی بخشی از دارایی‌های مسدود شده ایران خبر داده و گفته است:
+
+«شب گذشته بخشی از دارایی‌های مسدودشده آزاد شد و قرار است از این پول برای خرید مواد غذایی استفاده شود. این مواد غذایی نیز منحصرا از ایالات متحده و از کشاورزان آمریکایی خریداری خواهد شد.
+
+رئیس‌جمهور آمریکا گفته ایران قرار است خرید موادغذایی را از آمریکا انجام دهد:
+
+«ذرت، سویا و هر آنچه که نیاز دارند، از کشاورزان ما خریداری می‌شود. بنابراین کشاورزان ما بسیار خوشحال هستند. تماس‌های زیادی دریافت کرده‌ام که نشان می‌دهد آنها از این موضوع بسیار راضی هستند.»
+
+تهران هنوز واکنشی به این اظهارات و نحوه استفاده از نخستین بخش از دارایی‌های مسدود خود را اعلام نکرده است.
+
+📸GettyImages
+https://bbc.in/4eq4KLN
+@BBCPersian
+</div>
+
+## BBCPersian — post 284787
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284787_1782171237.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بر اساس نتایج یک نظرسنجی که شبکه سی‌بی‌اس - شریک کاری بی‌بی‌سی در آمریکا - انجام داده بیش از سه-چهارم مردم آمریکا از جمله ۶۰ درصد جمهوری‌خواهان خواستار پایان فوری جنگ با ایرانند.
+
+بنابر نتایج نظرسنجی سی‌بی‌اس:
+
+۷۸ درصد آمریکایی‌ها خواهان پایان فوری جنگ با ایران هستند و معتقدند نباید برای گرفتن امتیازات بیشتر، این درگیری ادامه پیدا کند.
+۶۰ درصد جمهوری‌خواهان و ۵۶ درصد افرادی که خود را از حامیان جنبش «ماگا» (عظمت را به آمریکا بازگردانیم) می‌دانند نیز خواهان پایان فوری جنگ هستند.
+
+📸REUTERS
+https://bbc.in/4gAt27h
+@BBCPersian
+</div>
+
+## BBCPersian — post 284786
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284786_1782171238.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اندی برنام ساعاتی پس از آنکه کی‌یر استارمر از رهبری حزب کارگر استعفای خود را اعلام کرد، به عنوان نماینده پارلمان حوزه میکرفیلد سوگند یاد کرد.
+
+اندی برنام اعلام کرده است که برای جانشینی نخست‌وزیر نامزد خواهد شد و از حمایت وس استریتینگ، وزیر پیشین بهداشت، برخوردار است.
+
+از هفته پیش که اندی برنام در انتخابات میان‌دوره‌ای در حوزه میکرفیلد پیروز شد، فشار از درون حزب کارگر بر کی‌یر استارمر افزایش یافت تا برای کناره‌گیری خود یک جدول زمانی تعیین کند.
+
+اندی برنام که پیشتر شهردار منچستر بود، پس از آنکه با پیروزی قاطع بر رقیب خود از حزب اصلاح بریتانیا، بازگشتش را به پارلمان تضمین کرد، در نگاه بسیاری به‌عنوان گزینه اصلی جایگزینی نخست‌وزیری ظاهر شد.
+
+اندی برنام روز دوشنبه از منجستر به وست‌مینستر در لندن سفر کرد و با ادای سوگند، کرسی نمایندگی خود در پارلمان را به‌طور رسمی تحویل گرفت.
+
+وِس استریتینگ، وزیر بهداشت سابق، هم که پیش از این قصد خود را برای ورود به رقابت رهبری حزب کارگر اعلام کرده بود، حالا گفته است که از اندی برنام حمایت می‌کند.
+
+📸REUTERS
+https://bbc.in/4fW9F8s
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392884
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ جام جهانی شروع شد و بازار شرطبندی و پیشبینی از همیشه داغ تر هستش 
+🔥 https://t.me/+lCR7HeYTU15iNjM0 https://t.me/+lCR7HeYTU15iNjM0 A1 
+⚡️ اگر میخوای با آنالیز های رضا کینگ کونگ پول دربیاری توی این جام حتما عضو کانال شو ✅
+</div>
+
+## Dirty_Kids — post 392883
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392883_1782171239.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ جام جهانی شروع شد و بازار شرطبندی و پیشبینی از همیشه داغ تر هستش 
+🔥
+
+https://t.me/+lCR7HeYTU15iNjM0
+https://t.me/+lCR7HeYTU15iNjM0
+A1
+
+⚡️ اگر میخوای با آنالیز های رضا کینگ کونگ پول دربیاری توی این جام حتما عضو کانال شو ✅
+</div>
+
+## Dirty_Kids — post 392882
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392882_1782171239.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392881
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392881_1782171240.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این چه سمی بود من دیدم، اصلا چرا تا آخر نگاه کردم، چرا تو کمتر از یه روز بالای ۵ میلیون بازدید خورده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392880
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392880_1782171241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این زوجِ گی بعد از اینکه 3 سال باهم رابطه جنسی داشتن و کون هم میذاشتن، فهمیدن با همدیگه برادرن!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392879
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمه بابایم کجاست؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392878
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392878_1782171241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏کوسه‌ی رفسنجان در کنار شغال طرقبه.
+عکس از سید بابک موسوی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392877
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392877_1782171242.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلسبیل 😅
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129801
+
+<div align="center">
+  <img src="telegram/content/alonews_129801_1782171244.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📉
+📈 بازار می‌ریزد؛ اما آربیتراژ متوقف نمی‌شود
+
+وقتی معامله‌گران از ریزش بازار ضرر می‌کنند، ربات هوشمند اطلس اختلاف قیمت بین صرافی‌ها را به فرصت سود تبدیل می‌کند.
+
+
+✅ برداشت سود روزانه
+
+✅ گزارش لحظه ای معاملات آربیتراژ
+
+✅ شروع سرمایه‌گذاری از ۵ دلار
+
+✅ بدون نیاز به دانش ترید
+
+
+🚀 مشاهده عملکرد اطلس:
+@AtlasSmartBot
+اطلاعات بیشتر در کانال تلگرام
+</div>
+
+## alonews — post 129800
+
+<div align="center">
+  <a href="telegram/content/alonews_129800_1782171245.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عماد الدین باقی: طبق بند 2 توافق ایران و آمریکا، از این به بعد شعار مرگ بر آمریکا یا سوزاندن پرچم این کشور و لگد کردنش تو مراسم‌ها و اجتماعات رسمی (مثل نماز جمعه) ممنوعه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر خارجه عمان: به قانون بین‌المللی و تضمین عبور امن و بدون اخذ عوارض از تنگه هرمز پایبندیم. به مذاکره‌کنندگان ایرانی بر تعهد خود به قانون بین‌المللی در ارتباط با تنگه هرمز، تاکید کردیم. مذاکرات سازنده‌ای با قالیباف و عراقچی درباره یادداشت تفاهم انجام دادیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129798
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چند روز دیگه
+
+
+✅ @AloNews
+</div>
+
+## alonews — post 129797
+
+<div align="center">
+  <a href="telegram/content/alonews_129797_1782171246.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق شنیده‌ها برنامه به وقت ایران بعد از حمله به تیم مذاکره‌کننده فعلا پخش نخواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129796
+
+<div align="center">
+  <a href="telegram/content/alonews_129796_1782171246.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گویا علاوه بر سویا و گندم، قرار است سیب زمینی دشت مغان هم از آمریکا خریداری بشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129794
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران صاحب پیرترین ترکیب تاریخ جام جهانی شد!
+
+تیم ملی ایران در دیدار مقابل بلژیک با میانگین سنی ۳۲.۵ سال، پیرترین ترکیب اصلی تاریخ جام‌های جهانی را به میدان فرستاد و رکوردی تاریخی را به نام خود ثبت کرد.
+
+@AloSport
+</div>
+
+## alonews — post 129793
+
+<div align="center">
+  <a href="telegram/content/alonews_129793_1782171246.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یکی نفت رو میگیره بجاش سنگ پا و سوزن نخ کن میده یکی هم پولا نمیده و بجاش سویا میده
+
+
+🔴دیس ایز ایسلامیک ریپابلیک آو ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129792
+
+<div align="center">
+  <a href="telegram/content/alonews_129792_1782171246.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف و تیم مذاکره‌کننده وقتی ۱۲میلیارد دلار رو میدن تا از آمریکایی‌ها سویا و گندم بخرن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/04/02 00:30
 ---
 
