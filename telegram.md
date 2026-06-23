@@ -7,6 +7,462 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/02 05:46
+---
+
+## VahidOOnLine — post 246928
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246928_1782181019.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، سفیر آمریکا در سازمان ملل متحد، اعلام کرد که جمهوری اسلامی به بازرسان هسته‌ای اجازه بازگشت به ایران را می‌دهد و آن را «اولین گام در یک فرآیند گسترده‌تر» خواند.
+
+او در مصاحبه با شبکه خبری فاکس این روند را با برجام مقایسه کرد و افزود که حکومت ایران تحت توافق قبلی، کنترل بیش از حد بر بازرسی‌ها داشت.
+
+والتز گفت: «اشکال دیگر توافق اوباما با ایران این بود که ایران می‌توانست دیکته کند که بازرسان کجا بروند.»
+
+سفیر آمریکا در سازمان ملل متحد ابراز اطمینان کرد که بازرسی‌ها در هر زمان و هر مکان انجام خواهد شد.
+
+او در عین حال تاکید کرد که این یادداشت تفاهم همچنان یک چارچوب است و نه یک توافق نهایی.
+
+والتز گفت: «این یک یادداشت تفاهم با ۱۴ بند است که جزئیات آن - چه مربوط به محل‌هایی باشد که بازرسان می‌توانند بروند، چه زمانی می‌توانند بروند و تحت چه شرایطی، یا اینکه چگونه این وجوه مسدود شده را کنترل کنیم - همین الان که صحبت می‌کنیم در حال مذاکره است.»
+
+او افزود: «بسیاری از این جزییات در مذاکرات فنی حل و فصل خواهد شد.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246927
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با انتشار اخبار مربوط به تعلیق ۶۰ روزه تحریم‌های نفتی و آزادسازی بخشی از منابع مسدود شده ایران، اظهارات چند ماه قبل مشاور عالی رئیس اتاق بازرگانی دوباره مورد توجه قرار گرفته است. بهمن عشقی گفته بود: «حتی اگر تمامی تحریم‌ها لغو شود و ترامپ با پزشکیان در تهران آبگوشت بزباش بخورد، وضعیت اقتصادی بهبود نخواهد یافت و به این علت دولت پولدارتر می‌شود، فساد توسعه پیدا می‌کند و دردی از ملت دوا نمی‌شود.» او افزود ریشه مشکلات در «مقررات زائد» است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246926
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246926_1782181020.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه تخصصی انرژی «شیپ اند بانکر نیوز»، گزارش داد که آغاز مذاکرات آمریکا و حکومت ایران و توصیف آن به عنوان «پیشرفت امیدوارکننده» باعث کاهش حدود سه درصدی قیمت نفت شد.
+
+بر اساس این گزارش، بهای نفت برنت به ۷۷.۹۰ دلار و نفت آمریکا به ۷۴.۸۲ دلار در هر بشکه رسیده است.
+
+گزارش اشاره می‌کند که پس از کاهش موقت محدودیت‌های نفتی علیه جمهوری اسلامی و ازسرگیری صادرات نفت ایران، حدود شش میلیون بشکه نفت وارد بازار شد.
+
+این رسانه افزود تحلیلگران این افزایش عرضه را یکی از عوامل کاهش قیمت نفت می‌دانند.
+
+«شیپ اند بانکر نیوز» نوشت که با پیشرفت مذاکرات آمریکا و حکومت ایران، عبور نفتکش‌ها از تنگه هرمز افزایش یافته است و امارات متحده عربی، کویت و عراق عرضه نفت خود را بالا برده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246925
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246925_1782181021.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف در واکنش به اعتراض حامیان حکومت به مذاکرات، در ایکس نوشت: «در یکی از برنامه‌های خوب صداوسیما دیدم که گفتند کاش فرودگاه مهرآباد را می‌بستند تا تیم مذاکره‌کننده به سوئیس نرود. به آن عزیزان می‌گویم اگر به سوئیس نمی‌رفتیم، هر لحظه خون بیشتری از مسلمانان و شیعیان لبنان ریخته می‌شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246924
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246924_1782181022.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عبدالاحد مومند، یگانه فضانورد اهل افغانستان، بر اثر بیماری سرطان روز یکشنبه ۳۱ خرداد در آلمان درگذشت.
+او پس از ترک افغانستان به آلمان مهاجرت کرد و در شهر اشتوتگارت زندگی می‌کرد. عبدالاحد مومند در ولایت/استان غزنی متولد شده بود و برای تحصیل در رشته هوانوردی و آموزش‌های نظامی به اتحاد جماهیر شوروی پیشین رفت. او بعدها به عنوان نخستین فضانورد افغانستان به فضا سفر کرد و نام خود را در تاریخ این کشور ثبت نمود.
+عبدالاحد مومند در سال ۱۹۸۸ میلادی و در سن ۲۹ سالگی، در چارچوب یک ماموریت مشترک اتحاد جماهیر شوروی پیشین، به ایستگاه فضایی «میر» سفر کرد. این سفر تاریخی او را به نخستین و تنها فضانورد افغانستان تبدیل کرد.
+درگذشت عبدالاحد مومند با واکنش گسترده شهروندان افغانستان و چهره‌های سیاسی این کشور همراه شده است.
+حامد کرزی، رئیس‌ جمهوری پیشین افغانستان، در واکنش به درگذشت او گفت که عبدالاحد مومند کارنامه‌ای بزرگ و فراموش‌نشدنی برای افغانستان به جا گذاشته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246923
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246923_1782181023.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️حسن حسن‌زاده، فرمانده سپاه تهران، از تصویب پیشنهاد تعطیلی سه‌روزه پایتخت در استانداری و ارسال آن برای تصمیم‌گیری نهایی جهت برگزاری مراسم تشییع علی خامنه‌ای، رهبر سابق جمهوری اسلامی، خبر داد. بر اساس جدول زمان‌بندی اعلام‌شده، «آیین وداع» روزهای شنبه ۱۳ و یکشنبه ۱۴ تیرماه در مصلای تهران برگزار می‌شود و مراسم تشییع برای روز دوشنبه ۱۵ تیرماه برنامه‌ریزی شده است.
+علی خامنه‌ای حدود ۴ ماه پیش، در اولین دقایق حمله آمریکا و اسرائیل، روز ۹ اسفندماه ۱۴۰۴ کشته شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343278
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343278_1782181024.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"President Trump, I know, will never sign onto a deal that does not serve this country and our national security interests. He is always looking out for America first."
+
+White House Press Secretary Karoline Leavitt joined @seanhannity and touted what she described as growing momentum toward a deal with Iran, arguing the administration's pressure campaign is producing results.
+
+The comments come as the White House points to renewed diplomatic movement as evidence that Trump's approach is working.
+</div>
+
+## FoxNewsTwitter — post 343277
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @WillCainShow: THE LIFE OF AUSTIN METCALF, THROUGH HIS FATHER'S EYES
+
+"He was a leader. He was a God-fearing son. He showed compassion. He showed love."
+
+Jeff Metcalf joined Will Cain and shared what he wants the world to know about Austin.
+</div>
+
+## FoxNewsTwitter — post 343276
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343276_1782181027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"President Trump, I know, will never sign onto a deal that does not serve this country and our national security interests. He is always looking out for America first."
+
+White House Press Secretary Karoline Leavitt joined Sean Hannity and touted what she described as growing momentum toward a deal with Iran, arguing the administration's pressure campaign is producing results.
+
+The comments come as the White House points to renewed diplomatic movement as evidence that Trump's approach is working.
+</div>
+
+## FoxNewsTwitter — post 343275
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343275_1782181029.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"This is what the American people elected President Trump to do."
+
+White House Press Secretary Karoline Leavitt joined @seanhannity and blasted the so-called "pro-algae" protesters who gathered near the Lincoln Memorial Reflecting Pool, dismissing the demonstration as another attempt to mock the Trump administration.
+
+The stunt came after the recently renovated Reflecting Pool became the subject of viral attention over algae growth and ongoing repairs. President Trump has accused vandals of damaging the site, and multiple arrests have been made in connection with alleged vandalism at the pool.
+
+Leavitt said the administration remains focused on delivering on the agenda voters elected President Trump to carry out.
+</div>
+
+## FoxNewsTwitter — post 343274
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343274_1782181033.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A possible U.S.-Iran deal is drawing very different reactions depending on which side of the border you're standing on.
+
+As negotiations continue, some see a diplomatic path forward. But in Israel, growing concerns remain over Hezbollah attacks and whether any agreement would do enough to address the threats posed by Iran-backed groups.
+
+Benjamin Hall reports questions mount over what a deal could mean for security, stability, and America's closest ally in the Middle East.
+</div>
+
+## FoxNewsTwitter — post 343273
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343273_1782181035.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"How does the country survive when one party seems to increasingly despise the country?"
+
+Victor Davis Hanson analyzes recent reports that fewer Democrats are proud to be American. https://twitter.com/IngrahamAngle/status/2069215039379194199#m
+</div>
+
+## FoxNewsTwitter — post 343272
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343272_1782181038.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Why isn’t Governor Pritzker calling me for help?"
+
+President Trump is weighing in after a violent weekend in Chicago left six people dead and 39 others shot.
+
+The violence included a drive-by shooting at a Juneteenth celebration in Princeton Park, where police say gunmen opened fire from an SUV into a crowd, injuring 13 people.
+
+Trump pointed to Washington, D.C.'s crime crackdown as a model, arguing Chicago could see a similar turnaround if state leaders sought federal assistance.
+</div>
+
+## FoxNewsTwitter — post 343271
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343271_1782181039.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @mikerreports: UPDATE: Savannah’s network NBC is now reporting that the follow-up note DID indicate that Nancy Guthrie had died “but contained no apology or request for payment for the release of her body.” https://twitter.com/mikerreports/status/2069185994914513000#m
+</div>
+
+## IranIntlTV — post 343855
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343855_1782181042.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی نروژ در هفته دوم از مرحله گروهی جام جهانی ۲۰۲۶ با نتیجه سه بر دو سنگال را شکست داد و راهی مرحله حذفی شد.
+
+🔹ارلینگ هالند، فوق‌ستاره وایکینگ‌ها در این بازی دبل کرد و پدرسن دیگر گل شاگردان راگنیک را به‌ثمر رساند. اسماعیل سار هم دوبار برای سنگال گلزنی کرد.
+
+🔹نروژ با این نتیجه ۶ امتیازی شد و به‌دلیل تفاضل گل پایین‌تر نسبت به فرانسه، در رده دوم جدول گروه I جای گرفت.
+
+🔹هالند نیز با دبل در این بازی با ۴ گل پس از مسی، در کنار امباپه به‌صورت مشترک دومین گلزن برتر جام لقب گرفت.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343854
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343854_1782181043.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال فرانسه در دومین بازی خود در مرحله گروهی جام جهانی ۲۰۲۶ با سه گل برابر عراق به پیروزی رسید و راهی دور حذفی جام جهانی شد.
+
+🔹امباپه دو بار و دمبله یک بار برای شاگردان دشان گلزنی کردند.
+
+🔹نیمه دوم این مسابقه به‌دلیل شرایط جوی در فیلادلفیا با بیش از یک ساعت تاخیر آغاز شد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 343853
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343853_1782181044.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، سفیر آمریکا در سازمان ملل متحد، اعلام کرد که جمهوری اسلامی به بازرسان هسته‌ای اجازه بازگشت به ایران را می‌دهد و آن را «اولین گام در یک فرآیند گسترده‌تر» خواند.
+
+او در مصاحبه با شبکه خبری فاکس این روند را با برجام مقایسه کرد و افزود که حکومت ایران تحت توافق قبلی، کنترل بیش از حد بر بازرسی‌ها داشت.
+
+والتز گفت: «اشکال دیگر توافق اوباما با ایران این بود که ایران می‌توانست دیکته کند که بازرسان کجا بروند.»
+
+سفیر آمریکا در سازمان ملل متحد ابراز اطمینان کرد که بازرسی‌ها در هر زمان و هر مکان انجام خواهد شد.
+
+او در عین حال تاکید کرد که این یادداشت تفاهم همچنان یک چارچوب است و نه یک توافق نهایی.
+
+والتز گفت: «این یک یادداشت تفاهم با ۱۴ بند است که جزئیات آن - چه مربوط به محل‌هایی باشد که بازرسان می‌توانند بروند، چه زمانی می‌توانند بروند و تحت چه شرایطی، یا اینکه چگونه این وجوه مسدود شده را کنترل کنیم - همین الان که صحبت می‌کنیم در حال مذاکره است.»
+
+او افزود: «بسیاری از این جزییات در مذاکرات فنی حل و فصل خواهد شد.»
+
+https://iranintl.com/202606234917
+</div>
+
+## IranIntlTV — post 343852
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343852_1782181045.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه تخصصی انرژی «شیپ اند بانکر نیوز»، گزارش داد که آغاز مذاکرات آمریکا و حکومت ایران و توصیف آن به عنوان «پیشرفت امیدوارکننده» باعث کاهش حدود سه درصدی قیمت نفت شد.
+
+بر اساس این گزارش، بهای نفت برنت به ۷۷.۹۰ دلار و نفت آمریکا به ۷۴.۸۲ دلار در هر بشکه رسیده است.
+
+گزارش اشاره می‌کند که پس از کاهش موقت محدودیت‌های نفتی علیه جمهوری اسلامی و ازسرگیری صادرات نفت ایران، حدود شش میلیون بشکه نفت وارد بازار شد.
+
+این رسانه افزود تحلیلگران این افزایش عرضه را یکی از عوامل کاهش قیمت نفت می‌دانند.
+
+«شیپ اند بانکر نیوز» نوشت که با پیشرفت مذاکرات آمریکا و حکومت ایران، عبور نفتکش‌ها از تنگه هرمز افزایش یافته است و امارات متحده عربی، کویت و عراق عرضه نفت خود را بالا برده‌اند.
+https://iranintl.com/202606232539
+</div>
+
+## IranIntlTV — post 343851
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343851_1782181045.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف در واکنش به اعتراض حامیان حکومت به مذاکرات، در ایکس نوشت: «در یکی از برنامه‌های خوب صداوسیما دیدم که گفتند کاش فرودگاه مهرآباد را می‌بستند تا تیم مذاکره‌کننده به سوئیس نرود. به آن عزیزان می‌گویم اگر به سوئیس نمی‌رفتیم، هر لحظه خون بیشتری از مسلمانان و شیعیان لبنان ریخته می‌شد.»
+https://iranintl.com/202606239016
+</div>
+
+## FarsiVOA — post 221600
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221600_1782181046.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نبض فوتبال در تورنتو؛ گزارش امیرعلی پیروزبخش
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221599
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺عمان می‌گوید قالیباف و عراقچی بر عبور بدون عوارض از تنگه هرمز تاکید کردند
+
+▪️عمان روز دوشنبه اعلام کرد که میزبان محمدباقر قالیباف، رئیس مجلس شورای اسلامی و عباس عراقچی، وزیر خارجه جمهوری اسلامی بوده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8163873.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221598
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مقابله با قاچاق دلار و اصلاحات ساختاری؛ بانک مرکزی عراق پرونده بانک‌های تحریم شده را می‌بندد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ گزارشی درباره حمایت یک چهره مخالف جمهوری اسلامی از «یادداشت تفاهم» را بازنشر کرد
+
+▪️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، دوشنبه شب یک تیر ماه، یک‌ بار دیگر گزارشی را که در آن علیرضا جعفرزاده، از مسئولان «شورای ملی مقاومت ایران»، و کِی.تی. مک‌فارلند، معاون پیشین مشاور امنیت ملی آمریکا، از «یادداشت تفاهم» اخیر حمایت کرده‌اند، در شبکه اجتماعی «تروت سوشال» بازنشر کرد. آقای ترامپ پیشتر نیز این مقاله را بازنشر کرده بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/trump-shares-praise-for-iran-deal/8163872.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺مایک والتز: در برجام این جمهوری اسلامی بود که تعیین می‌کرد بازرسان به چه مکان‌هایی دسترسی داشته باشند
+
+▪️مایک والتز، سفیر ایالات متحده در سازمان ملل متحد، روز دوشنبه در مصاحبه‌ای با فاکس‌نیوز تأیید کرد که جمهوری اسلامی بار دیگر به بازرسان هسته‌ای اجازه ورود به ایران را داده است و این اقدام را نخستین گام در یک فرایند گسترده‌تر دانست.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8163870.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221595
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221595_1782181048.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تیم فوتبال ایران زیر سایه مذاکرات جمهوری اسلامی و آمریکا؛ گفت‌وگو با حسین علیزاده دیپلمات پیشین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221594
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221594_1782181049.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️واکنش قانون‌گذار آمریکایی به اقدام جمهوری اسلامی در اعدام ایرانیان مخالف
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221593
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آلن گرینسپن، معروف‌ترین رئیس سابق بانک مرکزی آمریکا درگذشت
+
+▪️آلن گرینسپن، رئیس سابق بانک مرکزی آمریکا، در ۱۰۰ سالگی درگذشت.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8163868.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221592
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221592_1782181051.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حواشی بازی ایران و بلژیک در لس انجلس در گزارش آرمیتا آزاد
+@FarsiVOAO
+</div>
+
+## FarsiVOA — post 221591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از دستاوردهای دور اول مذاکرات آمریکا و جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بیانیه مشترک نخست‌وزیر، وزیر دفاع و رئيس ارتش اسرائيل: منطقه امنیتی در جنوب لبنان را حفظ، و زیرساخت‌های تروریستی را نابود می‌کنیم
+
+▪️دفتر بنیامین نتانیاهو، نخست وزیر اسرائيل، با صدور بیانیه‌ای گفت که ارتش اسرائيل «با قاطعیت» به «خنثی‌سازی تهدیدها» در جنوب لبنان ادامه خواهد داد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8163661.html
+@FarsiVOA
+</div>
+
+## BBCPersian — post 284800
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284800_1782181053.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کامران غضنفری، یکی از نمایندگان تهران در مجلس شورای اسلامی، با انتظار پستی در شبکه ایکس از برنامه ریزی برای تجمعی اعتراضی در برابر ساختمان مجلس خبر داده و علت آن را بسته ماندن مجلس شورای اسلامی طی چند ماه گذشته اعلام کرده است.
+
+آقای غضنفری در پست روز دوشنبه خود در شبکه ایکس که با عنوان «اطلاعیه مهم» آغاز شده نوشته است: «به اطلاع ملت شریف ایران می رساند؛ جمعی از نمایندگان مجلس شورای اسلامی، ساعت هشت صبح روز یکشنبه ۷ تیر به مجلس خواهند رفت. چنانچه مجلس بسته باشد، تا باز شدن مجلس، در همانجا تحصن خواهیم کرد.»
+
+📸AFP via Getty Images
+https://bbc.in/4vsfqzK
+@BBCPersian
+</div>
+
+## BBCPersian — post 284791
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖋بکی مورتون و برایان ویلر
+بی‌بی‌سی
+
+کی‌یر استارمر اعلام کرده است که از رهبری حزب کارگر بریتانیا کناره‌گیری می‌کند و به این ترتیب دوران نخست‌وزیری او نیز به پایان می‌رسد.
+
+آقای استارمر در سخنرانی خود مقابل دفتر نخست‌وزیری در داونینگ استریت گفت تا زمانی که جانشین او انتخاب شود، در سمت خود باقی خواهد ماند.
+
+روند سقوط او از اوج قدرت، سریع و چشمگیر بوده است. کمتر از دو سال پیش، او پیروزی قاطع حزب کارگر در انتخابات سراسری را جشن گرفت و به نظر می‌رسید برای سال‌ها بر سیاست بریتانیا مسلط خواهد بود.
+
+اما اکنون، به جای آن‌که «یک دهه نوسازی ملی» را که وعده داده بود آغاز کند، با فشار اعضای حزب خودش از قدرت کنار رفت.
+ادامه مطلب⬇️
+
+📸PA/ Getty/ Reuters/House of Commons
+https://bbc.in/4gjK7T5
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/04/02 03:38
 ---
 
