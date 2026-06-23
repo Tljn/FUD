@@ -7,6 +7,617 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/03 02:00
+---
+
+## VahidOOnLine — post 247059
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247059_1782253853.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم ملی فوتبال انگلیس در دومین بازی خود در جام جهانی ۲۰۲۶، روز سه‌شنبه مقابل تیم غنا با نتیجه صفر بر صفر متوقف شد. ستاره‌های انگلیس در این دیدار حریف دفاع چندلایه تیم کارلوس کیروش نشدند؛ هرچند که تیم ملی فوتبال غنا نیز کمترین شانس گل‌زنی را داشت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247058
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247058_1782253854.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، در پی تغییرات جدید فیفا در مراسم پیش از آغاز مسابقات جام جهانی ۲۰۲۶ در کشورهای ایالات متحده، کانادا و مکزیک که پرچم‌های غول‌پیکر تیم‌ها روی زمین چمن پهن می‌شوند، مقرر شد پرچم‌های کشورهایی مانند عربستان سعودی و عراق به دلیل داشتن نوشته‌های مقدس اسلامی روی زمین قرار نگیرند. سخنگوی فیفا در گفتگو با رویترز تایید کرد که این نهاد برای «احترام به مقدسات» و درخواست تیم‌های شرکت‌کننده، تغییراتی در نحوه نمایش ایجاد کرده است؛ بر این اساس، در زمان بازی‌های این دو کشور، پرچم عربستان سعودی که روی آن «شهادتین» نوشته شده و پرچم عراق که عبارت «الله اکبر» روی آن نقش بسته، توسط افراد بالای سطح زمین نگه داشته می‌شوند، چرا که مسلمانان قرار دادن این عبارات مقدس را بر روی زمینی که روی آن راه رفته می‌شود، بی‌احترامی می‌دانند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247057
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247057_1782253855.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده نشان می‌دهد که مراسم زادروز علی حاجیوند رشیدی، شبانه در کنار آرامگاه او برگزار شد. این جاویدنام در جریان اعتراضات ۱۹ دی ۱۴۰۴ در دزفول، به دست سرکوبگران کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247056
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247056_1782253858.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شهباز شریف، نخست‌وزیر پاکستان، روز سه‌شنبه با انتشار پیامی در اکس تصاویری از دیدار با مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران، در اسلام‌آباد منتشر کرد و این دیدار را اولین ملاقات طرفین پس از امضای یادداشت تفاهم و دور نخست گفتگوهای فنی در بورگن‌اشتوک خواند. شریف با توصیف گفتگوهای خود با پزشکیان به عنوان دیداری «صمیمانه و گرم» اعلام کرد: «ما بر تعهد مشترک خود به صلح منطقه‌ای و اهمیت دنبال کردن گفتگو و دیپلماسی برای حل تمامی مسائل باقی‌مانده تاکید و توافق کردیم که روابط دیرینه پاکستان و ایران را تقویت کرده و همکاری‌ها را در تمامی حوزه‌های مورد علاقه گسترش دهیم.» نخست‌وزیر پاکستان در ادامه افزود: «من مراتب قدردانی عمیق پاکستان را از مجتبی خامنه‌ای ابراز کردم و از رهبری ایران تجلیل نمودم. همچنین از او برای اعتماد همیشگی به پاکستان به عنوان یک دوست صادق، همسایه و میانجی سپاسگزارم و اسلام‌آباد همچنان به همکاری نزدیک با تهران برای صلح، پیشرفت و شکوفایی دو ملت و منطقه متعهد می‌ماند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247055
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247055_1782253859.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️چه کسانی بیشترین گل را در تاریخ جام جهانی فوتبال زده‌اند؟
+
+
+📌میروسلاو کلوزه با ۱۶ گل در چهار دوره جام جهانی، سال‌ها دست‌نیافتنی به نظر می‌رسید، اما مسی سرانجام از او عبور کرد
+
+
+♦️یونل مسی بار دیگر نام خود را در تاریخ فوتبال ثبت کرده است. ستاره آرژانتینی با دو گل در پیروزی برابر اتریش، تعداد گل‌هایش در جام‌های جهانی را به ۱۸ رساند و از میروسلاو کلوزه عبور کرد تا به تنهایی در صدر جدول گلزنان تاریخ این رقابت‌ها قرار گیرد. این رکورد تازه، آخرین فصل از داستان فوتبالی بازیکنی است که نزدیک به دو دهه در بزرگ‌ترین صحنه فوتبال جهان حضور داشته و اکنون در ششمین جام جهانی خود، بالاتر از همه ایستاده است.
+
+مسی نخستین گل جام جهانی خود را در سال ۲۰۰۶ و در ۱۸ سالگی به ثمر رساند. از آن زمان تا امروز، او در شش دوره جام جهانی برای آرژانتین به میدان رفته و توانسته ۱۸ بار دروازه حریفان را باز کند. رکوردی که تا پیش از جام جهانی ۲۰۲۶ در اختیار میروسلاو کلوزه، مهاجم افسانه‌ای آلمان، بود. کلوزه با ۱۶ گل در چهار دوره جام جهانی، سال‌ها دست‌نیافتنی به نظر می‌رسید، اما مسی سرانجام از او عبور کرد.
+
+بیشتر بخوانید...
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247054
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247054_1782253862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت حمل‌ونقل، ارتباطات و فناوری اطلاعات پادشاهی عمان با انتشار بیانیه‌ای رسمی اعلام کرد که این کشور در راستای مسئولیت خود در قبال تنگه هرمز و اهمیت آن برای اقتصاد جهانی، و بر اساس تعهد ثابت خود به قوانین بین‌المللی و حقوق دریاها جهت تضمین آزادی کشتیرانی بدون وضع حق عبور، امکان استفاده از یک مسیر دریایی موقت را برای تردد تمام کشتی‌ها فراهم کرده است. این اقدام که همسو با نتایج رایزنی‌ها و تلاش‌های اخیر میان ایالات متحده آمریکا و جمهوری اسلامی ایران صورت گرفته، با هماهنگی سازمان بین‌المللی دریانوردی (IMO) انجام شده است. بر این اساس، تمامی کشتی‌های متقاضی عبور می‌توانند بر پایه مختصات اعلام‌شده از سوی این سازمان و مقامات ذی‌صلاح عمان و پس از هماهنگی با سازمان بین‌المللی دریانوردی، از این گذرگاه موقت استفاده کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247053
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247053_1782253863.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسالی به ایران اینترنشنال نشان می‌دهد که ایرانیان ساکن هانوفر آلمان روز سه‌شنبه ۲ تیر در تجمعی به اعدام‌ها در ایران اعتراض کردند. حاضران در این تجمع حمایت خود را از شاهزاده رضا پهلوی اعلام کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247052
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247052_1782253866.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چاک شومر، سناتور دموکرات آمریکا، در گفت‌وگو با ایران‌اینترنشنال درباره ارسال پول به جمهوری اسلامی گفت: «فکر می‌کنم دونالد ترامپ کاملا از سوی رهبری جمهوری اسلامی فریب خورده و سرش کلاه رفته است. وضعیت ما از زمانی که ترامپ این جنگ را آغاز کرد، بدتر شده است.»
+
+او افزود: «تنگه هرمز اکنون بیش از گذشته در کنترل و نفوذ ایران قرار دارد. رهبری جمهوری اسلامی رادیکال‌تر شده است. ما هنوز نمی‌دانیم همه اورانیوم‌های غنی‌شده کجا هستند و چه سرنوشتی پیدا کرده‌اند.»
+
+شومر همچنین گفت: «جهان به عملکرد ترامپ نگاه کرده و تا حدی او را به تمسخر گرفته است. او کار ضعیفی انجام داده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15695
+
+<div align="center">
+  <img src="telegram/content/WithYashar_15695_1782253867.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیش از ۳۰ نفتکش حامل نفت خام ایران که دستگاه‌های فرستنده و گیرنده AIS آنها فعال است!
+
+اکنون به سمت آسیا، چین، ژاپن و کره جنوبی در حرکت هستند و بیش از ۵۰ میلیون بشکه نفت حمل می‌کنند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 343321
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343321_1782253868.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump deboards Air Force One at Joint Base Andrews after returning from Pennsylvania, where he delivered a speech focused on the economy at Mack Trucks in Lehigh Valley.
+
+Trump touted rising 401(k)s, lower gas prices and his plans to boost American manufacturing while also touching on Iran and other major political issues.
+
+The president returned to Washington after wrapping up the event earlier in the afternoon.
+</div>
+
+## FoxNewsTwitter — post 343320
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343320_1782253871.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"What he should do is submit his letter of resignation."
+
+House Minority Leader Hakeem Jeffries unloaded on Pete Hegseth amid reports that the War Secretary could come to Capitol Hill seeking an additional $80 billion tied to the Iran war.
+
+Jeffries called "Operation Epic Failure" a "reckless and costly war of choice," and argued that taxpayers should not be asked to fund it.
+</div>
+
+## FoxNewsTwitter — post 343319
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343319_1782253874.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump shares the behind-the-scenes conversations he has with First Lady Melania Trump about his signature rally dance moves and crowd-pleasing impressions.
+
+“She says, darling, please, please don't dance. It's not presidential, I said, but the people love it!"
+</div>
+
+## FoxNewsTwitter — post 343318
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343318_1782253876.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Did you have a good time? How good a speech was that?"
+
+President Trump talked to reporters as he departed Pennsylvania following a rally-style speech at Mack Trucks focused on the economy.
+
+Over roughly 90 minutes, Trump touted rising 401(k)s, lower gas prices and his plans to boost manufacturing jobs in Pennsylvania. He also declared victory in the conflict with Iran, praised the UFC event at the White House and took jabs at former Presidents Biden and Obama.
+
+After wrapping up his remarks, Trump boarded Air Force One for the flight back to Joint Base Andrews.
+</div>
+
+## FoxNewsTwitter — post 343317
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343317_1782253879.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Lawmakers, parents hold memorial on Social Media Victims Remembrance Day https://twitter.com/i/broadcasts/1DGleedALMzJL
+</div>
+
+## pm_afshaa — post 94716
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94716_1782253879.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چاک شومر، رهبر دموکرات‌ها در سنای آمریکا: جهان عملکرد ترامپ در قبال ایران رو به تمسخر گرفته.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94715
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94715_1782253880.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گروسی، مدیرکل آژانس انرژی اتمی:
+بازرسی از تأسیسات هسته‌ای ایران انجام خواهد شد؛ هرچه زودتر بهتر.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94714
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94714_1782253881.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: من میتونم کار ایران رو تو کمتر از یک هفته تموم کنم؛ ما هر وقت بخوایم میتونیم تو آسمون تهران پرواز کنیم و هیچ کس نمیتونه جلوی ما رو بگیره.
+
+ما ایران رو بدون هیچ ظرفیت هسته‌ای باقی میذاریم و اونا هم با این موضوع موافقت کردن. روابطمون هم خوبه. داریم تلاش میکنیم به توافقی برسیم که منصفانه باشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 344036
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344036_1782253882.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهیر شهید ثالث، تحلیل‌گر روابط بین‌الملل و مسائل ایران، درباره مذاکرات جمهوری اسلامی و آمریکا و مفاد تفاهم‌نامه گفت: «با توجه به نرمش آمریکا در تدوین این تفاهم‌نامه، به نظر می‌رسد واشینگتن در پی دستیابی به یک توافق پایدار است. اما جمهوری اسلامی با اعتمادبه‌نفسی که به دست آورده، ممکن است آن‌قدر بر مواضع غیرمنطقی خود پافشاری کند که مذاکرات را به بن‌بست بکشاند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344035
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/344035" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ عوضش ذرت داریم!
+@iranintlTV
+</div>
+
+## IranIntlTV — post 344034
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344034_1782253885.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال انگلیس در دومین بازی خود در جام جهانی ۲۰۲۶، در استادیوم بوستون مقابل غنا با تساوی بدون گل متوقف شد.
+
+🔹دفاع سفت و سخت و چندلایه تیم کارلوس کیروش اجازه نداد هیچ موقعیت گل قابل توجهی برای ستاره‌های انگلیس ساخته شود و البته غنا هم با کمترین شوت و شانس گل بازی را به پایان برد.
+
+🔹هرچند هری کین و دیگر بازیکنان انگلیس هم با بی‌دقتی در گلزنی ناکام بودند.
+
+🔹در بین دو نیمه بازی، کارلوس کیروش، سرمربی غنا با جود بلینگام، ستاره انگلیس درگیر شد.
+
+🔹این تساوی باعث شد انگلیس و غنا با چهار امتیاز در صدر گروه L باقی بمانند. با این حال، انگلیس به لطف تفاضل گل بهتر، در آستانه بازی‌های پایانی مرحله گروهی، برتری اندکی نسبت به غنا برای صدرنشینی در گروه دارد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344033
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/344033" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: اورانیوم در برابر غذا
+@iranintlTV
+</div>
+
+## IranIntlTV — post 344032
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344032_1782253886.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ درباره بازرسی از تاسیسات اتمی جمهوری اسلامی گفت بازرسان آژانس در زمان مناسب در ایران حضور خواهند داشت. رییس جمهور آمریکا تاکید کرد اگر تهران با بازرسی‌های هسته‌ای موافق نبود، او مذاکرات را لغو می‌کرد.
+
+نیلوفر منصوری، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 344031
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344031_1782253889.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده نشان می‌دهد که مراسم زادروز علی حاجیوند رشیدی، شبانه در کنار آرامگاه او برگزار شد. این جاویدنام در جریان اعتراضات ۱۹ دی ۱۴۰۴ در دزفول، به دست سرکوبگران کشته شد.
+</div>
+
+## IranIntlTV — post 344030
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344030_1782253892.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال، گفت: «دلیل عدم حمایت بسیاری از ایرانی‌ها از تیم ملی فوتبال ایستادن بازیکنان آن در کنار حکومت در اوج شکاف بین مردم و حکومت است. تعبیر مهدی طارمی درباره عادی بودن اختلافات در ایران درست بعد ازکشتار دی ماه همسویی در توجیه یک جنایت است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344029
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344029_1782253894.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال، گفت: «با توجه به نوعی امان‌نامه که آمریکا بعد از امضای تفاهم‌نامه به مقامات جمهوری اسلامی داده است، احتمال دارد در مراسم تشییع و نماز میت علی خامنه‌ای، از مجتبی خامنه‌ای رونمایی شود و در انظار عمومی ظاهر شود. اگر تا حدود ۱۰ الی ۱۲ روز آینده او را نشان ندهند، ادامه روایت رهبر نادیده و ناشنیده برای نظام دشوارتر خواهد شد و پرسش‌های بیشتری درباره اصل زنده یا مرده بودن او مطرح می‌شود.»
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 344028
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344028_1782253895.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رویترز روز سه‌شنبه به نقل از سخنگوی فیفا گزارش داد که پرچم عراق و عربستان به دلیل وجود عبارات مقدس اسلامی، در مراسم پیش از مسابقات جام جهانی ۲۰۲۶ روی زمین قرار داده نمی‌شوند؛ زیرا این پرچم‌ها دارای نوشته‌های مقدس اسلامی هستند.
+
+🔹در مسابقات جام جهانی در آمریکا، کانادا و مکزیک، پرچم‌های بزرگ دو تیم پیش از آغاز بازی در هر نیمه زمین باز می‌شوند و هنگام صف کشیدن بازیکنان در نزدیکی دایره میانی برای پخش سرودهای ملی، روی زمین قرار می‌گیرند.
+
+🔹اما در دیدارهای عربستان سعودی و عراق، پرچم هر دو تیم به جای قرار گرفتن روی زمین، بالاتر از سطح زمین نگه داشته می‌شود تا ضمن حفظ مراسم پیش از مسابقه، به نوشته‌های اسلامی روی این پرچم‌ها نیز احترام گذاشته شود.
+
+🔹سخنگوی فیفا به رویترز گفت: «فیفا در چارچوب تغییرات جدید مراسم افتتاحیه جام جهانی ۲۰۲۶، شیوه‌ای تازه و هوادارمحور را برای ارائه مراسم پیش از مسابقات معرفی کرده است.»
+
+🔹او افزود: «برای اجرای این مراسم، فیفا با تیم‌های شرکت‌کننده همکاری نزدیکی داشته تا درخواست‌های منطقی آن‌ها در زمینه نحوه برگزاری مراسم را در نظر بگیرد.»
+
+جزییات بیشتر را در سایت بخوانید
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344027
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344027_1782253896.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال گفت: «اورانیوم در برابر غذا؛ اورانیوم در برابر گندم؛ و حتی اورانیوم در برابر جو، ذرت و سویا برای گاوها، گوسفندها و مرغ‌ها.
+
+کار برنامه هسته‌ای جمهوری اسلامی بعد از سه دهه به جایی رسیده که جمهوری اسلامی مجبور شده اورانیوم‌های غنی‌شده را تحویل بدهد یا رقیق کند و از بین ببرد تا در مقابلش اجازه پیدا کند از پول‌های مسدودشده خود، گندم، ذرت و سایر کالاهای اساسی وارد کند.
+
+روایتی شبیه سال‌های پایانی اتحاد شوروی؛ کشوری که زرادخانه عظیم هسته‌ای و موشک‌های قاره‌پیما داشت، اما برای تأمین غلات مورد نیاز مردمش ناچار بود هر سال میلیون‌ها تن گندم از آمریکا وارد کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 344026
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344026_1782253898.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسالی به ایران اینترنشنال نشان می‌دهد که ایرانیان ساکن هانوفر آلمان روز سه‌شنبه ۲ تیر در تجمعی به اعدام‌ها در ایران اعتراض کردند. حاضران در این تجمع حمایت خود را از شاهزاده رضا پهلوی اعلام کردند.
+</div>
+
+## IranIntlTV — post 344025
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344025_1782253901.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران اینترنشنال در فصل «مرگ خامنه‌ای؛ پایان دیکتاتور» به بررسی کارنامه رهبری علی خامنه‌ای، پیامدهای فقدان و اهمیت حذف دیکتاتور، و چالش‌های پیش روی مجتبی خامنه‌ای و جمهوری اسلامی می‌پردازد.
+گزارش‌ها، مقالات، مستندها و مصاحبه‌ها را در تلویزیون، بخش‌های خبر، وبسایت و اکانت‌های ایران اینترنشنال در شبکه‌های اجتماعی دنبال کنید.
+#پایان_دیکتاتور
+@iranintltv
+</div>
+
+## FarsiVOA — post 221684
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اطلاعات اختصاصی صدای آمریکا درباره «حکم پنج سال حبس تعزیری» طیبه نظری مادر دادخواه مریم آروین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221683
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش‌ها از احتمال طرح پرونده رون آراد در مذاکرات اسرائیل و لبنان در واشنگتن
+
+◾️یک رسانه اسرائیلی روز سه‌شنبه گزارش داد که پرونده رون آراد، خلبان مفقودشده نیروی هوایی اسرائیل، ممکن است در مذاکرات جاری میان نمایندگان اسرائیل و لبنان در واشنگتن مطرح شود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/ron-arad-case-enters-talks/8164049.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221682
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سازمان بین‌المللی دریانوردی تخلیه ۱۱ هزار ملوان گرفتار در خلیج فارس را آغاز می‌کند
+
+◾️سازمان بین‌المللی دریانوردی وابسته به سازمان ملل متحد روز سه‌شنبه ۲ تیر اعلام کرد تخلیه بیش از ۱۱ هزار ملوانی را که در پی جنگ میان ایالات متحده و رژیم ایران در خلیج فارس گرفتار شده‌اند، آغاز خواهد کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/imo-begins-evacuating-stranded-sailors-persian-gulf/8164043.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221681
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حمایت واشنگتن از اقدامات بیروت برای گسترش حاکمیت خود در میانه پنجمین دور مذاکرات اسرائیل-لبنان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺یک نظرسنجی تازه می‌گوید نرخ تأیید عملکرد ترامپ پس از امضای تفاهم‌نامه با جمهوری اسلامی افزایش یافته است
+
+◾️نتایج یک نظرسنجی «دیلی‌میل» نشان می‌دهد نرخ تائید اقدامات دونالد ترامپ رئیس‌جمهوری آمریکا، پس از امضای تفاهم‌نامه با رژیم ایران، در بین رای‌دهندگان آمریکایی افزایش یافته است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8164058.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 17909
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17909_1782253904.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🌃
+Su-33 Flanker-D
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 284865
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284865_1782253906.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آمریکا اعلام کرده است که محدودیت‌های مربوط به ترتیبات سفر تیم ملی ایران در جام جهانی را کاهش داده است.
+
+بر اساس این گزارش، ایالات متحده به این تیم اجازه داد دو روز پیش از دیدار بعدی خود به آمریکا سفر کند.
+
+درچارچوب محدودیت‌هایی که آمریکا به عنوان میزبان جام جهانی برای تیم ایران اعمال کرده بود به این تیم اجازه داده شده بود که یک روز قبل از بازی خود به آمریکا سفر کند و طبق شرایط ویزای خود، باید بلافاصله و در همان روز مسابقه، خاک آمریکا را ترک می‌کرد.
+
+به دلیل همین محدودیت، تیم ملی ایران محل اردوی خود را هم از آریزونا در آمریکا به شهر تیخوانا در مکزیک منتقل کرد.
+
+ایران تاکنون دو بازی در مرحله گروهی جام‌جهانی انجام داده و بازی سوم این تیم ۲۷ ژوئن در برابر مصر و در سیاتل خواهد بود.
+
+📸Getty Images
+https://bbc.in/4aN1fga
+@BBCPersian
+</div>
+
+## BBCPersian — post 284864
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284864_1782253907.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸تیم ملی فوتبال پرتغال توانست با پیروزی ۵ بر صفر برابر ازبکستان صعود خود به مرحله بعد را قطعی کند.
+
+کریس رونالدو، فوق ستاره فوتبال در این مسابقه دبل کرد تا یک رکورد جدید دیگر ثبت کند؛ او نخستین فوتبالیستی شد که در شش جام جهانی گلزنی کرده است.
+
+ازبکستان که در دیدار اول برابر کلمبیا مغلوب شده بود در این مسابقه نتوانست انسجام و برنامه تیمی خود را نشان دهد و با دو شکست در آستانه حذف قرار گرفته است و تنها در صورت شکست کنگو در دیدار آخر می‌تواند به صعود به عنوان یکی از تیم‌های سوم امیدوار بماند.
+
+📸NurPhoto via Getty Images
+https://bbc.in/4erMvWl
+@BBCPersian
+</div>
+
+## BBCPersian — post 284863
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ترامپ: بازرسان آژانس در «زمان مناسب» در ایران حاضر خواهند شد
+
+دونالد ترامپ، رئیس‌جمهور آمریکا، گفت که ایران درباره نبود برنامه‌ای برای بازرسی آژانس بین‌المللی انرژی اتمی از مراکز هسته‌ای آسیب‌دیده‌اش در جنگ، در اشتباه است.
+
+ترامپ: بازرسان آژانس در «زمان مناسب» در ایران حاضر خواهند شد
+دونالد ترامپ، رئیس‌جمهور آمریکا، گفت که ایران درباره نبود برنامه‌ای برای بازرسی آژانس بین‌المللی انرژی اتمی از مراکز هسته‌ای آسیب‌دیده‌اش در جنگ، در اشتباه است.
+
+آقای ترامپ افزود که بازرسان آژانس در «زمان مناسب» در ایران حاضر خواهند شد.
+
+او ساعاتی پیش از این در پستی در تروث سوشال نوشته بود «ایران به طور کامل و بدون قید و شرط با انجام بازرسی‌های هسته‌ای در بالاترین سطح و برای مدت بسیار طولانی در آینده (تا ابد!!!) موافقت کرده است» و افزوده که «اگر ایران با این موضوع موافقت نمی‌کرد، هیچ مذاکره دیگری در کار نبود.»
+
+اسماعیل بقایی، سخنگوی وزارت خارجه ایران، پیش از این گفته بود که ایران برنامه‌ای برای دسترسی دادن به آژانس برای بازدید از تاسیسات هسته‌ای آسیب‌دیده در جنگ ندارد. اظهاراتی که به نظر می‌رسد واکنشی به گفته‌های دیروز جی دی ونس، معاون رئیس‌جمهور آمریکا باشد که گفته بود ایران با بازگشت بازرسان آژانس بین‌المللی انرژی اتمی موافقت کرده است.
+
+https://bbc.in/4xGuzPv
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392942
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392942_1782253908.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز پزشکیان تو پاکستان به نشان دوستی داشت درخت میکاشت، بعد شهباز شریف نخست‌وزیر پاکستان هر چقدر به مسعود می‌گفت جان مادرت بیخیال شو این حرکت نمادینه، مسعود توجه نمی‌کرد و بی وقفه بیل میزد😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392941
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392941_1782253909.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دست خدا عیان شد، خامنه‌ای سویا شد😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 129943
+
+<div align="center">
+  <a href="telegram/content/alonews_129943_1782253910.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل به چادری تو غزه حملهِ هوایی کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129942
+
+<div align="center">
+  <a href="telegram/content/alonews_129942_1782253910.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی: این روزا همه چیز عجیب شده...
+
+
+🔴اون جایی که باید بسته باشه، بازه.
+
+🔴اون جایی که باید باز باشه، بسته‌ست.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129941
+
+<div align="center">
+  <a href="telegram/content/alonews_129941_1782253910.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی سایبری کشور: اختلال ایجادشده در سامانه‌های کارت‌محور برخی بانک‌ها ناشی از یک حمله سایبری هدفمند به زیرساخت‌های مرتبط بوده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129940
+
+<div align="center">
+  <a href="telegram/content/alonews_129940_1782253911.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شهباز شریف هم نتونست مانع بیل زدن پایان ناپذیر پزشکیان برای کاشتن درخت تو اسلام آباد بشه
+
+
+🔴شهباز هی میگه نمادین هست ولش کن اما مسعود ول نمیکنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 129939
+
+<div align="center">
+  <a href="telegram/content/alonews_129939_1782253912.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانالای ایتا: ممکنه نهاده‌های دامی آمریکایی آلوده باشه و مردم مریض بشن
+
+
+🔴پ.ن: احتمالا ارزشیون جزو دام و طیور هستن که نگرانن😂
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/04/03 00:28
 ---
 
