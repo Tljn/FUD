@@ -7,6 +7,632 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/03 03:14
+---
+
+## VahidOOnLine — post 247066
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247066_1782258287.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جانی اینفانتینو، رئیس فیفا، اعلام کرد دونالد ترامپ، رئیس‌جمهوری آمریکا، جام قهرمانی جام جهانی ۲۰۲۶ را در فینال این رقابت‌ها که در تاریخ ۲۸ تیر (۱۹ ژوئیه) در ورزشگاه نیوجرسی برگزار می‌شود، به تیم قهرمان اهدا خواهد کرد.
+به گزارش رویترز، اینفانتینو در گفتگو با برنامه «فاکس اند فرندز» گفت او و ترامپ به‌طور مشترک در مراسم پایانی حضور خواهند داشت و جام را به کاپیتان تیم برنده تحویل می‌دهند.
+این تصمیم پس از حاشیه‌های مراسم اهدای جام جهانی باشگاه‌ها به چلسی در سال گذشته مطرح شده است؛ زمانی که ترامپ جام را به ریس جیمز، کاپیتان چلسی، اهدا کرد و پس از آن نیز روی سکو کنار بازیکنان ماند؛ صحنه‌ای که واکنش و سردرگمی برخی بازیکنان را به همراه داشت.
+در تاریخ جام جهانی، پیش‌تر نیز برخی رهبران کشورها جام قهرمانی را اهدا کرده‌اند؛ از جمله ملکه الیزابت دوم که در سال ۱۹۶۶ جام را به بابی مور، کاپیتان تیم ملی انگلیس، داد و پادشاه خوان کارلوس اسپانیا که در سال ۱۹۸۲ جام قهرمانی را به دینو زوف، کاپیتان تیم ملی ایتالیا، اهدا کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247065
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247065_1782258288.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رسمی عمان در اطلاعیه‌ای نوشت این کشور با توجه به مسئولیت خود در قبال تنگه هرمز و همسو با نتایج رایزنی‌های آمریکا و ایران، با هماهنگی سازمان بین‌المللی دریانوردی اقدام به فراهم کردن امکان استفاده از یک مسیر دریایی موقت برای تمامی‌کشتی‌ها کرده است.
+طبق این اطلاعیه، این مسیر بر اساس مختصات اعلام‌شده از سوی سازمان بین‌المللی دریانوردی و مراجع ذی‌صلاح عمانی تعیین شده و کشتی‌های متقاضی عبور باید هماهنگی‌های لازم را با سازمان بین‌المللی دریانوردی انجام دهند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247064
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247064_1782258288.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارک روته، دبیرکل ناتو، از تلاش‌های دونالد ترامپ، رییس‌جمهوری آمریکا، برای اطمینان یافتن از اینکه تهران هرگز به قابلیت‌های هسته‌ای دست نخواهد یافت، حمایت کرد.
+
+او به شبکه خبری فاکس گفت: «رییس‌جمهور دقیقاً همان کاری را که لازم است انجام می‌دهد، یعنی تضعیف توانایی هسته‌ای ایران.»
+
+روته رژیم ایران را «صادرکننده هرج و مرج و تروریسم» توصیف کرد و افزود: «"می‌توانید تصور کنید که ایران به سلاح هسته‌ای دست یابد؟ این برای منطقه و برای کل جهان ویرانگر خواهد بود. و اگر آن لحظه فرا برسد که آن‌ها به سلاح هسته‌ای دست یابند، خیلی دیر خواهد بود.»
+
+او در مورد موضع کشورهایی که به ترامپ گفتند جنگ با ایران «جنگ ما نیست» و «ما آن را شروع نکرده‌ایم»، گفت که «ناامیدی» را کاملاً درک می‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247063
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247063_1782258289.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گیلا گملیئل، وزیر علوم و فناوری اسرائیل، در نشست بین‌المللی سیاست‌گذاری «سندیکای خبر یهود» با تاکید بر اینکه «قوم یهود و ملت ایران پیوندی ۲۵۰۰ ساله دارند که جمهوری اسلامی نتوانسته آن را از بین ببرد»، خواستار «ایرانی آزاد و همکاری منطقه‌ای» شد.
+گملیئل گفت «این پیوند به کوروش بزرگ بازمی‌گردد؛ کسی که به یهودیان اجازه داد از تبعید در بابل به اورشلیم بازگردند و معبد را بازسازی کنند». او این رویداد را «نخستین پیمان میان ملت ایران و مردم یهودی» خواند.
+او افزود، حکومت جمهوری اسلامی، برابر با مردم ایران نیست و یک ایران آزاد می‌تواند با اسرائیل، کشورهای خلیج فارس و ایالات متحده در زمینه آب، انرژی و امنیت همکاری کند.
+وزیر علوم و فناوری اسرائیل گفت که وقتی میزبان شاهزاده رضا پهلوی بوده، همراه با او طرح «توافق کوروش» را برای گسترش توافق‌ ابراهیم به سوی یک ایران آزاد، پیشنهاد کرده است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247062
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247062_1782258289.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تلویزیون خصوصی تمدن سه‌شنبه دوم تیر اعلام کرد که نیروهای رژیم طالبان به دفتر مرکزی این تلویزیون در کابل هجوم برده و پخش تلویزیونی این رسانه را متوقف کرده‌اند.
+این تلویزیون که برنامه‌هایش عمدتا متمرکز بر مفاهیم مذهب تشیع است، در اطلاعیه‌ای از «مردم مومن و عزادار افغانستان» درخواست کرد «این موضوع را با حساسیت و دقت دنبال کنند و درباره تحولات پیش‌رو هوشیار باشند».
+رژیم طالبان در این مورد اظهارنظری نکرده است.
+موسس تلویزیون تمدن محمد آصف حسینی، رهبر پیشین حزب «حرکت اسلامی» است. طالبان دو سال قبل نیز به دفتر این رسانه هجوم برده و این رسانه به اتهام وابستگی به حزب حرکت اسلامی  و «غصبی» بودن مکان آن توقیف کرده بودند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247061
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران، در جریان سفر خود به اسلام‌آباد به همراه شهباز شریف، نخست‌وزیر پاکستان، در مراسم نمادین کاشت نهال دوستی ایران و پاکستان شرکت کرد.
+ویدیوی منتشرشده از این مراسم نشان می‌دهد پزشکیان پس از قرار دادن نهال در محل کاشت، همچنان به بیل زدن و ریختن خاک اطراف آن ادامه می‌دهد؛ در حالی که شهباز شریف چندین بار با اشاره دست تلاش می‌کند پایان مراسم را اعلام کند. در این میان، لبخندهای شهباز شریف و ادامه بیل زدن پزشکیان توجه کاربران شبکه‌های اجتماعی را جلب کرده است.
+پزشکیان روز سه‌شنبه با استقبال شهباز شریف وارد اسلام‌آباد شد. او در این سفر با مقام‌های ارشد پاکستان درباره روابط دوجانبه و تحولات منطقه‌ای گفتگو می‌کند. پاکستان در ماه‌های گذشته نقش فعالی در تلاش‌های دیپلماتیک مرتبط با آتش‌بس، ازسرگیری مذاکرات و روند دستیابی به تفاهم‌نامه میان ایران و آمریکا ایفا کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247060
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247060_1782258290.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️کریستیانو رونالدو، فوق‌ستاره ۴۱ ساله تیم ملی پرتغال، در جریان پیروزی قاطع مقابل ازبکستان در مرحله گروهی جام جهانی ۲۰۲۶، پاسخ منتقدانش را به باشکوه‌ترین شکل ممکن داد و با ثبت یک بریس درخشان، دو رکورد تاریخی را در دنیای فوتبال جابه‌جا کرد. او با باز کردن دروازه حریف، به تنها فوتبالیست تاریخ تبدیل شد که در ۶ دوره متوالی جام جهانی موفق به گلزنی شده است؛ رکوردی بی‌نظیر که از جام جهانی ۲۰۰۶ آلمان آغاز شده و تا مسابقات سال ۲۰۲۶ در آمریکای شمالی ادامه یافته است. رونالدو با زدن گل‌های اول و دوم خود در این مسابقه در دقایق ۷ و ۳۹، شمار گل‌های خود در ادوار جام جهانی را به عدد ۱۰ رساند تا با عبور از رکورد ۹ گل اوزه‌بیو افسانه‌ای که از سال ۱۹۶۶ دست‌نخورده باقی مانده بود، به تنهایی بر صدر جدول بهترین گلزنان تاریخ پرتغال در جام‌های جهانی تکیه بزند. این مهاجم خستگی‌ناپذیر با ۴۱ سال سن، اکنون پس از روژه میلا به عنوان دومین گلزن مسن تاریخ این رقابت‌ها شناخته می‌شود و پس از باز کردن دروازه، با فریاد زدن جمله «من برگشتم، من برگشتم» خطاب به دوربین‌های تلویزیونی، نشان داد که با وجود تمام انتقادات اخیر درباره افت بدنی یا لزوم نیمکت‌نشینی‌اش، همچنان مهره کلیدی و مهارناپذیر خط حمله پرتغال است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343325
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343325_1782258291.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+MLB says Giants players who wrote Bible verse references on their Pride Night hats will not be punished.
+
+Now Sen. Josh Hawley is claiming victory.
+
+Speaking with @WillCainShow, the Missouri Republican said MLB backed down after Commissioner Rob Manfred confirmed the players were never fined or disciplined and never will be.
+
+"Let's get back to God and country and playing some baseball, and stop all this woke garbage."
+</div>
+
+## FoxNewsTwitter — post 343324
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I hope they find her. That family has gone through hell."
+
+President Trump weighed in on the disappearance of 84-year-old Nancy Guthrie after being asked about the case on Tuesday.
+
+The comments come as Savannah Guthrie renews her public plea for information about her missing mother, who vanished on February 1.
+
+Fox News correspondent Matt Finn reports investigators are treating letters sent in the case as credible enough to investigate, including one that claimed Nancy Guthrie was "buried with nature."
+
+No arrests have been announced.
+</div>
+
+## FoxNewsTwitter — post 343323
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343323_1782258293.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Steve Doocy called. He wants you dressed for 1776. 🇺🇸
+
+Shop the Patriotic Collection on the Fox News Shop. bit.ly/3Qygnr2
+</div>
+
+## FoxNewsTwitter — post 343322
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343322_1782258295.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"It would be devastating for the region, it would be devastating for the whole world."
+
+NATO Secretary General Mark Rutte joined @BretBaier on @SpecialReport and threw his support behind President Trump's approach to Iran, warning of the global consequences if Tehran were to obtain a nuclear weapon.
+
+"Could you imagine if Iran gets its hands on a nuclear weapon?" Rutte asked.
+
+"I am completely behind him on this," he added, praising Trump's efforts to ensure Iran never acquires nuclear capabilities.
+</div>
+
+## DEJradio — post 5924
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5924_1782258297.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺 برنامه دژ فوتبالی
+
+*مهدی رستم‌پور، خبرنگار ورزشی
+
+#دژفوتبالی #جام_جهانی
+@DEJradio
+</div>
+
+## IranIntlTV — post 344046
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344046_1782258297.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رسمی عمان در اطلاعیه‌ای نوشت این کشور با توجه به مسئولیت خود در قبال تنگه هرمز و همسو با نتایج رایزنی‌های آمریکا و ایران، با هماهنگی سازمان بین‌المللی دریانوردی اقدام به فراهم کردن امکان استفاده از یک مسیر دریایی موقت برای تمامی‌کشتی‌ها کرده است.
+طبق این اطلاعیه، این مسیر بر اساس مختصات اعلام‌شده از سوی سازمان بین‌المللی دریانوردی و مراجع ذی‌صلاح عمانی تعیین شده و کشتی‌های متقاضی عبور باید هماهنگی‌های لازم را با سازمان بین‌المللی دریانوردی انجام دهند.
+
+https://iranintl.com/202606234195
+</div>
+
+## IranIntlTV — post 344044
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344044_1782258298.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست‌وزیر پاکستان گفت که در تفاهم‌نامه میان ایران و ایالات متحده، هیچ اشاره‌ای به موشک‌های بالیستیک نشده است.
+
+اردوان روزبه، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 344043
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344043_1782258300.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارک روته، دبیرکل ناتو، از تلاش‌های دونالد ترامپ، رییس‌جمهوری آمریکا، برای اطمینان یافتن از اینکه تهران هرگز به قابلیت‌های هسته‌ای دست نخواهد یافت، حمایت کرد.
+
+او به شبکه خبری فاکس گفت: «رییس‌جمهور دقیقاً همان کاری را که لازم است انجام می‌دهد، یعنی تضعیف توانایی هسته‌ای ایران.»
+
+روته رژیم ایران را «صادرکننده هرج و مرج و تروریسم» توصیف کرد و افزود: «"می‌توانید تصور کنید که ایران به سلاح هسته‌ای دست یابد؟ این برای منطقه و برای کل جهان ویرانگر خواهد بود. و اگر آن لحظه فرا برسد که آن‌ها به سلاح هسته‌ای دست یابند، خیلی دیر خواهد بود.»
+
+او در مورد موضع کشورهایی که به ترامپ گفتند جنگ با ایران «جنگ ما نیست» و «ما آن را شروع نکرده‌ایم»، گفت که «ناامیدی» را کاملاً درک می‌کند.
+https://iranintl.com/202606237001
+</div>
+
+## IranIntlTV — post 344042
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344042_1782258300.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گیلا گملیئل، وزیر علوم و فناوری اسرائیل، در نشست بین‌المللی سیاست‌گذاری «سندیکای خبر یهود» با تاکید بر اینکه «قوم یهود و ملت ایران پیوندی ۲۵۰۰ ساله دارند که جمهوری اسلامی نتوانسته آن را از بین ببرد»، خواستار «ایرانی آزاد و همکاری منطقه‌ای» شد.
+گملیئل گفت «این پیوند به کوروش بزرگ بازمی‌گردد؛ کسی که به یهودیان اجازه داد از تبعید در بابل به اورشلیم بازگردند و معبد را بازسازی کنند». او این رویداد را «نخستین پیمان میان ملت ایران و مردم یهودی» خواند.
+او افزود، حکومت جمهوری اسلامی، برابر با مردم ایران نیست و یک ایران آزاد می‌تواند با اسرائیل، کشورهای خلیج فارس و ایالات متحده در زمینه آب، انرژی و امنیت همکاری کند.
+وزیر علوم و فناوری اسرائیل گفت که وقتی میزبان شاهزاده رضا پهلوی بوده، همراه با او طرح «توافق کوروش» را برای گسترش توافق‌ ابراهیم به سوی یک ایران آزاد، پیشنهاد کرده است.
+
+https://iranintl.com/202606231671
+</div>
+
+## IranIntlTV — post 344041
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344041_1782258301.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نور از تهران: چاره‌ای جز قبول این تسلیم‌نامه ندارند و ایدئولوژی‌شان را با ذرت تاخت زدند
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/yJDjsGLsQZ4
+@iranintltv
+</div>
+
+## IranIntlTV — post 344040
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344040_1782258302.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افشین از شیراز: ترامپ اولویت اولش مردم خودش است؛ اما ما عادت نداریم به این چیزها
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/yJDjsGLsQZ4
+@iranintltv
+</div>
+
+## IranIntlTV — post 344039
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344039_1782258304.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دنیا از اصفهان: این‌ها توان حل مشکلات ما را ندارند و همین باعث سقوطشان می‌شود
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/yJDjsGLsQZ4
+@iranintltv
+</div>
+
+## IranIntlTV — post 344038
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344038_1782258306.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نوید از سراوان: بحث ذرت و پاپ‌کورن ما را از بحث اصلی دور نکند!
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/yJDjsGLsQZ4
+@iranintltv
+</div>
+
+## IranIntlTV — post 344037
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344037_1782258307.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خامنه‌ای را دادند؛ ذرت گرفتند!
+
+هزینه‌ای که جمهوری اسلامی برای رسیدن به توافق با آمریکا پرداخته، بسیار سنگین بوده است. آیا جمهوری اسلامی در این جنگ، خامنه‌ای را داد تا در عوض با آمریکا توافق کند و ذرت بگیرد؟
+
+به نظر می‌رسد مسئولان نظام از این توافق و آنچه برخی «تاخت زدن خامنه‌ای با ذرت» می‌نامند، خوشحال‌اند.
+
+نظر شما درباره این توافق چیست؟
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/yJDjsGLsQZ4
+@iranintltv
+</div>
+
+## FarsiVOA — post 221690
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221690_1782258309.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مسی در ۳۹ سالگی؛ «غیرقابل‌باور» و فراترازانتظار؛ گفت‌وگو با مهرداد بحری مفسر و مربی فوتبال
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221689
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221689_1782258310.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️طوفان در جام جهانی؛ توقف مسابقه فرانسه و عراق در گزارش آرش آرا
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221688
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221688_1782258311.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ: ما در تلاش برای دستیابی به یک توافق منصفانه با حکومت ایران هستیم
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221687
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تازه‌ترین تحولات ایران، از تدارک تشییع جنازه خامنه‌ای که با محدودیت پروازها در تهران، قم و مشهد همراه شده تا تعطیلی مجلس شورای اسلامی وادعای «پیروزی» در رسانه‌های حکومتی. فعالان نیز نسبت به احتمال اعدام علی صفری، بازیگر تئاتر هشدار داده‌اند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221686
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221686_1782258312.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شادی در فرانسه پس از بازی در مقابل تیم عراق
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221685
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221685_1782258313.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کامبیز غفوری در برنامه تفسیر خبر: خامنه‌ای بدترین قمار باز بود و نمی‌دانست کی باید از سر میز بلند شود
+@FarsiVOA
+</div>
+
+## IranianMinds — post 23206
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23206_1782258314.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چقدر حرف مموتی درست بود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23205
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایلان ماسک😂
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23204
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23204_1782258316.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مسعود پزشکیان هم یه درخت کاشت در اسلام‌آباد و هر چقدر طرف بهش میگه داداش بسه، مسعود همچنان به بیل زدن ادامه داد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23203
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23203_1782258318.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂😂😂
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 284868
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284868_1782258318.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻برنامه موشک‌های بالستیک که از موارد اختلافی قدرت‌های غربی با جمهوری اسلامی ایران بوده، یک بار دیگر خبرساز شده است و پاکستان و ایران اظهارات متفاوتی درباره آن در مذاکرات جاری بین ایران و ایالات متحده داشتند.
+
+شهباز شریف، نخست‌وزیر پاکستان، صبح امروز و ساعاتی پیش از دیدار رسمی رئیس جمهور ایران از آن کشور، در پارلمان پاکستان گفت: « در ۶۰ روز آینده، زمانی که مذاکرات فنی ایران و آمریکا برگزار شود، موضوعاتی مانند برنامه هسته‌ای، موشک‌های بالستیک و دارایی‌های مسدودشده ایران مورد بحث قرار خواهد گرفت.»
+
+آقای شریف گفت: «کامل امیدواریم، ان‌شاءالله، به لطف خداوند متعال، که در طول این ۶۰ روز، این تفاهم‌نامه به یک توافق پایدار و بلندمدت تبدیل شود.»
+ادامه مطلب⬇️
+
+📸Reuters
+https://bbc.in/4vw97eq
+@BBCPersian
+</div>
+
+## BBCPersian — post 284867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢خودآموز مقاومت جلوی ماشین‌های گلزنی؛ چطور مسی، امباپه، هالند و کین را مهار کنیم؟
+🖌دیل جانسون
+بی‌بی‌سی
+
+جام جهانی همیشه زمانی جذاب‌تر و خاص‌تر می‌شود که ستاره‌های بزرگ فوتبال در آن بدرخشند.
+
+در دو هفته اول مسابقات، چهار تن از برترین مهاجمان فوتبال جهان با نمایشی خیره‌کننده و ویرانگر، ورود خود به جام جهانی را اعلام کردند؛ گویی هر یک از درخشش دیگری انگیزه می‌گرفت و به زمین می‌آمد.
+
+کیلیان امباپه، ستاره رئال مادرید با دو گل در پیروزی ۳ بر ۱ فرانسه برابر سنگال آغازگر این روند بود. او در دیدار بعدی مقابل عراق هم دو گل دیگر زد تا شمار گل‌هایش در این دوره از جام جهانی به چهار برسد و مجموع گل‌هایش در تاریخ این رقابت‌ها را به شانزده گل افزایش دهد؛ آماری که او را در کنار میروسلاو کلوزه آلمانی، قرار داد.
+ادامه مطلب⬇️
+
+https://bbc.in/4w7NFfD
+@BBCPersian
+</div>
+
+## BBCPersian — post 284866
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284866_1782258319.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸تیم فوتبال انگلیس که در مسابقه نخست خود با نتیجه ۴ بر ۲ کرواسی را به زانو در آورده بود و هواداران خود را حسابی امیدوار کرده بود، در برابر غنا به نتیجه‌ای بهتر از مساوی بدون گل نرسید.
+
+انگلیس اگر چه در طول مسابقه بارها روی دروازه غنا حمله کرد و هری کین چند موقعیت خوب را از دست داد اما غنا هم دست و پا بسته نبود و در ضد حملات چند بار ورزشگاه را نیم‌خیز کرد.
+
+با این نتیجه، انگلیس با ۴ امتیاز صدرنشین باقی ماند و غنا هم که در دیدار نخست پاناما را شکست داده بود با همین امتیاز دوم است.
+
+دیگر دیدار این گروه را کرواسی و پاناما برگزار خواهند کرد.
+
+📸GettyImages
+https://bbc.in/4uQYWA0
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 392951
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ جام جهانی شروع شده و میدون مال توئه! 
+🌟 این #جام_جهانی رو فقط باید توی #بت فیدو پیش‌بینی کنی 
+💰 با ۵۰ میلیون تومان شرط روزانه ← ۴ میلیون تومان اعتبار شرط‌بندی رایگان 
+📊 با ۱۰۰ میلیون تومان شرط روزانه ← ۸ میلیون تومان اعتبار شرط‌بندی رایگان میدونستی با انتخاب…
+</div>
+
+## Dirty_Kids — post 392950
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392950_1782258320.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ جام جهانی شروع شده و میدون مال توئه!
+
+
+🌟 این #جام_جهانی رو فقط باید توی #بت فیدو پیش‌بینی کنی
+
+
+💰 با ۵۰ میلیون تومان شرط روزانه ← ۴ میلیون تومان اعتبار شرط‌بندی رایگان
+
+📊 با ۱۰۰ میلیون تومان شرط روزانه ← ۸ میلیون تومان اعتبار شرط‌بندی رایگان
+
+میدونستی با انتخاب برد کرواسی مقابل پاناما با شش میلیون ده میلیون تومن برنده میشی؟!
+
+
+💸 هرچی بزرگ‌تر بازی کنی، جایزت بزرگ‌تره!
+
+🥅همین حالا پیش بینیتو ثبت کن
+💖
+https://fido874vt.click
+https://fido874vt.click
+
+👆
+👆
+👆
+👆
+👆
+(ورود با وی-پی-ان غیر اروپایی)
+❌
+A2
+
+📲کانال تلگرام 
+👇
+https://t.me/+dySI_QFj0T0xZGVk
+</div>
+
+## Dirty_Kids — post 392949
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392949_1782258320.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392948
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392948_1782258321.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منم جای مسی بودن ۵ تا گل میزدم تو ۲ تا بازی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واکسنِ امریکایی رو ممنوع کرد ولی خودش رو با یونجهٔ امریکایی معاوضه کردن!
+
+هِیهات مِنَّ یونجة! ✊🏼✊🏼🍿😂
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392946
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_392946_1782258322.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیئت اعزامی به انبارهای گندم دونالدیسف.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392944
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_392944_1782258323.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 چند روز پیش تو کرج، پلیسا یه جوون بدبخت به اسم علی خیراندیش رو، بخاطر موتور سنگین، بهش تیر میزنن و به قتل میرسوننش.
+
+مردمم می‌ریزن سر پلیسا تا پدرشونو در بیارن، اما فرار میکنن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 392943
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دست خدا عیان شد
+خامنه‌ای بلال شد
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/04/03 02:00
 ---
 
