@@ -7,6 +7,139 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/02 03:38
+---
+
+## VahidOOnLine — post 246922
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_246922_1782173318.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غلامحسین محسنی اژه‌ای، رییس قوه قضاییه، با حمله به دونالد ترامپ، رییس‌جمهوری آمریکا، گفت به آمریکا و شخصی مانند او نمی‌توان اعتماد کرد.
+او ترامپ را «متکبر، مغرور، خودخواه، عقده‌ای، پست و پیمان‌شکن» خواند و افزود برخی مسئولان، به گفته مجتبی خامنه‌ای، با حسن نظر مذاکره را راه تامین مصالح نظام می‌دانند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246921
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️غلامحسین محسنی اژه‌ای، رئیس قوه قضایی جمهوری اسلامی با «پست» و «عقده‌ای» خواندن دونالد ترامپ، رئیس‌جمهوری آمریکا درباره مذاکرات جاری گفت که فعلا نظر بر این است که «مصالح نظام» از این طریق تامین می‌شود و نقشه‌های دشمن به این روش خنثی می‌شود. اژه‌ای افزود: به هیچ وجه تسلیم نخواهیم شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246920
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_246920_1782173319.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو منبع اسرائیلی به اکسیوس گفتند دولت اسرائیل نگران است که آمریکا با تفاهم‌های جدیدی که در سوئیس به دست آمده و همچنین تفاهم‌نامه‌ای که هفته گذشته با حکومت ایران امضا شد، عملا نفوذ جمهوری اسلامی در لبنان را مشروعیت می‌بخشد و آزادی عمل اسرائیل در این کشور را محدود می‌کند.
+منابع اسرائیلی می‌گویند توافق‌های جدید آمریکا و ایران درباره لبنان، تفاهم‌های پیشین میان دولت‌های نتانیاهو و جو بایدن در سال ۲۰۲۴ در این زمینه را تضعیف می‌کند.
+یک منبع اسرائیلی گفت اگرچه بخش هسته‌ای توافق آمریکا و ایران برای بنیامین نتانیاهو، نخست‌وزیر اسرائیل، نگران‌کننده است، اما او در حال حاضر بیش از همه درباره بخش مربوط به لبنان نگرانی دارد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343270
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343270_1782173319.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"The players were neither fined nor disciplined, nor will they ever be."
+
+MLB Commissioner Rob Manfred is pushing back after Sen. Josh Hawley accused the league of targeting San Francisco Giants players who wrote Bible verse references on their Pride Night hats.
+
+In a letter to Hawley, Manfred said the players received only a "routine oral warning" related to MLB's uniform policy and stressed that no fines or discipline were issued. He also said the league later learned the Giants had not clearly informed players they could opt out of the Pride-themed cap and wear a standard game cap instead.
+
+The dispute has become the latest flashpoint in the debate over religious expression, Pride events, and professional sports.
+</div>
+
+## IranIntlTV — post 343850
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_343850_1782173320.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غلامحسین محسنی اژه‌ای، رییس قوه قضاییه، با حمله به دونالد ترامپ، رییس‌جمهوری آمریکا، گفت به آمریکا و شخصی مانند او نمی‌توان اعتماد کرد.
+او ترامپ را «متکبر، مغرور، خودخواه، عقده‌ای، پست و پیمان‌شکن» خواند و افزود برخی مسئولان، به گفته مجتبی خامنه‌ای، با حسن نظر مذاکره را راه تامین مصالح نظام می‌دانند.
+</div>
+
+## IranIntlTV — post 343849
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_343849_1782173321.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو منبع اسرائیلی به اکسیوس گفتند دولت اسرائیل نگران است که آمریکا با تفاهم‌های جدیدی که در سوئیس به دست آمده و همچنین تفاهم‌نامه‌ای که هفته گذشته با حکومت ایران امضا شد، عملا نفوذ جمهوری اسلامی در لبنان را مشروعیت می‌بخشد و آزادی عمل اسرائیل در این کشور را محدود می‌کند.
+منابع اسرائیلی می‌گویند توافق‌های جدید آمریکا و ایران درباره لبنان، تفاهم‌های پیشین میان دولت‌های نتانیاهو و جو بایدن در سال ۲۰۲۴ در این زمینه را تضعیف می‌کند.
+یک منبع اسرائیلی گفت اگرچه بخش هسته‌ای توافق آمریکا و ایران برای بنیامین نتانیاهو، نخست‌وزیر اسرائیل، نگران‌کننده است، اما او در حال حاضر بیش از همه درباره بخش مربوط به لبنان نگرانی دارد.
+
+https://iranintl.com/202606228814
+</div>
+
+## FarsiVOA — post 221589
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221589_1782173322.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دیوار دفاعی ایران مقابل ستاره‌های بلژیک؛ گفت‌وگو با معصومه حسرتی، عضو پیشین تیم ملی زنان ایران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رشد منفی اقتصادی ایران و اثر آن بر سفره مردم؛ گفت‌وگو با مهدی قدسی، اقتصاددان
+@FarsiVOA
+</div>
+
+## BBCPersian — post 284790
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸جام جهانی؛ توقف طولانی مسابقه فرانسه و عراق به علت شرایط جوی
+
+پس از آن که دیدار فرانسه و عراق در نیمه اول با گل کلیان امباپه و در زیر بارش باران به پایان رسید، فیفا اعلام کرد به علت تهدید صاعقه و شرایط جوی، نیمه دوم با تاخیر آغاز خواهد شد.
+
+همین موضوع باعث تخلیه هزاران هوادار از سکوهای رو باز ورزشگاه فلادلفیا در شرق آمریکا شد.
+
+اکنون با گذشت حدود یک ساعت از پایان نیمه اول هنوز مسئولان برگزاری اجازه آغاز نیمه دوم را نداده‌اند و بارش شدید باران هم در کرانه شمال شرقی آمریکا ادامه دارد.
+
+https://bbc.in/4vBWgXW
+@BBCPersian
+</div>
+
+## BBCPersian — post 284789
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284789_1782173322.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻عبدالناصر همتی، رئیس بانک مرکزی ایران، ساعتی بعد از اعلام آزادشدن بخش اول دارایی‌های مسدود شده این کشور و اظهارات دونالد ترامپ درباره نحوه استفاده ایران از این پول، گفت: «اصولا مبنا و اساس نحوه استفاده از «۶ میلیارد دلار اول» براساس متن توافق امضا شده در سال ۱۴۰۲ بین ایران و امریکا است که در برگیرنده کالاهای اساسی و دارو می‌باشد.»
+
+اشاره آقای همتی به توافقی است که در دوران ریاست جمهوری جو بایدن حاصل شد و مطابق آن در ازای آزادی ۵ شهروند آمریکایی زندانی در ایران قرار شد حدود ۶ میلیارد از دارایی‌های ایران از محل خرید نفت کره‌جنوبی در بانک‌های قطر مستقر و بر اساس مفاد توافق میان ایران و دولت جو بایدنصرف خریداری اقلام غیرتحریمی شود.
+
+به گزارش خبرگزاری تسنیم، رئیس بانک مرکزی ایران روز دوشنبه گفته است: «اگر نرخ و کیفیت نهاده‌های آمریکایی در مقایسه با سایر کشورها مناسب‌تر باشد، مانعی برای خرید از آن کشور نداریم و اصولا طی سال‌های اخیر خریدهای جهاد کشاورزی از طریق شرکت‌های بزرگ امریکایی و اروپایی بوده است.»
+
+📸EPA / Shutterstock
+https://bbc.in/4vsxQjV
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/04/02 03:02
 ---
 
