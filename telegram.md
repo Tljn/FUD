@@ -7,6 +7,526 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/03 05:15
+---
+
+## VahidOOnLine — post 247072
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران، در جریان سفر به پاکستان، از سوی دانشکده پزشکان و جراحان پاکستان، دکترای افتخاری جراحی قلب دریافت کرد.
+طی مراسمی که با حضور شهباز شریف، نخست‌وزیر پاکستان، و عاصم منیر، فرمانده ارتش این کشور، برگزار شد، لحظه پوشاندن لباس و کلاه آکادمیک به پزشکیان توجه کاربران شبکه‌های اجتماعی را جلب کرد. در ویدیوی منتشرشده، چند نفر از برگزارکنندگان برای قرار دادن کلاه بر سر رئیس‌جمهوری ایران با دشواری روبه‌رو می‌شوند و پس از چند بار تلاش موفق به انجام این کار می‌شوند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247071
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247071_1782265558.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️«داستان اسباب‌بازی ۵» با فروش جهانی بیش از ۳۰۰ میلیون دلار، در نخستین روزهای نمایش، بهترین افتتاحیه تاریخ این مجموعه کارتونی را ثبت کرد.
+پنجمین قسمت از مجموعه «داستان اسباب‌بازی» که ۱۹ ژوئن، برابر با ۲۹ خرداد اکران شد، بار دیگر قهرمان‌های این داستان را در مرکز داستان قرار می‌دهد؛ این بار در برابر رقیبی تازه و دشوارتر از همیشه: یک تبلت.
+برآوردها نشان می‌دهد «داستان اسباب‌بازی ۵»، با بودجه تولید حدود ۲۵۰ میلیون دلار با بیش از ۱۶۰ میلیون دلار در آمریکای شمالی و بیش از ۱۵۰ میلیون دلار در بازارهای بین‌المللی پس از «فیلم سوپر ماریو گلکسی» دومین افتتاحیه بزرگ جهانی سال را داشته است. «سوپر ماریو گلکسی» با گذشتن از مرز یک میلیارد دلار در حال حاضر پرفروش‌ترین فیلم سال است.
+کاهش درآمد کلی گیشه پس از همه‌گیری کرونا چالشی جدی برای استودیوها بوده است. هم‌زمان با تغییر عادت مخاطبان و رشد سرویس‌های پخش آنلاین مانند نتفلیکس و دیزنی‌پلاس، بازگرداندن تماشاگران به سالن‌های سینما دشوارتر شده و حتی بسیاری از فیلم‌های پرهزینه نیز کمتر از انتظار عمل کرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247070
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247070_1782265559.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️کرواسی با تک‌گل آنته بودیمیر در نیمه دوم، پاناما را با نتیجه یک بر صفر شکست داد و نخستین پیروزی خود در جام جهانی ۲۰۲۶ را به دست آورد.
+به گزارش رویترز، این دیدار در گروه L برگزار شد و پس از تساوی بدون گل انگلیس و غنا، برای هر دو تیم اهمیت زیادی داشت؛ چرا که شکست در این مسابقه به معنای از دست رفتن شانس صعود بود. بودیمیر که به‌عنوان بازیکن تعویضی وارد میدان شده بود، در دقیقه ۵۴ تنها گل بازی را به ثمر رساند.
+در شبی که لوکا مودریچ، کاپیتان کرواسی، دویستمین بازی ملی خود را انجام داد، کرواسی با کسب سه امتیاز به جدول بازگشت و امیدهای خود برای صعود را حفظ کرد.
+پاناما نیز با این شکست و بدون کسب امتیاز از دو مسابقه، به پنجمین تیم حذف‌شده جام جهانی ۲۰۲۶ تبدیل شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247069
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247069_1782265559.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای شهر وان استان آنتاریو کانادا سه‌شنبه به پیشنهاد شهردار این شهر قطعنامه‌ای تصویب کرد تا یک پلاک یادبود دائمی برای گرامیداشت جان‌باختگان سرکوب‌های اخیر جمهوری اسلامی در یکی از املاک شهرداری نصب شود.
+قرار است این پلاک با همکاری نزدیک جامعه ایرانی-کانادایی طراحی شود و در آینده مراسمی برای رونمایی از آن برگزار خواهد شد.
+پیش از این نیز شهرداری وان با برافراشتن پرچم شیر و خورشید در نهم بهمن ۱۴۰۴ و برگزاری مراسم یادبود برای کشته‌شدگان خیزش انقلابی در دوم اسفند ۱۴۰۴، همبستگی خود را با مردم ایران نشان داده بود.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247068
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247068_1782265560.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز سه‌شنبه با اشاره به تقابل با ایران و ونزوئلا، به تفاوت‌های مسلمانان و کاتولیک‌ها اشاره کرد و گفت: «ایران کشور بسیار بزرگ‌تری با ۹۱ میلیون جمعیت و ایدئولوژی کاملا متفاوتی است. ایدئولوژی مسلمانان کمی با ایدئولوژی کاتولیک‌ها تفاوت دارد. ما اینجا کاتولیک‌ها را داریم و آنجا مسلمانان را، که با هم متفاوتند.» ترامپ در ادامه افزود: «اگر ایران منطقی و باهوش باشد، اوضاع خوب خواهد بود. در غیر این صورت، ما مجبوریم کار را تمام کنیم، کاری که نهایتا کمتر از یک هفته زمان می‌برد. اما من فکر می‌کنم آن‌ها درست رفتار خواهند کرد، چون ما می‌خواهیم این غائله ختم به خیر شود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247067
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247067_1782265561.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنای معروف و نمادین «مسیح نجات‌دهنده» در شهر ریو دو ژانیرو به مناسبت آغاز شمارش معکوس برای برگزاری رقابت‌های جام جهانی فوتبال زنان ۲۰۲۷، با نورهایی به رنگ سبز و زرد (رنگ‌های پرچم برزیل) نورپردازی شد. برزیل آماده می‌شود تا حدود یک سال دیگر میزبان دهمین دوره این رقابت‌ها و نخستین جام جهانی فوتبال زنان در تاریخ آمریکای جنوبی باشد. در این تورنمنت بزرگ، ۳۲ تیم از ۶ کنفدراسیون مختلف به رقابت خواهند پرداخت که در این میان، برزیل به عنوان کشور میزبان، پیش‌تر سهمیه حضور خود را به صورت خودکار قطعی کرده است.
+رقابت‌های انتخابی این جام جهانی از سال ۲۰۲۵ آغاز شده و تا بهمن ۱۴۰۵ (فوریه ۲۰۲۷)ادامه خواهد داشت. سهمیه‌های مسابقات میان کنفدراسیون‌های مختلف توزیع شده و سه سهمیه نیز از طریق پلی‌آف بین‌قاره‌ای تعیین می‌شود.
+قرعه‌کشی نهایی جام جهانی زنان ۲۰۲۷ احتمالا در آذرماه سال جاری (دسامبر ۲۰۲۶) برگزار خواهد شد و تیم‌های راه‌یافته برای کسب عنوان قهرمانی جهان در برزیل به رقابت خواهند پرداخت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343332
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343332_1782265561.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A Zohran Mamdani-backed Democratic Socialist just scored a major primary victory in New York.
+
+Claire Valdez won the Democratic nomination in New York's 7th Congressional District, defeating a crowded field in the race for the seat being vacated by longtime Rep. Nydia Velázquez.
+
+Valdez was backed by New York City Mayor Zohran Mamdani, giving the progressive movement another high-profile win in a closely watched primary.
+
+Valdez, a vocal critic of Israel, has called to abolish U.S. Immigration and Customs Enforcement (ICE), expand universal healthcare, raise taxes on the wealthy, boost affordable housing and strengthen unions.
+
+The result is the latest sign of Mamdani's growing influence within New York politics as his allies continue to notch victories across the city and state.
+</div>
+
+## FoxNewsTwitter — post 343331
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343331_1782265562.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Backed by Bernie Sanders and Zohran Mamdani, Brad Lander just pulled off a major Democratic primary upset.
+
+The Former New York City Comptroller defeated Rep. Dan Goldman, the former federal prosecutor who served as lead counsel during the first impeachment inquiry into President Trump.
+
+Goldman was first elected to Congress in 2022 after winning a crowded Democratic primary in the newly redrawn district.
+
+The victory is being seen as a win for the Democratic Party's progressive wing in one of the bluest congressional districts in the country.
+</div>
+
+## FoxNewsTwitter — post 343330
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343330_1782265563.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Rep. Alexandria Ocasio-Cortez is headed back to the general election after cruising to victory in New York's Democratic primary.
+
+The congresswoman remains one of the Democratic Party's most prominent progressive voices, and her latest win is likely to keep attention focused on what comes next politically.
+
+As her national profile continues to grow, so does speculation about whether AOC could eventually pursue a bigger role on the national stage.
+</div>
+
+## FoxNewsTwitter — post 343329
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343329_1782265564.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @JesseBWatters: 🚨 WOW! Kelsey Grammer EXPOSES the "VIRUS" of HATRED infecting America 😡
+
+"A small number just want to tear things down... consumed by hatred" 💥
+
+How would DR. FRASIER CRANE treat TDS?! 😷
+</div>
+
+## FoxNewsTwitter — post 343328
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343328_1782265566.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+One of President Trump's most outspoken critics is headed toward another term in Congress.
+
+Rep. Jamie Raskin, a leading figure in the anti-Trump "Resistance" movement and the impeachment manager during Trump's second impeachment trial, defeated his Democratic primary challengers in Maryland.
+
+Raskin has built a national profile through his frequent clashes with Trump and his role on key House committees investigating the former president and his allies.
+
+The victory clears the way for one of President Trump's most prominent congressional critics to remain in office and sends Raskin to the general election in Maryland's 8th Congressional District.
+</div>
+
+## FoxNewsTwitter — post 343327
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343327_1782265566.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Maryland Gov. Wes Moore is headed to the general election after winning the Democratic primary.
+
+The first-term governor, who is often mentioned as a potential 2028 White House contender, secured the Democratic nomination and will advance to the general election this fall.
+
+His victory is likely to fuel even more discussion about his future on the national stage.
+
+Moore, the nation's only Black governor, has repeatedly clashed with President Trump, engaging in public feuds over policy and politics. Earlier this year, Trump even sought to exclude Moore from a White House governors' dinner, saying the Democrat was "not worthy" of attending.
+</div>
+
+## FoxNewsTwitter — post 343326
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343326_1782265567.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Trump couldn't lose in this race.
+
+South Carolina Attorney General Alan Wilson won the state's Republican gubernatorial runoff after the president endorsed both Wilson and his rival, Lt. Gov. Pamela Evette, in the election.
+
+The result adds to Trump's endorsement record in an unusual way, underscoring his continued influence in high-profile Republican primaries.
+</div>
+
+## pm_afshaa — post 94720
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:ما ایران را بدون توانایی موشکی ترک می‌کنیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94719
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:دموکرات‌ها به داشتن سلاح هسته‌ای توسط ایران رأی مثبت دادن 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94718
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:دموکرات‌ها به داشتن سلاح هسته‌ای توسط ایران رأی مثبت دادن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94717
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نفتالی بنت نخست‌وزیر سابق اسرائیل و رقیب نتانیاهو: دولت کنونی اسرائیل برنامه انتقال بیش از ده‌ها هزار ترمینال اینترنت ماهواره‌ای استارلینک به ایران را در انقلاب شیروخورشید دی‌ماه متوقف کرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 76636
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_76636_1782265567.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ProtesterCrow
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 344052
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344052_1782265568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای شهر وان استان آنتاریو کانادا سه‌شنبه به پیشنهاد شهردار این شهر قطعنامه‌ای تصویب کرد تا یک پلاک یادبود دائمی برای گرامیداشت جان‌باختگان سرکوب‌های اخیر جمهوری اسلامی در یکی از املاک شهرداری نصب شود.
+قرار است این پلاک با همکاری نزدیک جامعه ایرانی-کانادایی طراحی شود و در آینده مراسمی برای رونمایی از آن برگزار خواهد شد.
+پیش از این نیز شهرداری وان با برافراشتن پرچم شیر و خورشید در نهم بهمن ۱۴۰۴ و برگزاری مراسم یادبود برای کشته‌شدگان خیزش انقلابی در دوم اسفند ۱۴۰۴، همبستگی خود را با مردم ایران نشان داده بود.
+
+https://iranintl.com/202606249426
+</div>
+
+## IranIntlTV — post 344047
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دیوید بکام، ستاره پیشین فوتبال انگلیس و یکی از مالکان باشگاه اینترمیامی، تماشاگر بازی انگلیس - غنا در مرحله گروهی جام جهانی ۲۰۲۶ در استادیوم بوستون بود.
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 221699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اعدام در جمهوری اسلامی ایران؛ از مجازات قضایی تا «ابزار حکمرانی»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر: معنای تعهد جمهوری اسلامی برای عدم ساخت یا خرید سلاح هسته‌ای چیست
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تفاهم با آمریکا و مشکلات اقتصادی مردم ایران از نگاه کاربران شبکه‌های اجتماعی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221696
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آلیانتس: «بستن بی‌سابقه» تنگه هرمز و گیرافتادن ۱۲۰۰ کشتی نگاه شرکت‌های بیمه را تغییر داده است
+
+▪️روزنامه فایننشال تایمز در گزارشی نوشت که داده‌های جدید نشان می‌دهد بسته شدن تنگه هرمز باعث گیر افتادن بیش از ۱۲۰۰ کشتی باری شد که ارزش کالاهای آن‌ها در مجموع حدود ۱۲۵ میلیارد دلار است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8164285.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221695
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221695_1782265568.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مصر؛ بزرگ‌ترین مانع تیم ایران در راه صعود؛ گفت‌وگو با کوروش بازیار، مربی و کارشناس فوتبال
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221694
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221694_1782265569.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اختلال‌های سریالی بانکی در ایران؛ گفت‌وگو با معصومه طاهرخانی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️واکنش‌ها به سفر هیئت طالبان به بروکسل
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221692
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221692_1782265569.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مهدیه گلرو در برنامه تفسیر خبر: جمهوری اسلامی امروز با قبل از دی‌ماه بسیار متفاوت است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221691
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221691_1782265570.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس‌جمهوری آمریکا می‌گوید ایالات متحده در حالی مشغول رها کردن جمهوری اسلامی است که این رژیم «هیچ ظرفیت هسته‌ای» نخواهد داشت.
+آقای ترامپ این موضوع را روز سه‌شنبه در یک سخنرانی در جمع هوادارانش در ایالت پنسیلوانیا اعلام کرد.
+رئیس‌جمهوری آمریکا توضیح داد که جمهوری اسلامی ایران «را در شرایطی رها می‌کنیم که نیروی دریایی، نیروی هوایی، سامانه‌های پدافند هوایی، توان موشکی و برنامه هسته‌ای ندارد. ما [حکومت] ایران را بدون هیچ ظرفیت هسته‌ای رها می‌کنیم و آن‌ها نیز با این موضوع موافقت کرده‌اند.»
+@FarsiVOA
+</div>
+
+## IranianMinds — post 23209
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23209_1782265570.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رونالدو بعد از تموم شدن بازی امشب رو به دوربین:
+
+من برگشتم ، من برگشتم...
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23208
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23208_1782265573.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😄
+😄
+😄
+😃 دلار درآمد با معرفی دوستات
+🤝
+💵
+همین الان وارد شو و علاوه بر 
+0️⃣
+0️⃣
+2️⃣
+🔣 بونوس اضافه اولین واریز با معرفی هرکدوم از دوستات به وینرو تا 
+🤩
+🤩
+🤩
+🤩 دلار درآمد کسب کن
+💰
+فرصت محدود
+🙂
+
+🔤 Winro.io
+
+🔤 Winro.io
+</div>
+
+## IranianMinds — post 23207
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23207_1782265574.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا 
+😄
+😄
+😄
+😃 دلار درآمد با معرفی دوستات
+🤝
+💵
+
+با معرفی هرکدوم از دوستات به وینرو میتونی تا 
+🤩
+🤩
+🤩
+🤩 دلار درآمد داشته باشی
+💰
+
+
+🔝فقط کافیه دوستتو به وینرو دعوت کنی و کسب درآمد کنی
+
+این پاداش پول نقده و لحظه‌ای به حسابت واریز میشه و به صورت آنی میتونی برداشتش کنی
+💰
+
+
+💣بالاترین بونوس‌ها فقط در سایت وینرو
+
+پیش بینی کن و برنده شو
+🎯
+#وینرو
+
+📺 تلویزیون لایو برای پوشش بازی ها
+
+🛍بالاترین ضرایب ممکن
+
+💰expert tips bets
+
+
+🎰 راستی با اولین واریزت هم میتونی تا ۲۰۰ درصد شارژ اضافه از ما هدیه بگی
+
+🔤 Winro.io         معتبرترین سایت ایران
+
+🔤 Winro.io   کلیک کن و درآمد کسب کن
+
+📱 کانال اخبار و هدایــا eA2
+🌟
+
+📱 @winro_io
+</div>
+
+## BBCPersian — post 284871
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284871_1782265575.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖋دیوید گریتن و استفانی هگارتی
+بی‌بی‌سی
+
+یک کمیسیون تحقیق سازمان ملل می‌گوید اسرائیل عمدا کودکان فلسطینی را هدف قرار داده است که منجر به نسل‌کشی و جنایت علیه بشریت و جنایات جنگی در نوار غزه، و همچنین جنایات جنگی در کرانه باختری اشغالی شده است.
+
+در گزارش جدید این کمیسیون آمده است که مقامات و نیروهای امنیتی اسرائیل «عمدا اقداماتی را انجام داده‌اند که منجر به مرگ و آسیب شدید جسمی و روحی صدها هزار کودک فلسطینی شده است» و این کشتارها حتی پس از آتش‌بس اکتبر گذشته در غزه ادامه یافته است.
+
+این کمیسیون می‌گوید دلایلی منطقی دارد که نتیجه‌ بگیرد که اقدامات اسرائیل «بخشی از یک استراتژی عمدی برای نابودی آینده فلسطینی‌ها در غزه از طریق هدف قرار دادن فرزندان آنها بوده است.»
+ادامه مطلب⬇️
+
+📸EPA
+https://bbc.in/4uXUCiz
+@BBCPersian
+</div>
+
+## BBCPersian — post 284870
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284870_1782265576.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مارکو روبیو، وزیر خارجه آمریکا، روز سه‌شنبه سفر خود به کشورهای حاشیه خلیج فارس را از امارات متحده عربی آغاز کرد. او همچنین به کویت و بحرین، دو کشوری که میزبان پایگاه‌های نظامی آمریکا هستند، سفر خواهد کرد تا درباره توافق با تهران گفت‌وگو کند.
+
+آقای روبیو روز سه‌شنبه یک بار دیگر تاکید کرد که از نظر آمریکا هیچ کشوری حق ندارد برای عبور کشتی‌ها از تنگه هرمز عوارض یا هزینه تعیین کند؛ موضوعی که در پی تلاش ایران برای دریافت هزینه از کشتی‌های عبوری مطرح شده است.
+
+او هنگام ورود به امارات گفت: «تنگه هرمز یک آبراه بین‌المللی است. هیچ کشوری اجازه ندارد در یک آبراه بین‌المللی عوارض یا هزینه دریافت کند. این موضوع بخشی از قوانین موجود بین‌المللی است.»
+
+آقای روبیو افزود: «فکر نمی‌کنم در اینجا لازم باشد کسی را در این مورد متقاعد کنیم. به گمان من، همه کشورهای این منطقه با ما هم‌نظر هستند.»
+
+📸REUTERS
+https://bbc.in/4vny3EJ
+@BBCPersian
+</div>
+
+## BBCPersian — post 284869
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284869_1782265576.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مقام‌ها در استان هرمزگان ایران می‌گویند نتیجه تحقیقات ۱۰۰ روزه برای پیدا کردن بقایای جسد ماکان نصیری، یکی از دانش‌آموزان کشته شده در بمباران مدرسه میناب، بی‌نتیجه مانده است و کارشناسان گفته‌اند علت «برخورد مستقیم موشک» با بدن او بوده است.
+
+مجتبی قهرمانی، رئیس کل دادگستری استان هرمزگان گفته است:
+«به دلیل قدرت تخریبی بالای موشک‌های به‌کار رفته، حتی پس از گذشت بیش از ۱۰۰ روز و انجام بیش از ۱۰۰ نمونه‌برداری دی‌ان‌ای، هیچ اثری از پیکر این شهید کوچک پیدا نشده است.»
+
+آقای قهرمانی افزوده تلاش برای پیدا کردن تار مو و انجام آزمایش دی‌ان‌ای برای یافتن این دانش آموز ۸ ساله هم به جایی نرسیده است و به گفته او: «کارشناسان معتقدند که متاسفانه موشک مستقیما به بدن ایشان اصابت کرده و اثری از پیکر باقی نگذاشته است و تنها یک لنگه کفش و کیف پاره‌شده‌اش پیدا شده است.«
+
+صبح شنبه، نهم اسفند، تنها حدود چهار ساعت پس از آغاز حملات هوایی آمریکا و اسرائیل به ایران، دبستان شجره طیبه در میناب، استان هرمزگان، هدف حمله موشکی قرار گرفت که طی آن ده‌ها دانش‌آموز شدند. ‌
+https://bbc.in/4w51Vpt
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/04/03 03:14
 ---
 
