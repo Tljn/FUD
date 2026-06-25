@@ -7,6 +7,308 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/04 03:35
+---
+
+## VahidOOnLine — post 247218
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247218_1782345917.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ این روزها جوراب‌های سوراخ فوتبالیست‌ها در جام جهانی توجه تماشاگران را به خود جلب کرده است؛ برخی از ستاره‌های فوتبال، سوراخ‌های بزرگی را روی ساق‌بندها و جوراب‌های ورزشی خود ایجاد می‌کنند. به گزارش یو‌اس‌ای‌ تودی، این پدیده موضوع تازه‌ای نیست و از سال ۲۰۱۸ رواج یافته است. به نوشته این روزنامه، بسیاری از فوتبالیست‌ها برای راحتی بیشتر، بهبود گردش خون، کاهش فشار روی عضلات ساق پا و افزایش آزادی حرکت، بخشی از جوراب‌های خود را با قیچی سوراخ می‌کنند.
+
+برخی بازیکنان همچنین معتقدند این کار به جلوگیری از گرفتگی عضلات و کاهش کشیدگی و خستگی عضلانی در طول مسابقات ۹۰ دقیقه‌ای کمک می‌کند. کایل واکر، مدافع پیشین تیم ملی انگلیس، نیز گفته است جوراب‌های تنگ روی عضلات ساق پایش فشار وارد می‌کردند و پس از سوراخ کردن آن‌ها این فشار کاهش یافت؛ تجربه‌ای که باعث شد این روش را ادامه دهد.
+
+جود بلینگهم و بوکایو ساکا از انگلیس، متیو لکی از استرالیا و لروی سانه از آلمان از جمله بازیکنانی هستند که در جام جهانی از جوراب‌های سوراخ‌دار استفاده می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247217
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247217_1782345918.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️آویگدور لیبرمن که پیش‌تر سمت‌های وزیر دفاع، وزیر خارجه و وزیر دارایی اسرائیل را بر عهده داشته در یادداشتی در وال استریت ژورنال نوشت: هیچ جایی برای توهم وجود ندارد. توافق میان واشنگتن و تهران مانع از تبدیل شدن ایران به یک قدرت هسته‌ای نخواهد شد؛ بلکه آن را تضمین خواهد کرد. به نوشته لیبرمن، یادداشت تفاهم میان آمریکا و ایران به جاه‌طلبی‌های هسته‌ای تهران مشروعیت کامل بخشیده و راه را برای توافقی نهایی هموار کرده است که به‌مراتب بدتر از برجام در دوران ریاست‌جمهوری اوباما خواهد بود. بدتر از آن، چارچوبی که در حال شکل‌گیری است شباهت نگران‌کننده‌ای به توافقی دارد که دولت کلینتون با کره شمالی امضا کرد. همه ما می‌دانیم نتیجه چه بود. او که نامزد انتخابات اسرائیل است، در ادامه می‌نویسد: «من از آمریکایی‌ها هیچ گله‌ای ندارم. برخی اسرائیلی‌ها انتظار دارند تصمیم‌گیران آمریکایی بر اساس منافع اسرائیل عمل کنند. اما تصمیم‌گیران آمریکایی باید بر اساس منافع آمریکا عمل کنند، نه منافع اسرائیل. مسئولیت دفاع از منافع حیاتی اسرائیل فقط بر عهده خود اسرائیل است.
+با این حال، درک می‌کنم برخی از این سیاست‌ها ممکن است برای دولت آمریکا خوشایند نباشد. ما باید به دوستان خود در کاخ سفید تاکید کنیم که اسرائیل به‌هیچ‌وجه ملزم به پایبندی به بندهای این یادداشت تفاهم و هرگونه توافق احتمالی بعدی نیست. این توافق میان واشنگتن و تهران است، نه اورشلیم و تهران.
+اسرائیل باید بر اساس منافع ملی خود و برای حفظ امنیت مردمش و آینده کشور عمل کند. امنیت ملی ما اهرم چانه‌زنی نیست.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247216
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247216_1782345918.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز چهارشنبه سوم تیرماه در کاخ سفید و در پاسخ به پرسشی درباره رجب طیب اردوغان، رئیس‌جمهوری ترکیه، به نقش خود در متقاعد کردن او برای عدم مداخله در جنگ اخیر اشاره کرد و گفت:
+«او یکی از دوستان من است و بیرون از این جنگ ماند. می‌دانید، او یک کاندیدای اصلی برای ورود به جنگ ایران بود؛ حتی شاید در سمت ایران، چون همان‌طور که می‌دانید، او طرفدار بزرگ اسرائیل نیست. اما من از او خواستم که خودش را کنار بکشد و وارد نشود، و او هم بیرون ماند و مداخله نکرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247215
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مارک روته، دبیرکل سازمان پیمان آتلانتیک شمالی (ناتو)، بامداد پنجشنبه چهارم تیرماه، در پاسخ به پرسشی درباره موضع ناتو نسبت به توان موشکی و هسته‌ای ایران گفت که موضع مشترک همه ۳۲ عضو این ائتلاف و ایالات متحده این است که ایران «هرگز نباید به توانایی هسته‌ای دست پیدا کند.»
+
+روته در پاسخ به پرسشی درباره اظهارات دونالد ترامپ در نشست گروه هفت (G7) مبنی بر اینکه اگر عربستان سعودی موشک‌های بالستیک دارد، ایران نیز باید آن‌ها را داشته باشد، از اظهار نظر درباره موضوع موشک‌های بالستیک خودداری کرد. او گفت مسئله اصلی برای ناتو جلوگیری از دستیابی ایران به توانایی هسته‌ای است و افزود کشوری که به گفته او «هرج‌ومرج و تروریسم صادر می‌کند»، در صورت دستیابی به چنین توانایی، تهدیدی برای منطقه، اسرائیل، اروپا و جهان خواهد بود. همچنین تاکید کرد که ترجیح می‌دهد تمرکز خود را بر موضوع هسته‌ای حفظ کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشدار سونامی در ونزوئلا، بعد از زمین‌لرزه۷ ریشتری، ویدیو منتشرشده از کاراکاس، برخاستن دود و گردوغبار از مناطق مختلفی را در پی این زمین‌لرزه شدید نشان می‌دهد. @withyashar
+</div>
+
+## FoxNewsTwitter — post 343375
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343375_1782345920.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+SEE IT: The Great American State Fair opens with a patriotic display honoring all 50 states.
+</div>
+
+## FoxNewsTwitter — post 343374
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343374_1782345922.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Because of President Trump, we still have our freedom as Christians."
+
+"Our president is once in a lifetime. Nobody works as hard for America as he does."
+
+Billy & Dorothea Oland explain why they've traveled from North Carolina to the nation's capital to attend the kick-off of the Great American State Fair that President Trump will take the stage from later tonight.
+
+"To me, it's to be here to celebrate the 250th birthday of our country and our freedom, but it's also to celebrate that freedom we have in Jesus Christ."
+</div>
+
+## FoxNewsTwitter — post 343373
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343373_1782345924.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Trump kicks off Great American State Fair as 250th anniversary celebrations take over National Mall (Courtesy: FREEDOM 250) https://twitter.com/i/broadcasts/1dJrPPpMnEAKX
+</div>
+
+## DEJradio — post 5951
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5951_1782345924.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 نارمک ۱۸ دی‌ماه ۱۴۰۵؛
+تیراندازی سرکوبگران به آمبولانس
+
+#نارمک #دی۱۴۰۴
+@DEJradio
+</div>
+
+## FarsiVOA — post 221785
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221785_1782345926.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تیم ملی ایران در مرکز یک بحث اجتماعی داغ؛ گفت‌وگو با سعیده فتحی روزنامه نگار ورزشی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221784
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اختلاف بر سر مذاکره، آتش‌بس و بازرسی‌های هسته‌ای به درون ساختار قدرت جمهوری اسلامی کشیده شده است؛ یک عضو مجلس شورای اسلامی، ادعای وجود مصوبه شورای عالی امنیت ملی برای تعطیلی مجلس را «دروغ» خواند و گفت این تعطیلی با هدف جلوگیری از مخالفت اعضای مجلس انجام شده است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221783
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221783_1782345926.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مسیر صعود تیم ایران؛ همه چیز در یک بازی در گفت‌وگو با کوشا دلشاد مری فوتبال
+@FarsiVOA
+</div>
+
+## BBCPersian — post 284959
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻در حالی که موج گرمای گسترده بخش‌های وسیعی از اروپای غربی را فرا گرفته است، فرانسه، بریتانیا و اسپانیا با ثبت دماهای بی‌سابقه و نزدیک به رکوردهای تاریخی روبه‌رو شده‌اند.
+
+مقام‌های هواشناسی هشدار داده‌اند که این موج گرما در برخی مناطق دما را به سطوحی رسانده که می‌تواند سلامت عمومی، زیرساخت‌ها و خدمات اضطراری را تحت فشار قرار دهد.
+
+در فرانسه، هشدار قرمز گرمای شدید برای بخش بزرگی از کشور، از جمله پاریس، صادر شده است. در اسپانیا نیز دما در برخی مناطق از ۴۰ درجه سانتی‌گراد فراتر رفته و در بریتانیا نیز چندین منطقه گرم‌ترین روزهای سال را تجربه کرده‌اند.
+
+کارشناسان می‌گویند این موج گرما بخشی از روند افزایش دما در اروپا است که در سال‌های اخیر با وقوع مکرر پدیده‌های آب‌وهوایی شدید همراه بوده است.
+
+
+📷Getty Images/PA
+@BBCPersian
+</div>
+
+## BBCPersian — post 284950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊راب واتسون, خبرنگار سیاسی، سرویس جهانی بی‌بی‌سی
+
+کی‌یر استارمر ششمین نخست‌وزیر بریتانیاست که در طول ده سال گذشته یا استعفا کرده یا از سوی رای‌دهندگان کنار گذاشته شده است.
+
+اگر تردیدی وجود دارد، باید گفت که این وضعیت در سیاست بریتانیا به هیچ وجه عادی نیست. برای روشن شدن موضوع، این واقعیت را در نظر بگیرید: از زمانی که مقام نخست‌وزیری در قرن هجدهم ایجاد شد، هر نخست‌وزیر به طور میانگین حدود پنج سال در قدرت بوده است.
+
+اما در دهه گذشته این میانگین به زحمت به ۱۸ ماه رسیده است.
+
+پس دلیل این جابه‌جایی‌های غیرعادی چیست؟ از یک نگاه، هر یک از این شش مورد دلایل خاص خود را داشته‌اند.
+
+برای خواندن مطلب کامل به لینک زیر مراجعه کنید.
+
+https://bbc.in/3SipBZ3
+📷GettyImages/ Reuters/ AFP/ In Pictures via Getty/ Bloomberg via Getty
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393037
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393037_1782345927.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📣آیسان اسلامی به تلگرام پیوست 
+☑️ 😍 
+⭐اگر توم از طرفدارا ایسان اسلامی هستی بیا توی کانال تلگرامش فعالیتش شرو کرده کنارش باش
+🙂 A3 ادرس عضویت کانالش
+💖
+💖 https://t.me/+KZZlpcWXPSU5YjA0 https://t.me/+KZZlpcWXPSU5YjA0
+</div>
+
+## Dirty_Kids — post 393036
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393036_1782345927.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📣آیسان اسلامی به تلگرام پیوست 
+☑️ 😍
+
+
+⭐اگر توم از طرفدارا ایسان اسلامی هستی بیا توی کانال تلگرامش فعالیتش شرو کرده کنارش باش
+🙂
+A3
+ادرس عضویت کانالش
+💖
+💖
+https://t.me/+KZZlpcWXPSU5YjA0
+https://t.me/+KZZlpcWXPSU5YjA0
+</div>
+
+## Dirty_Kids — post 393035
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393035_1782345928.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393034
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393034_1782345928.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طراح بسته‌بندی این نمک، کدوم روانی حیوان آزاری بوده؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393030
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هالند حتی تو انتخاب دوست دختر هم ده از دهه :))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393029
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393029_1782345929.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عادی‌ترین هوادار کلمبیا:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393028
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393028_1782345930.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خدایاشکرت؛ امروز توی خمینی شهر اصفهان، اجنه لشکرکشی کردن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393027
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393027_1782345930.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این داداش سگ حشرمون به اسم حسین موقع تجاوز به یه خانوم توی لندن اینقدری شومبولش کوچولو بوده که اصلا عمل دخول رو نتونسته انجام بده و متاسفانه دختره جیغ کشیده و همه ریختن سرش و ابرو برامون نزاشته
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393023
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393023_1782345930.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 استایل جدید بنی بلانکو، شوهرِ سلنا گومز
+
+این چه گوهیه😐😐🫪
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/04/04 02:26
 ---
 
