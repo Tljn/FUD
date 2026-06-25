@@ -7,6 +7,2106 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/04 15:22
+---
+
+## VahidOOnLine — post 247285
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247285_1782388335.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، گفت کشورهای عضو شورای همکاری خلیج فارس از دریافت عوارض برای استفاده از تنگه هرمز و دیگر آبراه‌های بین‌المللی حمایت نمی‌کنند.
+روبیو در حاشیه نشست مشترک وزیران کشورهای شورای همکاری خلیج فارس و آمریکا در بحرین افزود دونالد ترامپ، رییس‌جمهوری آمریکا، نیز تاکید کرده است چنین اقدامی انجام نخواهد شد.
+او همچنین گفت اگر تهدیدها علیه کشتی‌ها عملی شود و تردد در تنگه هرمز متوقف شود، این اقدام نقض توافق خواهد بود و آمریکا با آن مخالفت خواهد کرد. روبیو تاکید کرد واشینگتن تصمیمی نخواهد گرفت که به امنیت و ثبات شرکای خود در کشورهای شورای همکاری خلیج فارس آسیب بزند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247284
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247284_1782388335.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل قاآنی، فرمانده سپاه قدس جمهوری اسلامی روز پنجشنبه چهارم تیرماه با انتشار پیامی در شبکه‌های اجتماعی اسرائیل را تهدید کرد که در صورت خارج نشدن فوری از خاک لبنان، در آینده نزدیک مجبور به فرار از این کشور خواهد شد.
+
+به گزارش ایرنا، فرمانده نیروی قدس سپاه در این پیام که در روز عاشورا منتشر شده خطاب به نیروهای نظامی اسرائیل نوشت «آنانی که با شما یزیدیان، با روحیهٔ عاشورایی و ایمان حسینی ایستاده‌ و‌ جنگیده‌اند.»
+
+قاآنی به ارتش اسرائیل هشدار داد که در صورت خارج نشدن فوری از خاک لبنان «فردا با خواری و شکست ناگزیر به فرار خواهید شد.»
+
+این سخنان در گرماگرم ادامه حضور نظامی اسرائیل در جنوب لبنان و در حالی مطرح می‌شود که اسرائیل اعلام کرده است حتی به درخواست آمریکا هم از جنوب لبنان عقب‌نشینی نخواهد کرد.
+
+فرمانده «نیروهای برون مرزی سپاه» با اشاره به خروج نیروهای اسرائیلی از خاک لبنان در سال ۲۰۰۰ میلادی مدعی شد که هشدارهای حسن نصرالله، دبیرکل کشته شده حزب‌الله لبنان بار دیگر محقق خواهد شد.
+
+ارتش اسرائیل در سال ۲۰۰۰ و پس از ۲۲ سال حضور در بخش‌های گسترده‌ای از لبنان از این کشور خارج شده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247283
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247283_1782388336.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یسرائیل کاتز، وزیر دفاع اسرائیل، گفت هر دلاری که به جمهوری اسلامی برسد، ممکن است به حزب‌الله، حماس، حوثی‌ها و دیگر گروه‌های هم‌پیمان تهران منتقل شود.
+کاتز در کنفرانس «نبرد اقتصادی» ستاد ملی مبارزه با تامین مالی تروریسم در وزارت دفاع اسرائیل، گفت حکومت جمهوری اسلامی به جای سرمایه‌گذاری برای بهبود زندگی شهروندان، منابع خود را صرف «تروریسم» کرده است.
+او همچنین گفت اسرائیل نباید به دستاوردهای کنونی در جنگ با جمهوری اسلامی بسنده کند و باید در توسعه توانایی حمله از فضا به کشوری پیشرو در جهان تبدیل شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247282
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247282_1782388336.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد در جریان برگزاری مراسم مذهبی «تاسوعا»، مادر جاویدنام محمد رادمان‌نیا سخنرانی کرد و خطاب به مردم گفت «نگذارید راه پسرم خاموش شود» که در ادامه با سردادن شعارهای «درود بر محمد» و «باغیرت، باغیرت» از سوی حاضران همراه شد.
+
+این جاویدنام ۱۹ دی ۱۴۰۴ در جریان اعتراضات محله نظام‌آباد تهران در سن ۲۹ سالگی به دست ماموران حکومت کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247281
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247281_1782388338.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اورشلیم‌پست گزارش داد یوسی کوهن، رییس پیشین موساد، برای نخستین بار فاش کرد که موساد پیش از عملیات سرقت آرشیو هسته‌ای جمهوری اسلامی در سال ۱۳۹۶، تمرین اصلی این عملیات را در یکی از کشورهای آفریقایی انجام داد.
+کوهن گفت موساد برای این عملیات، ماکتی هم‌اندازه از مرکز نگهداری آرشیو هسته‌ای جمهوری اسلامی ساخت و به دلیل ملاحظات امنیتی، تمرین را به جای اسرائیل در آفریقا انجام داد.
+به گزارش اورشلیم‌پست، نیروهای موساد با تمرین روی این ماکت توانستند عملیات ورود به مرکز آرشیو هسته‌ای جمهوری اسلامی و خارج کردن اسناد را بدون به صدا درآمدن سامانه‌های هشدار اجرا کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247280
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهور ی آمریکا، روز چهارشنبه سوم تیرماه در  مراسم افتتاحیه جشن‌های ۱۶ روزه گرامیداشت دویست‌وپنجاهمین سالگرد استقلال ایالات متحده، گفت تواف هفته گذشته با ایران به درگیری میان دو کشور پایان داده و مانع دستیابی تهران به سلاح هسته‌ای شده است. رئیس جمهوری آمریکا در میان تشویق‌های حاضران در این برنامه افزود: «خاورمیانه برای اولین بار در سه هزار سال گذشته صلح را خواهد دید.»
+
+دونالد ترامپ با «یادآوری» پیروزهای جهانی آمریکا به رهبری او گفت: «هفته گذشته توافقی تاریخی برای پایان دادن به درگیری با ایران امضا کردیم، تنگه هرمز را به‌طور کامل باز کردیم و به دستاوردی رسیدیم که هیچ رئیس‌جمهوری پیش از این نتوانسته بود به آن دست یابد. ایران هرگز به سلاح هسته‌ای دست نخواهد یافت.»
+
+رئیس جمهوری آمریکا با تاکید چندباره بر «نابودی توان نظامی ایران» گفت: رهبری ایران نابود شده است برای نخستین بار در سه هزار سال گذشته، سرانجام در خاورمیانه صلح برقرار خواهد شد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247279
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247279_1782388339.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد که ظهر چهارم تیرماه در شهر ازنا در استان لرستان، روی پشت‌بام یک ساختمان در نزدیکی محل عزادارای عاشورا تک‌تیراندازها مستقر شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247278
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247278_1782388341.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مادر جاویدنام محمد جعفرپور روز چهارشنبه سوم تیرماه، ویدیویی از حضور بر مزار فرزندش منتشر کرد و نوشت: «همان لباس‌هایی که فکر می‌کردم امسال هم می‌پوشی و همان زنجیری که قرار بود روی شانه‌هایت ببینم را برایت آوردم. هنوزم وقتی درِ خانه باز می‌شود، یک گوشه دلم منتظر است تا شاید تو آمده باشی. امسال هئیت من، عاشورا و تاسوعای من، مزار توست پسرم».
+
+بسیاری از اعضای خانواده و هم محلی‌های جاویدنامان کشته‌شده در دی ماه ۱۴۰۴، بار دیگر داغ فرزندان خود را در مراسم‌های عزاداری محرم به خصوص در روزهای تاسوعا و عاشورا، بدل به صحنه سوگواری عمومی کردند.
+
+محمد جعفرپور ۲۵ ساله، فارغ‌التحصیل دانشگاه اصفهان شامگاه جمعه ۱۹ دی‌ماه در خمینی‌شهر (سده) به ضرب گلوله سرکوبگران جمهوری اسلامی ایران کشته شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247277
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247277_1782388342.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که شامگاه دوم تیرماه یک دسته عزاداری در روستای لفمجان استان گیلان بر سر مزار جاویدنام مانی صفرپور حضور یافت. در این مراسم عکس او بر روی طبل و سنج نصب شده بود.
+
+مانی صفرپور، جوان ۱۸ ساله و اهل لاهیجان، در اعتراضات ۱۸ دی‌ماه تهران به دست ماموران حکومت کشته شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از بحران اقتصادی و زندگی بعد از توافق- پنج‌شنبه ۴ تیر:
+
+🔹من یک بازنشسته هستم از مشهد با حقوق ۲۴ میلیون تومان. ۲۱ میلیون اجاره خونه می‌دم. چطور زندگی کنم؟
+
+🔹فقر، خشم، خفقان، ارعاب، شرمندگی، تلاش برای بقا، بیکاری، افسردگی، خودکشی، آدم‌ربایی، جنگ، قطعی آب، برق و بانک، از همه مهم‌تر نسل‌کشی آشکارا تنها بخشی از مواردی هست که باهاشون در ایران مواجهیم.
+
+🔹چیزی از منِ ۳۵ ساله و بسیاری از ما گرفتن به اسم جوانی و زندگی؛ من موتور هوندا ۴۰۰ هزار تومنی رو تو زندگیم دیدم، هوندای ۳۵۰ میلیونی رو هم دیدم.
+
+🔹من یه جوون ۲۳ ساله‌ام، حقوق وزارت کار ۲۰ تا ۲۲ میلیون تومنه، ما با این پول چطوری زندگی رو بگذرونیم؟ توی این وضعیت ما آب نداریم. امنیت شغلی نداریم، توان خرید هیچ‌چیزی رو نداریم.
+
+🔹در شیراز نان لواش شده ۲۰۰۰ تومان و این نان لواش هم اونقدر نازک و کوچک هست که هر قرص نان حداکثر ۴ الی ۵ لقمه می‌شود. یعنی هر لقمه نان حدود ۵۰۰ تومان هزینه داره.
+
+🔹یک سس، دوغ، شیر و یک خامه شکلاتی شد ۵۰۰ هزار تومان. ماه دیگر قیمت همین چند قلم جنس احتمالا به یک میلیون تومان می‌رسد.
+
+🔹از اصفهان پیام می‌دهم؛ مردم ۲۰ عدد نان هم نمی‌تونند بخرند، اون‌وقت مرتب پیام گاز، برق، آب و تلفن میاد و همه را هم گران کردند، برای نمونه قبض آبونمان خط تلفنی که اصلا استفاده نمی‌شه هفتاد هزار تومان میاد، اگه این دزدی از جیب مردم بی‌نوا نیست چیه؟
+
+🔹ما در جزیره‌ کیش هستیم. از اسفند تا الان پروازی نبوده، جزیره به‌شدت آسیب خورده و کسب‌وکارها تعطیل شدن، متاسفانه مدیریتی هم در کار نیست.
+
+🔹حقوق بازنشستگان فقط کفاف چند روز اول ماه رو می‌ده، چون افزایش قیمت کالاها و خدمات در اغلب موارد بالای ۲۰۰ درصد شده، ادامه این وضعیت یعنی افزایش جمعیت زیر فقر کشور ثروتمند ایران!
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247268
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرتضی مشفق کاظمی در مقالهٔ «قانون انتخابات» انتخابات ایران در سال ۱۳۰۳ را نه فقط مسئله‌ای حقوقی، بلکه بحرانی فرهنگی و سیاسی می‌دید؛ بحرانی برآمده از رأی‌فروشی، عوام‌فریبی، نفوذ ثروت و ناآگاهی عمومی.
+
+او هشدار می‌داد دموکراسی بدون آموزش و آگاهی، می‌تواند به ابزار فریب تبدیل شود؛ جایی که صندوق رأی به‌جای انتخاب آگاهانه، راه ورود معامله‌گران سیاسی به قدرت می‌شود.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247267
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247267_1782388344.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نهادهای امنیتی کانادا، محمدرضا پاکتچیان، دانشجوی ایرانی مقطع دکتری دانشگاه کارلتون را «تهدیدی برای امنیت ملی» این کشور معرفی کردند.
+
+آن‌ها هشدار دادند دانش و فناوری‌ای که او در کانادا به دست می‌آورد، می‌تواند به پیشبرد برنامه‌های نظامی و تسلیحات کشتار جمعی جمهوری اسلامی کمک کند.
+
+گلوبال‌نیوز پنج‌شنبه چهارم تیر گزارش داد بر اساس اسناد محرمانه‌ای که این رسانه به آن‌ها دست یافته است، این دانشجوی ایرانی برای شرکت مپنا که در فهرست تحریم‌های کانادا قرار گرفته است، کار می‌کند.
+
+سازمان اطلاعات امنیت کانادا می‌گوید پاکتچیان پس از پایان تحصیل در اتاوا قصد دارد به این شرکت بازگردد و آموخته‌های خود را در آنجا به کار گیرد.
+
+این سازمان همچنین نوشته است او با یک استاد دانشگاه ایرانی در ارتباط است که پژوهش‌هایش بر موشک‌های بالستیک و دیگر فناوری‌های نظامی متمرکز است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247266
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247266_1782388344.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میثم ظهوریان، عضو کمیسیون اقتصادی مجلس، در شبکه اجتماعی ایکس نوشت دولت با نسبت دادن مشکلات اقتصادی به جنگ، از آن به عنوان پوششی برای «سیاست‌های اشتباه ارزی و تجاری اشتباه» استفاده می‌کند.
+ظهوریان نوشت نرخ رشد تورم مواد خوراکی که به گفته او در شهریور ۱۴۰۳ به ۲۴ درصد رسیده بود، پیش از جنگ به ۱۰۵ درصد افزایش یافت و اکنون در آستانه ۱۳۰ درصد قرار دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 15788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اختلال بانک‌ها بعد از چندین روز همچنان ادامه دارد
+رصد گزارش‌های مردمی در شبکه‌های اجتماعی، کانال‌های اطلاع‌رسانی و بازخورد کاربران نشان می‌دهد شبکه بانکی ایران از فاز اختلال شدید عبور کرده و بخش عمده خدمات به وضعیت عملیاتی بازگشته است.
+در میان بانک‌های بزرگ، بانک ملی همچنان بیشترین حجم شکایت کاربران را به خود اختصاص داده است.
+@withyashar
+</div>
+
+## WithYashar — post 15787
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روبیو: آمریکا خواهان توافق با ایران است، اما توافق به هر قیمتی را نمی‌پذیرد
+@withyashar
+</div>
+
+## WithYashar — post 15786
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرمانده نیروی قدس خطاب به اسرائیل:
+اگر امروز با اختیار خود عقب‌نشینی نکنید، فردا با خواری و شکست ناگزیر به فرار خواهید شد
+@withyashar
+</div>
+
+## WithYashar — post 15785
+
+<div align="center">
+  <a href="telegram/content/WithYashar_15785_1782388345.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: اردوغان می‌خواست برای کمک به ایران وارد جنگ شود، من نگذاشتم
+@withyashar
+</div>
+
+## WithYashar — post 15784
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم: به ارتش اسرائیل هیچ دستوری مبنی بر عقب‌نشینی داده نشده
+@withyashar
+</div>
+
+## WithYashar — post 15783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مخالفت شدید چین با اقدامات آمریکا علیه کوبا
+وزارت خارجه چین بیان کرد: چین همواره با تحریم‌های یکجانبه غیرقانونی که هیچ پایه و اساسی در قوانین بین‌المللی ندارند، مخالفت کرده است.
+
+پکن از واشنگتن می خواهد تا فوراً به تحریم کوبا و هر نوع اجبار یا فشار پایان دهد. ما حمایت بی‌دریغ خود را از کوبا در جستجوی مسیر توسعه سوسیالیستی متناسب با شرایط ملی آن مجدداً تأیید می‌کنیم
+@withyashar
+</div>
+
+## WithYashar — post 15782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+moamelegari-trump(@withyashar).pdf
+</div>
+
+## WithYashar — post 15781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز : اسرائیل به نشانه حسن نیت از بخشی از منطقه امنیتی جنوب لبنان عقب‌نشینی کرد
+@withyashar
+</div>
+
+## WithYashar — post 15780
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان: متحدان ترامپ در کشورهای حاشیه خلیج فارس بیم دارند که توافق او با ایران سرآغاز تحولی فاجعه‌بار باشد
+@withyashar
+</div>
+
+## WithYashar — post 15779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏وو باهیانا، پیشگوی برزیلی مدعی شده است که در جریان دیدار برزیل و اسکاتلند در جام جهانی ۲۰۲۶ که بامداد پنجشنبه در فلوریدا برگزار می‌شود، فضایی‌ها به زمین حمله خواهند کرد. او که بیش از ۲۳ میلیون دنبال‌کننده دارد، حتی ویدیویی تولیدشده با هوش مصنوعی از ربوده…
+</div>
+
+## mwarmonitor — post 11486
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢وزیر امور خارجه عمان اعلام کرد که در ترتیبات آینده مربوط به تنگه هرمز، هیچ‌گونه عوارض یا هزینه‌ای برای عبور و ترانزیت در نظر گرفته نخواهد شد. @mwarmonitor
+</div>
+
+## mwarmonitor — post 11485
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 به گفته دلسی رودریگز ریس جمهور، طبق آخرین آمار زمین‌لرزه در ونزوئلا ۳۲ کشته و ۷۰۰ زخمی بر جای گذاشت؛ ده‌ها ساختمان فرو ریخت. @mwarmonitor
+</div>
+
+## mwarmonitor — post 11484
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢وزیر امور خارجه عمان اعلام کرد که در ترتیبات آینده مربوط به تنگه هرمز، هیچ‌گونه عوارض یا هزینه‌ای برای عبور و ترانزیت در نظر گرفته نخواهد شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 11483
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک مقام وزارت امور خارجه آمریکا به رویترز گفته است که اسرائیل از بخش‌هایی از منطقه حائل در جنوب لبنان عقب‌نشینی کرده و این اقدام را «ژست حسن‌نیت» در قبال دولت لبنان توصیف کرده است. 
+🔴بر اساس این گزارش، انتظار می‌رود ارتش لبنان بلافاصله در مناطق تخلیه‌شده…
+</div>
+
+## mwarmonitor — post 11482
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک مقام وزارت امور خارجه آمریکا به رویترز گفته است که اسرائیل از بخش‌هایی از منطقه حائل در جنوب لبنان عقب‌نشینی کرده و این اقدام را «ژست حسن‌نیت» در قبال دولت لبنان توصیف کرده است.
+
+
+🔴بر اساس این گزارش، انتظار می‌رود ارتش لبنان بلافاصله در مناطق تخلیه‌شده مستقر شود.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 343405
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343405_1782388347.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: Secretary of State Marco Rubio doubles down on calling Iran's leadership "religious theocratic lunatics," saying it's just the fact of the matter:
+
+“The Iranian system is led by clerics, radical clerics. That's what it's always been led by. And that's what it continues to be led by... We're going to judge them by their actions."
+</div>
+
+## FoxNewsTwitter — post 343404
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343404_1782388348.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Secretary of State Marco Rubio pushes back on propaganda and lies being put out by the Iranian government on negotiations with the United States.
+
+Rubio says the U.S. will judge Iran by its actions on the water rather than its "maximalist rhetoric" coming from state TV.
+
+"What we're interested in is not their press conferences. What we're interested in is whether or not ships are moving.”
+
+“If ships are moving as they should be moving, then that's what we're going to judge, and that's what we're going to react to."
+</div>
+
+## FoxNewsTwitter — post 343403
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343403_1782388350.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Secretary of State Marco Rubio gives an update on America’s recovery efforts to help the Venezuelan people after the country was hit by a pair of historic and deadly earthquakes.
+
+“We're already deploying search and rescue teams from Fairfax County, Virginia, and Los Angeles. There will be some others we'll add. That's their most immediate need right now, is search and rescue efforts- they have much of collapsed buildings. And so they'll need a lot of help in terms of digging through that.”
+
+“We've already stood up our disaster response teams at the Department of State and our humanitarian efforts. It's something we did very well in Jamaica, after that storm, and it's something we're really prepared to do now.”
+</div>
+
+## FoxNewsTwitter — post 343402
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343402_1782388352.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Rubio talks to reporters after meeting with the king of Bahrain https://twitter.com/i/broadcasts/1pJkOOLpzXwJj
+</div>
+
+## FoxNewsTwitter — post 343401
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343401_1782388352.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @foxandfriends: BREAKING: At least 32 dead and 700 injured after two massive earthquakes rock Venezuela.
+
+President Trump speaks out, pledging swift assistance: "The U.S.A. stands ready, willing, and able to help!"
+
+"I have instructed all agencies of our government to get ready to move quickly. We will be there for our new and great friends."
+</div>
+
+## pm_afshaa — post 94788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاهزاده رضا پهلوی:هرگز برای من پیش نیامده که برای تصدی یک مقام یا موقعیت کاندیدا شوم. اما من به طور منحصر به فردی در موقعیتی هستم که بتوانم عامل تغییر و گذار باشم.
+
+اعتمادی به من وجود دارد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94787
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاهزاده رضا پهلوی:صرف‌نظر از اینکه حمایت از مردم ایران وجود داشته باشد یا نه، مبارزه ما ادامه خواهد داشت. بنابراین ما در حال تجدید سازمان هستیم. ما در حال بازسازی هستیم. فکر می‌کنم مردم در نهایت فرصتی دیگر برای آمدن به خیابان‌ها در زمان مناسب پیدا خواهند…
+</div>
+
+## pm_afshaa — post 94786
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاهزاده رضا پهلوی:صرف‌نظر از اینکه حمایت از مردم ایران وجود داشته باشد یا نه، مبارزه ما ادامه خواهد داشت. بنابراین ما در حال تجدید سازمان هستیم.
+
+ما در حال بازسازی هستیم. فکر می‌کنم مردم در نهایت فرصتی دیگر برای آمدن به خیابان‌ها در زمان مناسب پیدا خواهند کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت اخر زمانی ونزوئلا 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94784
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94784_1782388354.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عزاداری جلوی درب خانه جاویدنام میلاد لواسانی
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان: متحدان ترامپ در کشورهای حاشیه خلیج فارس بیم دارند که توافق او با ایران سرآغاز تحولی فاجعه‌بار باشد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عزاداری در آمل برای جاویدنام ها
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اژه ‌ای: با افرادی که به بهانه نقد مذاکرات دارن وحدت شکنی میکنن و چرت و پرت مینویسن برخورد میکنیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5960
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5960_1782388355.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 عملیات خروج اسناد هسته‌ای از ایران در آفریقا تمرین شده بود
+
+یوسی کوهن، رئیس پیشین موساد، سازمان اطلاعات خارجی اسرائیل، در کتاب خود با عنوان «شمشیر آزادی» فاش کرد سازمان تحت مدیریت او، پیش از آغاز عملیات خروج اسناد هسته‌ای از «تورقوزآباد»؛ عملیاتی که به خروج دونالد ترامپ از برجام و فراهم شدن زمینه حمله نظامی به جمهوری اسلامی انجامید، این مأموریت را در یکی از کشورهای آفریقایی با استفاده از ماکت‌هایی در ابعاد واقعی به‌طور کامل تمرین کرده بود.
+
+توانایی ده‌ها مأمور موساد در نفوذ به تأسیسات به‌شدت حفاظت‌شده بایگانی اسناد هسته‌ای جمهوری اسلامی، بدون آنکه هیچ‌گونه هشدار یا زنگ خطری به صدا درآید یا مقام‌های رژیم در طول ۶ ساعت و ۲۹ دقیقه حضور آن‌ها در محل و حتی حدود دو ساعت پس از آن از این عملیات آگاه شوند، این امکان را برای آنان فراهم کرد که قفسه‌های کامل حاوی اسناد اصلی برنامه هسته‌ای را با خود خارج کنند و تمامی اعضای تیم نیز بدون هیچ آسیبی از محل بگریزند.
+
+#موساد #اسناد_محرمانه #تورقوزآباد
+@DEJradio
+</div>
+
+## DEJradio — post 5958
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5958_1782388355.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤡
+🔺 اعتراض ولایی‌ها در شب‌های محرم؛ خامنه‌ای را به گندم فروختند
+
+صد رحمت به اهل کوفه که پیشوا را به طلا فروختند. ما که به گندم و ذرت فروختیم!
+
+#موشعلی #اهل_کوفه #محرم
+@DEJradio
+</div>
+
+## DEJradio — post 5957
+
+<div align="center">
+  <img src="telegram/content/DEJradio_5957_1782388356.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💀
+🚨 فرمانده گروه سایبری «حنظله» در جنگ چهل روزه کشته شده است
+
+رسانه‌های داخلی از کشته شدن سید یحیی حسینی پنجکی، مشهور به یحیی حمیدی، در جریان حملات هوایی ایالات متحده و اسرائیل خبر داده‌اند. پس از انتشار این خبر، کانال‌های نزدیک به نهادهای اطلاعاتی جمهوری اسلامی او را به‌عنوان فرمانده گروه هکری «حنظله» معرفی کردند؛ گروهی که طی ماه‌های گذشته مسئولیت چندین حمله سایبری و انتشار اطلاعات مربوط به اهداف اسرائیلی را بر عهده گرفته بود.
+
+پیش از این، نام حسینی پنجکی عمدتا در ارتباط با ساختارهای اطلاعاتی جمهوری اسلامی و پرونده‌های مرتبط با عملیات‌های برون‌مرزی مطرح می‌شد. اما پس از کشته‌شدن او، روایت تازه‌ای از نقش وی در هدایت و مدیریت عملیات‌های سایبری گروه حنظله منتشر شده است.
+
+#جنگ۴۰روزه #حملات_هدفمند #جنگ
+@DEJradio
+</div>
+
+## DEJradio — post 5956
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5956_1782388356.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🎥 لحظه وقوع زمین‌لرزه در فرودگاه کاراکاس
+
+زلزله‌ای مهیب با قدرت ۷.۵ ریشتر کاراکاس و نواحی اطراف آن را لرزاند. بر اساس گزارش‌های اولیه این زمین لرزه خسارات سنگینی برجای گذاشت. در شبکه‌های اجتماعی ویدیویی از لحظه وقوع این زمین لرزه و وضعیت مردم در فرودگاه سیمون بولیوار کارکاس بازتاب پیدا کرده است.
+
+#زلزله #فرودگاه_کاراکاس
+@DEJradio
+</div>
+
+## DEJradio — post 5955
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5955_1782388358.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤡
+🔺 یک نماینده مجلس:
+هم انتقام می‌گیریم، هم غرامت
+
+عبدالکریم هاشمی نخل‌ابراهیمی، عضو کمیسیون برنامه و بودجه مجلس، از مذاکره با آمریکا استقبال کرد اما در عین حال تاکید کرد: «خواسته‌های ما این است که هم انتقام گرفته شود، هم غرامت دریافت شود و هم مطالبات ما تامین شود.»
+او افزود: «دشمن باید به نوعی بپذیرد که حق و حقوق ما را رعایت کند.»
+عضو کمیسیون برنامه و بودجه مجلس گفت: «جنگ به کشور ما خسارت وارد کرد و اکنون به مرحله‌ای رسیده‌ایم که باید به سمت مذاکره حرکت کنیم.»
+
+#توافق #انتقام_سخت #مذاکرات
+@DEJradio
+</div>
+
+## kianmeli1 — post 88158
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_88158_1782388358.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نفت برنت تنها ۲ دلار با قیمت خود پیش از آغاز جنگ فاصله دارد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88157
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88157_1782388359.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجری صداوسیما رو آنتن زنده: بابا بهتون برنمیخوره به ملتتون میگه گرسنه؟! یعنی چی محصولات آمریکایی اگه خوب باشه میخریم؟! یکم بهتون بربخوره. هنوز ۴ ماه از قتل رهبر نگذشته.
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88156
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88156_1782388360.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توزیع نذورات در میان خودروها در عزاداری شب عاشورا ( دیشب) در شهر دیترویت ایالت میشیگان آمریکا
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88155
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_88155_1782388362.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزير خزانه‌داری آمریکا: لغو تحریم‌های نفتی ایران مثل دادن هویج به آنهاست!
+
+«این یک هویج است که ما همیشه می‌توانیم آن را پس بگیریم. ما می‌خواهیم آنها ببینند که نداشتن تحریم‌ها چه حسی دارد.»
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88154
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_88154_1782388363.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اتفاق بسیار عجیب
+
+بازهم هم‌زمان با بازی برزیل و اسکاتلند، یه جای دیگه از دنیا زلزله شدید اومد.
+
+چقدر احتمال داره همزمان با بازی دو تا کشور تو جام جهانی، دوبار زلزله شدید بیاد؟ قبلاً زلزله رودبار تو ایران و حالا هم زلزله ۷.۱ ریشتری ونزوئلا.
+۳۶ سال پیش در همچنین شبی ۳۶ هزار ایرانی در زلزله رودبار جان باختند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 88153
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_88153_1782388363.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پلاکارد دیده‌شده در یکی از تجمعات در الیگودرز
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 344294
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344294_1782388364.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، گفت کشورهای عضو شورای همکاری خلیج فارس از دریافت عوارض برای استفاده از تنگه هرمز و دیگر آبراه‌های بین‌المللی حمایت نمی‌کنند.
+روبیو در حاشیه نشست مشترک وزیران کشورهای شورای همکاری خلیج فارس و آمریکا در بحرین افزود دونالد ترامپ، رییس‌جمهوری آمریکا، نیز تاکید کرده است چنین اقدامی انجام نخواهد شد.
+او همچنین گفت اگر تهدیدها علیه کشتی‌ها عملی شود و تردد در تنگه هرمز متوقف شود، این اقدام نقض توافق خواهد بود و آمریکا با آن مخالفت خواهد کرد. روبیو تاکید کرد واشینگتن تصمیمی نخواهد گرفت که به امنیت و ثبات شرکای خود در کشورهای شورای همکاری خلیج فارس آسیب بزند.
+https://iranintl.com/202606253042
+</div>
+
+## IranIntlTV — post 344293
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/344293" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | پنج‌شنبه ۴ تیر
+@iranintlTV
+</div>
+
+## IranIntlTV — post 344292
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344292_1782388365.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران اینترنشنال گفت که نیروهای مسلح در محل توزیع دو کیسه شکلات نذری در بلوار سرخس مشهد حضور پیدا کردند زیرا میان شماری از افراد بر سر دریافت شکلات، بحث و درگیری لفظی رخ داد.
+</div>
+
+## IranIntlTV — post 344291
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344291_1782388367.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یسرائیل کاتز، وزیر دفاع اسرائیل، گفت هر دلاری که به جمهوری اسلامی برسد، ممکن است به حزب‌الله، حماس، حوثی‌ها و دیگر گروه‌های هم‌پیمان تهران منتقل شود.
+کاتز در کنفرانس «نبرد اقتصادی» ستاد ملی مبارزه با تامین مالی تروریسم در وزارت دفاع اسرائیل، گفت حکومت جمهوری اسلامی به جای سرمایه‌گذاری برای بهبود زندگی شهروندان، منابع خود را صرف «تروریسم» کرده است.
+او همچنین گفت اسرائیل نباید به دستاوردهای کنونی در جنگ با جمهوری اسلامی بسنده کند و باید در توسعه توانایی حمله از فضا به کشوری پیشرو در جهان تبدیل شود.
+https://iranintl.com/202606257363
+</div>
+
+## IranIntlTV — post 344290
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344290_1782388367.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرتضی کاظمیان، عضو تحریریه ایران‌اینترنشنال، با اشاره به هشدارهای اخیر سپاه پاسداران درباره عبور کشتی‌ها از تنگه هرمز، می‌گوید تهدیدهای سپاه پاسداران بیش از آنکه نشانه تغییر توافقات باشد، تلاشی برای حفظ اهرم فشار و نمایش قدرت در روند چانه‌زنی‌های جاری است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 344289
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344289_1782388368.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد در جریان برگزاری مراسم مذهبی «تاسوعا»، مادر جاویدنام محمد رادمان‌نیا سخنرانی کرد و خطاب به مردم گفت «نگذارید راه پسرم خاموش شود» که در ادامه با سردادن شعارهای «درود بر محمد» و «باغیرت، باغیرت» از سوی حاضران همراه شد.
+
+این جاویدنام ۱۹ دی ۱۴۰۴ در جریان اعتراضات محله نظام‌آباد تهران در سن ۲۹ سالگی به دست ماموران حکومت کشته شد.
+</div>
+
+## IranIntlTV — post 344288
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344288_1782388370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اورشلیم‌پست گزارش داد یوسی کوهن، رییس پیشین موساد، برای نخستین بار فاش کرد که موساد پیش از عملیات سرقت آرشیو هسته‌ای جمهوری اسلامی در سال ۱۳۹۶، تمرین اصلی این عملیات را در یکی از کشورهای آفریقایی انجام داد.
+کوهن گفت موساد برای این عملیات، ماکتی هم‌اندازه از مرکز نگهداری آرشیو هسته‌ای جمهوری اسلامی ساخت و به دلیل ملاحظات امنیتی، تمرین را به جای اسرائیل در آفریقا انجام داد.
+به گزارش اورشلیم‌پست، نیروهای موساد با تمرین روی این ماکت توانستند عملیات ورود به مرکز آرشیو هسته‌ای جمهوری اسلامی و خارج کردن اسناد را بدون به صدا درآمدن سامانه‌های هشدار اجرا کنند.
+https://iranintl.com/202606256520
+</div>
+
+## IranIntlTV — post 344287
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344287_1782388371.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد که ظهر چهارم تیرماه در شهر ازنا در استان لرستان، روی پشت‌بام یک ساختمان در نزدیکی محل عزادارای عاشورا تک‌تیراندازها مستقر شدند.
+</div>
+
+## IranIntlTV — post 344286
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344286_1782388373.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، در سفر به کویت تاکید کرد واشینگتن در روند مذاکرات با جمهوری اسلامی با شرکای خود در خلیج فارس هماهنگ خواهد بود و آن‌ها را در جریان تصمیم‌های مرتبط با این مذاکرات قرار خواهد داد.
+
+ارزیابی محمدجواد اکبرین، عضو تحریریه ایران‌اینترنشنال، از دستاوردهای سفر وزیر خارجه آمریکا به کشورهای حاشیه خلیج فارس
+@iranintltv
+</div>
+
+## IranIntlTV — post 344285
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344285_1782388374.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد که شامگاه دوم تیرماه یک دسته عزاداری در روستای لفمجان استان گیلان بر سر مزار جاویدنام مانی صفرپور حضور یافت. در این مراسم عکس او بر روی طبل و سنج نصب شده بود.
+
+مانی صفرپور، جوان ۱۸ ساله و اهل لاهیجان، در اعتراضات ۱۸ دی‌ماه تهران به دست ماموران حکومت کشته شد.
+</div>
+
+## IranIntlTV — post 344284
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از بحران اقتصادی و زندگی بعد از توافق- پنج‌شنبه ۴ تیر:
+
+🔹من یک بازنشسته هستم از مشهد با حقوق ۲۴ میلیون تومان. ۲۱ میلیون اجاره خونه می‌دم. چطور زندگی کنم؟
+
+🔹فقر، خشم، خفقان، ارعاب، شرمندگی، تلاش برای بقا، بیکاری، افسردگی، خودکشی، آدم‌ربایی، جنگ، قطعی آب، برق و بانک، از همه مهم‌تر نسل‌کشی آشکارا تنها بخشی از مواردی هست که باهاشون در ایران مواجهیم.
+
+🔹چیزی از منِ ۳۵ ساله و بسیاری از ما گرفتن به اسم جوانی و زندگی؛ من موتور هوندا ۴۰۰ هزار تومنی رو تو زندگیم دیدم، هوندای ۳۵۰ میلیونی رو هم دیدم.
+
+🔹من یه جوون ۲۳ ساله‌ام، حقوق وزارت کار ۲۰ تا ۲۲ میلیون تومنه، ما با این پول چطوری زندگی رو بگذرونیم؟ توی این وضعیت ما آب نداریم. امنیت شغلی نداریم، توان خرید هیچ‌چیزی رو نداریم.
+
+🔹در شیراز نان لواش شده ۲۰۰۰ تومان و این نان لواش هم اونقدر نازک و کوچک هست که هر قرص نان حداکثر ۴ الی ۵ لقمه می‌شود. یعنی هر لقمه نان حدود ۵۰۰ تومان هزینه داره.
+
+🔹یک سس، دوغ، شیر و یک خامه شکلاتی شد ۵۰۰ هزار تومان. ماه دیگر قیمت همین چند قلم جنس احتمالا به یک میلیون تومان می‌رسد.
+
+🔹از اصفهان پیام می‌دهم؛ مردم ۲۰ عدد نان هم نمی‌تونند بخرند، اون‌وقت مرتب پیام گاز، برق، آب و تلفن میاد و همه را هم گران کردند، برای نمونه قبض آبونمان خط تلفنی که اصلا استفاده نمی‌شه هفتاد هزار تومان میاد، اگه این دزدی از جیب مردم بی‌نوا نیست چیه؟
+
+🔹ما در جزیره‌ کیش هستیم. از اسفند تا الان پروازی نبوده، جزیره به‌شدت آسیب خورده و کسب‌وکارها تعطیل شدن، متاسفانه مدیریتی هم در کار نیست.
+
+🔹حقوق بازنشستگان فقط کفاف چند روز اول ماه رو می‌ده، چون افزایش قیمت کالاها و خدمات در اغلب موارد بالای ۲۰۰ درصد شده، ادامه این وضعیت یعنی افزایش جمعیت زیر فقر کشور ثروتمند ایران!
+</div>
+
+## IranIntlTV — post 344279
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال پس از سفر به سیاتل برای برگزاری آخرین مسابقه خود در مرحله گروهی جام جهانی برابر مصر، نخستین تمرین خود در آمریکا برای این مسابقه را در زمین دانشگاه واشینگتن برگزار کرد.
+
+🔹شاگردان قلعه‌نویی که این بار مجوز حضور دو روز پیش از بازی را دریافت کردند، در حالی تمرین خود برای بازی با مصر را برگزار کردند که همچون دفعات گذشته، به‌دلیل بازپرسی از مهدی طارمی و سعید الهویی، گاپیتان و مربی تیم ملی فوتبال، در فرودگاه، معطل شدند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344278
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344278_1782388375.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه تایمز اسرائیل به نقل از دو منبع آگاه گزارش داد مذاکرات این هفته اسرائیل و لبنان به دلیل نارضایتی هر دو طرف از اقدام دولت دونالد ترامپ، رییس‌جمهوری آمریکا، به بن‌بست رسیده و بی‌نتیجه‌ترین دور گفت‌وگوها بوده است.
+
+بابک اسحاقی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 344277
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344277_1782388377.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیپلمات پیشین سفارت کره شمالی در کویت فاش کرده پیونگ‌یانگ دو دهه پیش برای ارائه «طرح و فناوری تونل» به ایران «حدود ۲۵ میلیون دلار» دریافت کرده و این دانش عمدتا در ساخت تاسیسات هسته‌ای نطنز و اصفهان به کار رفته است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 344276
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344276_1782388378.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نهادهای امنیتی کانادا، محمدرضا پاکتچیان، دانشجوی ایرانی مقطع دکتری دانشگاه کارلتون را «تهدیدی برای امنیت ملی» این کشور معرفی کردند.
+
+آن‌ها هشدار دادند دانش و فناوری‌ای که او در کانادا به دست می‌آورد، می‌تواند به پیشبرد برنامه‌های نظامی و تسلیحات کشتار جمعی جمهوری اسلامی کمک کند.
+
+گلوبال‌نیوز پنج‌شنبه چهارم تیر گزارش داد بر اساس اسناد محرمانه‌ای که این رسانه به آن‌ها دست یافته است، این دانشجوی ایرانی برای شرکت مپنا که در فهرست تحریم‌های کانادا قرار گرفته است، کار می‌کند.
+
+سازمان اطلاعات امنیت کانادا می‌گوید پاکتچیان پس از پایان تحصیل در اتاوا قصد دارد به این شرکت بازگردد و آموخته‌های خود را در آنجا به کار گیرد.
+
+این سازمان همچنین نوشته است او با یک استاد دانشگاه ایرانی در ارتباط است که پژوهش‌هایش بر موشک‌های بالستیک و دیگر فناوری‌های نظامی متمرکز است.
+https://iranintl.com/202606255162
+</div>
+
+## IranIntlTV — post 344275
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344275_1782388379.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، در نشست وزیران خارجه کشورهای عضو شورای همکاری خلیج فارس در منامه، پایتخت بحرین، گفت هر توافقی با جمهوری اسلامی باید تضمین کند که ایران هرگز به سلاح هسته‌ای دست پیدا نخواهد کرد و سازوکارهای قابل راستی‌آزمایی لازم برای اطمینان از این موضوع را در بر داشته باشد.
+@iranintltv
+</div>
+
+## ManotoTV — post 106234
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرتضی مشفق کاظمی در مقالهٔ «قانون انتخابات» انتخابات ایران در سال ۱۳۰۳ را نه فقط مسئله‌ای حقوقی، بلکه بحرانی فرهنگی و سیاسی می‌دید؛ بحرانی برآمده از رأی‌فروشی، عوام‌فریبی، نفوذ ثروت و ناآگاهی عمومی.
+
+او هشدار می‌داد دموکراسی بدون آموزش و آگاهی، می‌تواند به ابزار فریب تبدیل شود؛ جایی که صندوق رأی به‌جای انتخاب آگاهانه، راه ورود معامله‌گران سیاسی به قدرت می‌شود.
+</div>
+
+## FarsiVOA — post 221835
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221835_1782388380.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بدر بن حمد بوسعیدی، وزیر خارجه عمان، در سخنرانی خود در نشست مشترک وزیران خارجه شورای همکاری خلیج فارس با مارکو روبیو، وزیر خارجه آمریکا، گفت: «ترتیبات آینده مربوط به تنگه هرمز شامل وضع هیچ‌گونه عوارض یا هزینه‌ای برای عبور و مرور نخواهد بود.»
+
+بوسعیدی همچنین بار دیگر بر حمایت عمان از یادداشت تفاهم امضاشده میان ایالات متحده آمریکا و جمهوری اسلامی و «اهمیت موفقیت اهداف آن در راستای تحقق صلح مورد انتظار» تأکید کرد و افزود: «عمان به مشارکت کامل و سازنده با همه طرف‌ها برای پیشبرد این روند متعهد است.»
+
+همچنین در این نشست، عبداللطیف بن راشد الزیانی، وزیر خارجه بحرین، از اعلام عمان درباره ایجاد یک کریدور برای عبور ایمن کشتی‌ها از تنگه هرمز استقبال کرد.
+
+الزیانی این اظهارات را در حالی مطرح کرد که ریاست نشست شورای همکاری خلیج فارس را برعهده داشت؛ نشستی که هم‌زمان با سفر وزیر خارجه آمریکا مارکو روبیو به این کشور برگزار شد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221834
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221834_1782388381.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان بین‌المللی دریانوردی از عبور ۵۷ کشتی و هزار و ۱۰۰ خدمه آن از تنگه هرمز از سه‌شنبه هفته جاری تا صبح پنج‌شنبه خبر داده است.
+
+بر اساس این گزارش، در چارچوب طرح تخلیه اضطراری سازمان ملل از تنگه هرمز قرار است ۱۱ هزار خدمه گرفتار در خلیج فارس طی ماههای گذشته به خاطر انسداد تنگه هرمز توسط جمهوری اسلامی، تخلیه شوند.
+
+نهاد دریانوردی سازمان ملل می‌گوید روز سه‌شنبه ۱۳ کشتی، چهارشنبه ۳۲ کشتی و تا صبح روز پنج‌شنبه نیز ۱۲ کشتی از تنگه هرمز عبور کرده‌اند.
+
+پیش از انسداد تنگه هرمز روزانه ۱۰۰ تا ۱۵۰ کشتی از این آبراهه عبور می‌کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221833
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221833_1782388381.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، مقاله وبسایت «جاست دِ نیوز» درباره رای منفی اخیر سنای آمریکا به یک لایحه اختیارات جنگی را در تروث‌سوشال بازنشر کرد.
+
+آقای ترامپ تیتر این مقاله را نیز بازنشر کرد: «پس از مشاجره‌ای تند، سنا با رد لایحه‌ای برای مهار جنگ ترامپ علیه ایران، پیروزی را به او تقدیم کرد.»
+
+در این مقاله آمده است: «سنای آمریکا شامگاه چهارشنبه طرحی را که هدفش محدود کردن رئیس‌جمهور دونالد ترامپ در جنگ علیه ایران بود رد کرد و تنها چند ساعت پس از جلسه‌ای پرتنش با سناتورهای جمهوری‌خواه که به فریاد و مشاجره کشیده شد، یک پیروزی برای رئیس‌جمهور رقم زد.»
+
+قطعنامه سناتور دموکرات تیم کین، رئیس‌جمهور ترامپ را ملزم می‌کرد که «نیروهای مسلح ایالات متحده را از هرگونه درگیری نظامی در داخل ایران یا علیه ایران خارج کند»، مگر آنکه این اقدام از سوی کنگره مجاز شناخته شده باشد.
+
+اما رأی‌گیری برای این قطعنامه با نتیجه ۵۰ رأی مخالف در برابر ۴۷ رأی موافق شکست خورد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221832
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نگرانی از خطر اعدام پنج زندانی سیاسی گیلک در زندان لاکان رشت
+
+▪️سازمان حقوق بشری هه‌نگاو نسبت به خطر اجرای احکام اعدام پنج زندانی سیاسی گیلک در زندان لاکان رشت هشدار داد.
+
+▪️منوچهر فلاح، زندانی سیاسی اهل رشت، به اتهام محاربه و اقدام علیه امنیت ملی به اعدام محکوم شده. پیمان فرح‌آور، شاعر ۳۷ ساله اهل رشت، نیز با اتهامات بغی و محاربه به اعدام محکوم شده و حکم او در دیوان عالی کشور تأیید شده است.
+
+▪️کریم خجسته، زندانی سیاسی ۶۲ ساله اهل خمام، و یعقوب درخشان، زندانی سیاسی اهل بندرانزلی، هر دو به اتهام بغی به اعدام محکوم شده‌اند.
+
+▪️زهرا شهباز طبری، مهندس برق و فعال مدنی ۶۸ ساله اهل رشت، نیز به اتهام بغی از طریق انتساب به سازمان مجاهدین خلق، با حکم اعدام روبه‌رو است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8164694.html
+</div>
+
+## FarsiVOA — post 221831
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221831_1782388382.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ رئیس‌جمهور آمریکا ادنی برنهام گزینه احتمالی برای جانشینی نخست‌وزیر مستعفی بریتانیا را «بسیار لیبرال» خواند و گفت او احتمالاً دریای شمال را برای حفاری‌های بیشتر نفتی باز نخواهد کرد.
+
+ترامپ در پاسخ به پرسشی درباره برنهام، که تاکنون تنها نامزد رقابت برای جانشینی کی‌یر استارمر در رهبری حزب کارگر و مقام نخست‌وزیری است گفت: «شنیده‌ام که او بسیار لیبرال است، بسیار لیبرال؛ و این یعنی احتمالاً دریای شمال را برای حفاری بیشتر باز نخواهد کرد. می‌دانید، من به کی‌یر استارمر توصیه بسیار خوبی کردم؛ به او گفتم دریای شمال را باز کند».
+
+احتمالاً نخست‌وزیر آتی بریتانیا بعد از استعفای روز دوشنبه استارمر به خاطر افت محبوبیت و نتایج ضعیف حزب کارگر در انتخابات محلی، تا اواسط ژوئیه به این سمت منصوب شود.
+
+استارمر در تلاش برای ایجاد روابطی نزدیک با ترامپ بود، اما رد درخواست ایالات متحده از بریتانیا برای استفاده از پایگاه‌های هوایی این کشور در جنگ با ایران، باعث انتقاد تند ترامپ علیه دولت او شده بود؛ اگرچه استارمز بعد از این انتقادات با درخواست ترامپ موافقت کرده بود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺روبیو در بحرین از جمهوری اسلامی خواست به جای صدور ایدئولوژی، برای تبدیل به یک «دولت-ملت» تلاش کند
+
+▪️وزیر خارجه آمریکا، با تأکید بر عدم دستیابی جمهوری اسلامی به سلاح هسته‌ای و آزادی تردد در آبراه‌های بین‌المللی از جمله تنگه هرمز، از جمهوری اسلامی خواست که به جای «صدور ایدئولوژی خود به کشورهای دیگر» به یک «دولت-ملت تبدیل شود که بر رفاه مردم خود تمرکز می‌کند.»
+
+▪️مارکو روبیو روز پنجشنبه در نشست وزیران خارجه کشورهای شورای همکاری خلیج فارس گفت: «ایالات متحده با کمک برخی از حاضران در این میز امروز، قصد دارد فرصت ورود به گفت‌وگوی سازنده و امیدوارکننده به توافق با ایران را دنبال کند. ما امیدواریم که این امر به نتیجه‌ای بسیار مثبت منتهی شود. این امید ماست. این چیزی است که ما نسبت به آن گشوده هستیم.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8164693.html
+</div>
+
+## FarsiVOA — post 221829
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221829_1782388382.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد وزارت نفت عراق به رویترز گفته است که اگر سهمیه تولید نفت عراق در اوپک به شکل قابل توجهی افزایش پیدا نکند، بغداد ناچار خواهد شد «تمام گزینه‌های موجود» را بررسی کند.
+
+منابع جداگانه‌ای نیز به رویترز گفته‌اند که مقام‌های عراقی موضوع خروج از اوپک را مورد بررسی قرار داده‌اند.
+
+امارات نیز از ابتدای ماه گذشته از اوپک خارج شد و خروج عراق از اوپک می‌تواند ضربه دیگری به این سازمان باشد.
+
+این مقام عراقی گفت کشورش در پی انسداد تنگه هرمز توسط جمهوری اسلامی با یک بحران مالی شدید روبه‌رو شده و افزایش چشمگیر سهمیه تولید نفت عراق در اوپک یک ضرورت اجتناب‌ناپذیر است.
+
+پیشتر نهاد «نظارت اقتصادی عراق» گفته بود این کشور به خاطر انسداد تنگه هرمز از حدود ۳۷.۷ میلیارد دلار درآمد نفتی محروم شده است.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 126442
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126442_1782388383.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 قیمت نفت به پایین‌ترین سطح پیش از آغاز جنگ ایران بازگشت
+
+قیمت جهانی نفت با ازسرگیری عبور نفتکش‌ها از تنگه هرمز و ادامه مذاکرات صلح میان آمریکا و ایران به پایین‌ترین سطح خود نسبت به پیش از آغاز جنگ ایران بازگشت.
+
+بهای نفت برنت، شاخص جهانی قیمت نفت، با کاهش ۱.۷ درصدی به ۷۲.۵۲ دلار در هر بشکه رسید؛ رقمی که از قیمت آن در ۲۷ فوریه، یک روز پیش از آغاز حملات آمریکا و اسرائیل به جمهوری اسلامی، پایین‌تر است.
+
+نفت خام وست‌تگزاس "اینترمدیت" آمریکا نیز بیش از ۱.۳ درصد کاهش یافت و به ۶۹.۴۱ دلار در هر بشکه رسید.
+
+این کاهش هم‌زمان با رشد بازارهای مالی رخ داده است. بازارهای سهام آسیا پس از انتشار گزارش مالی و پیش‌بینی‌های مثبت شرکت آمریکایی "مایکرون" رشد کردند.
+
+یک تحلیلگر دویچه بانک می‌گوید بازارها امروز در شرایط مثبتی قرار دارند و قیمت نفت برنت سرانجام به سطح پیش از آغاز درگیری‌ها بازگشته است.
+
+قیمت نفت از اواسط ژوئن، زمانی که دونالد ترامپ از دستیابی به توافق با ایران و آغاز روند پایان جنگ خبر داد، بیش از ۱۶ درصد کاهش یافته است.
+
+پیش از آن، در ماه آوریل و پس از بسته شدن تنگه هرمز در جریان درگیری‌ها، قیمت نفت تا ۱۲۶ دلار در هر بشکه افزایش یافته بود.
+
+تنگه هرمز مسیر عبور حدود یک‌پنجم صادرات جهانی نفت و گاز به شمار می‌رود.
+
+نفتکش‌ها بار دیگر از این آبراه عبور می‌کنند و این موضوع نگرانی‌ها درباره عرضه جهانی نفت را کاهش داده است.
+
+هم‌زمان، ادامه مذاکرات صلح میان آمریکا و ایران در سوئیس نیز به کاهش فشار بر بازار نفت کمک کرده است.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 126441
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 دو زلزله شدید در ونزوئلا و احتمال هزاران کشته
+
+دو زمین‌لرزه با شدت ۷/۲ و ۷/۵ ریشتر ونزوئلا را لرزاند. در کاراکاس پایتخت این کشور نیز ساختمان‌ها تخریب شدند. موسسه زمین‌شناسی امریکا احتمال می‌دهد که تعداد کشته‌شدگان حداقل ۱۰ هزار نفر باشد.
+
+ تعداد جان‌باختگان در ونزوئلا بنا بر آخرین آمار به دست‌کم ۱۶۴ نفر افزایش یافته است و تاکنون زخمی شدن ۹۷۱ نفر نیز تأیید شده است. این آمار را دلسی رودریگز، رئیس‌جمهور موقت ونزوئلا، بامداد پنج‌شنبه در یک به‌روزرسانی اعلام کرد.
+
+با این حال، بیم آن می‌رود که شمار واقعی قربانیان بسیار بیشتر باشد؛ زیرا تعداد زیادی از ساختمان‌ها فروریخته یا آسیب دیده‌اند و نیروهای امدادی همچنان به عملیات جست‌وجو و نجات ادامه می‌دهند. رودریگز همچنین گفت که از زمان وقوع دو زمین‌لرزه اصلی، دست‌کم ۳۰ پس‌لرزه ثبت شده است.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 126440
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126440_1782388383.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 پنج کشتی دیگر کره‌جنوبی از تنگه هرمز خارج شدند
+
+وزارت اقیانوس‌ها و شیلات کره‌جنوبی اعلام کرد پنج کشتی دیگر که تحت مدیریت شرکت‌های کره‌جنوبی فعالیت می‌کنند، روز پنج‌شنبه ۴ تیر (۲۵ ژوئن) از تنگه هرمز خارج شدند.
+
+بر اساس اعلام این وزارتخانه، یکی از این کشتی‌ها در مسیر کره‌جنوبی قرار دارد. با این حال، نام کشتی‌ها به درخواست شرکت‌های کشتیرانی و خدمه آنها منتشر نشده است.
+
+این وزارتخانه همچنین اعلام کرد که در حال حاضر ۱۳ کشتی تحت مدیریت کره‌جنوبی همچنان در تنگه هرمز حضور دارند و ۸۷ نفر خدمه در آنها مشغول به کار هستند.
+
+مقام‌های سئول اطلاع دادند که کره‌جنوبی در حال رایزنی با "کشورهای مرتبط" است تا امکان خروج ایمن کشتی‌های باقی‌مانده از این منطقه فراهم شود.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 126439
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126439_1782388384.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 نتانیاهو: عملیات علیه ایران را به ترامپ اطلاع دادم، اما اجازه نگرفتم
+
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل روز چهارشنبه ۳ تیر (۲۴ ژوئن) در کنفرانس "فدراسیون مقامات محلی" این کشور اعلام کرد که اسرائیل نخستین کشوری خواهد بود که راه‌حلی برای مقابله با تهدید جهانی پهپادهای انفجاری ارائه می‌دهد.
+
+نتانیاهو با اشاره به عملیات ارتش اسرائیل علیه حزب‌الله در لبنان، گفت دستاوردهای نظامی اسرائیل "باورنکردنی" بوده است. او تاکید کرد در جنوب لبنان اکنون یک منطقه امنیتی ایجاد شده که از نفوذ حزب‌الله و نیروهای باقی‌مانده آن به منطقه "جلیل" (واقع در شمال اسرائیل و جنوب لبنان) جلوگیری می‌کند و ارتش اسرائیل "در حال نابود کردن زیرساخت‌های زیرزمینی" این گروه است.
+
+نخست‌وزیر اسرائیل همچنین افزود پیشرفت‌های نظامی اسرائیل با وجود فشارهای بین‌المللی برای توقف عملیات نظامی به‌ دست آمده است.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 126438
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126438_1782388384.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 مارکو روبیو درباره دریافت عوارض در تنگه هرمز هشدار داد
+
+مارکو روبیو، وزیر امور خارجه آمریکا، روز پنجشنبه ۴ تیر (۲۵ ژوئن) در جریان نشست وزیران خارجه "شورای همکاری خلیج فارس" در بحرین هشدار داد که دریافت عوارض برای عبور کشتی‌ها از تنگه هرمز می‌تواند به سایر آبراه‌های جهان نیز گسترش یابد و "هرج‌ومرج کامل" در نظام کشتیرانی بین‌المللی ایجاد کند.
+
+او گفت: «هیچ کشوری حق ندارد برای عبور از تنگه هرمز عوارض تعیین یا دریافت کند...تنگه هرمز یک گذرگاه بین‌المللی آبی است و مالکیت انحصاری آن در اختیار هیچ کشوری نیست.»
+
+روبیو همچنین خاطرنشان کرد که ایالات متحده از دستیابی به "صلحی واقعی و پایدار" استقبال می‌کند، مشروط بر آنکه امنیت و رفاه آمریکا و متحدانش تضعیف نشود.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 126437
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_126437_1782388385.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 عکس روز: پارک‌گردی و پارک‌نشینی به وقت گرما
+
+آمار و داده‌ها و پیش‌بینی‌ها حاکی است که اروپا در چارچوب تغییرات بی‌سابقه اقلیمی بیش از سایر نقاط جهان رو به گرم‌شدن است. در این قاره عمدتا سرد یا دارای هوای ملایم که تمهیدات چندانی برای گرماهای رکوردشکن این روزها انجام نشده، پارک‌نشینی و پارک‌گردی یکی از راه‌های گریز از گرما است، چه برای انسان و چه برای جانداران دیگر، مثل اینجا در پارکی در لندن.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 17997
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام وزارت امور خارجه ایالات متحده به تایمز اسرائیل گفت که اسرائیل از بخشی از منطقه امنیتی جدید خود در جنوب لبنان عقب‌نشینی کرده است.
+
+با این حال، مقامات اسرائیلی و لبنانی گزارش‌های مربوط به هرگونه عقب‌نشینی را تکذیب کرده‌اند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17996
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17996_1782388385.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قاآنی: باید سراسر لبنان را ترک کنید!
+
+فرمانده نیروی قدس سپاه در پیامی در صفحه مجازیش خطاب به ارتش اسرائیل: صهیونیست‌ها بدانند؛ آنانی که با شما یزیدیان،با روحیه عاشورایی و ایمان حسینی ایستاده‌ و‌جنگیده اند، همان باور جاودانه را در جان دارند که: کلُّ یومٍ عاشورا و کلُّ أرضٍ کربلا.
+
+شما صهیونیست‌ها باید سراسر لبنان را ترک کنید؛ چرا که این سرزمین، میدان ایستادگی و مقاومت است، نه جولانگاه اشغالگران. صهیونیست‌ها اگر امروز با اختیار خود عقب‌نشینی نکنند، فردا با خواری و شکست ناگزیر به فرار خواهند شد.
+
+سال 2000 میلادی و وصیت تاریخی شهید سید حسن نصرالله در بنت جبیل را از یاد نبرید؛ آن وعده هنوز زنده است و تردیدی نیست که، بار دیگر همان صحنه تکرار خواهد شد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17995
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17995_1782388386.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی دریایی سپاه همچنان در کانال 16 دریایی می‌گوید تنگه هرمز بسته است و تنها کشتی های تجاری میتوانند از مسیر مشخص شده توسط جمهوری اسلامی با اخذ مجوز و هماهنگی با نیروی دریایی سپاه عبور کنند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17994
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17994_1782388387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️ایران برای نخستین‌بار کشته‌شدن یکی از اعضای ارشد گروه «حنظله» را تأیید کرد.
+
+منابع رسمی در تهران تأیید کرده‌اند که یحیی حسینی پنجکی، سرکرده گروه هکری «حنظله»، در جریان یکی از حملات هدفمند اخیر کشته شده است؛ موضوعی که برای نخستین‌بار به‌صورت علنی اعلام می‌شود.
+
+به گفته مقام‌های ایرانی، حسینی پنجکی همان فردی بود که هدایت عملیات‌های نفوذ سایبری علیه مقامات ارشد اسرائیل—including نفتالی بنت نخست‌وزیر پیشین و هرزی هالوی رئیس ستاد کل ارتش اسرائیل—را برعهده داشت. این گروه طی سال‌های گذشته چندین بار مدعی دسترسی به تلفن همراه و داده‌های حساس مقامات امنیتی و سیاسی اسرائیل شده بود.
+
+🔸 اهمیت این تأیید رسمی
+- تهران معمولاً درباره عملیات‌های سایبری و پاسخ‌های متقابل سکوت می‌کند؛ بنابراین اعلام علنی این خبر پیامی سیاسی و بازدارنده تلقی می‌شود.
+- کشته‌شدن رهبر «حنظله» نشان می‌دهد درگیری‌های اخیر از سطح میدانی فراتر رفته و جنگ سایبری نیز وارد مرحله‌ای تهاجمی‌تر شده است.
+- اسرائیل طی سال‌های گذشته بارها مدعی مقابله با گروه‌های هکری وابسته به ایران شده بود، اما این نخستین‌بار است که ایران به‌طور رسمی یکی از تلفات این حوزه را تأیید می‌کند.
+
+Phantom
+
+📌 @persiantrendofficial
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازگشت سه نفتکش پس از هشدار سپاه؛ تغییر مسیر در کریدور جنوبی تنگه هرمز
+
+گزارش‌های میدانی نشان می‌دهد سه نفتکش تجاری که از مسیر کریدور جنوبی در حال عبور از تنگه هرمز بودند، پس از هشدار صادرشده از سوی سپاه پاسداران، مسیر خود را تغییر داده و در حال بازگشت به داخل خلیج فارس هستند.
+
+این تغییر مسیر ناگهانی نشان می‌دهد پیام هشدار به‌سرعت توسط کشتی‌ها دریافت و اجرا شده و احتمالاً شرکت‌های مالک نفتکش‌ها ریسک ادامه عبور را بالا ارزیابی کرده‌اند.
+
+
+- نفتکش‌ها در ابتدا در مسیر خروجی خلیج فارس قرار داشتند اما چرخش ۱۸۰ درجه‌ای انجام داده‌اند.
+- کریدور جنوبی یکی از مسیرهای اصلی عبور نفتکش‌ها در تنگه هرمز است و هرگونه تغییر در آن فوراً در ترافیک دریایی دیده می‌شود.
+- هشدار سپاه معمولاً به‌معنای افزایش سطح مراقبت و کنترل عملیاتی در منطقه است.
+- بازگشت نفتکش‌ها می‌تواند نشانه‌ای از افزایش ریسک امنیتی یا تغییر در ارزیابی تهدید از سوی شرکت‌های کشتیرانی باشد.
+
+
+- احتمال کند شدن ترافیک دریایی در ساعات آینده
+- افزایش حق بیمه جنگ (War Risk Premium) برای عبور از تنگه
+- واکنش احتمالی بازار نفت در صورت تداوم وضعیت
+
+در صورت انتشار اطلاعات تکمیلی درباره نوع نفتکش‌ها، پرچم، مقصد یا علت دقیق هشدار، نسخه به‌روزشده خبر را آماده می‌کنم.
+
+Phantom
+
+📌 @persiantrendofficial
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17988
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17988_1782388387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاکستان ادعای طرح موساد برای ترور عاصم منیر را رد کرد!
+
+مقام‌های پاکستانی ادعای مطرح‌شده از سوی یک روزنامه‌نگار برزیلی درباره طراحی موساد برای ترور عاصم منیر، فرمانده ارتش پاکستان، و اعضای هیأت پاکستانی در جریان سفر به سوئیس را بی‌اساس و کاملاً بی‌معنی توصیف و رد کردند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17987
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17987_1782388388.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دفاع ترکیه اعلام کرد که نیروهای مسلح این کشور تعدادی موشک بالستیک تایفون بلاک-2 دریافت کرده‌اند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17985
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_17985_1782388389.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️مارک روته: ۵۰۰ هواپیمای آمریکایی در عملیات «Epic Fury» مشارکت داشتند. 
+🚩 «مارک روته» دبیرکل ناتو در گفت‌وگو با شبکه فاکس‌نیوز اعلام کرد حدود ۵۰۰ هواپیمای آمریکایی از پایگاه‌های مختلف برای پشتیبانی از عملیات موسوم به «Epic Fury» به پرواز درآمدند. 🔹 وی این…
+</div>
+
+## Persian_Trend_Official — post 17984
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17984_1782388390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هواپیمای ترابری سنگین An-124 روسلان نیروی هوایی روسیه در حال حرکت به سمت ایران
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 17983
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_17983_1782388390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: دو زلزله بزرگی که به تازگی مردم بزرگ ونزوئلا را لرزاند، هم از نظر مقیاس عظیم بودند و هم تعداد زیادی کشته برجای گذاشته‌اند. ایالات متحده آماده، مایل و قادر به کمک است! من به همه آژانس‌های دولتمان دستور داده‌ام که برای اقدام سریع آماده شوند. ما برای…
+</div>
+
+## Persian_Trend_Official — post 17982
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: دو زلزله بزرگی که به تازگی مردم بزرگ ونزوئلا را لرزاند، هم از نظر مقیاس عظیم بودند و هم تعداد زیادی کشته برجای گذاشته‌اند. ایالات متحده آماده، مایل و قادر به کمک است! من به همه آژانس‌های دولتمان دستور داده‌ام که برای اقدام سریع آماده شوند. ما برای…
+</div>
+
+## RadioFarda — post 158747
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158747" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ساعت ۱۴ با رادیوفردا، چهارم تیر‌ماه ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158746
+
+<div align="center">
+  <a href="https://t.me/radiofarda/158746" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 در این برنامه بازی‌های انجام شده دیشب و امروز صبح را مرور می‌کنیم، به تاریخ حضور ایران در جام جهانی می‌پردازیم و به علاقه بازیکنان با استفاده از کفش‌های رنگی در جام‌جهانی می‌پردازیم.
+
+🔸 برای تماس با ما می‌توانید به شناسه کافه فردا در تلگرام صوت و متن بفرستید.
+
+📻 کافه فردا
+</div>
+
+## RadioFarda — post 158745
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا نام اسرائیل را هیچ‌گاه در جام جهانی فوتبال نشنیده‌ایم؟
+
+🔸احتمال رویارویی ورزشی ایرانی‌ها با اسرائیلی‌ها در مسابقات جهانی مانند المپیک همواره دغدغه و نگرانی جدی مقامات ورزشی ایران بوده و هست. اما چرا هیچ‌گاه پای چنین احتمالی در مورد فوتبال به میان نیامده و چرا نام اسرائیل را در جام جهانی فوتبال نشنیده‌ایم؟
+
+🔸امسال نیز اسرائیل نتوانست به جام جهانی فوتبال راه پیدا کند. در نتیجه، انتظار این کشور برای حضور در بزرگ‌ترین تورنمنت فوتبال جهان، که در اسرائیل از آن با عنوان «موندیال» یاد می‌شود، ادامه یافت و اگر حتی در دوره بعد نیز موفق به صعود شود، این انتظار به ۶۰ سال خواهد رسید.
+
+🔸نخستین و آخرین باری که فوتبالیست‌های اسرائیلی در جام جهانی توپ زدند، سال ۱۹۷۰ بود؛ ۵۶ سال پیش. آن سال نیز مسابقات در مکزیک برگزار شد.
+
+🔸 تیم اسرائیل در آن سال تنها سه مسابقه با هم‌تیمی‌های خود، سوئد، ایتالیا و پاراگوئه انجام داد. در برابر سوئد تنها یک گل زد و در دو مسابقهٔ دیگر باخت.
+
+🔸تنها گل در مسابقه برابر سوئد را موتی اشپیگلر زد که حالا در ۸۲ سالگی هنوز مشتاقانه رویدادهای جام جهانی را دنبال می‌کند. تنها گل او به عنوان نخستین و آخرین گل برای اسرائیل در جام جهانی ثبت شد.
+
+🔸اسرائیل از پایه‌گذاران فدراسیون فوتبال آسیا (ای‌اف‌سی) بود و تا سال ۱۹۷۴ در مسابقات این قاره حضور داشت. سال ۱۹۶۴ هم در حالی که تنها ۱۶ سال از تأسیس کشور اسرائیل سپری شده بود و امکاناتی نداشت، میزبانی مسابقات آسیایی هم شد.
+
+
+🔸 گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158744
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_158744_1782388392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸داده‌های سازمان بین‌المللی دریانوردی در روز پنج‌شنبه نشان داد که از روز سه‌شنبه دوم تیرماه حدود ۵۷ کشتی حامل حدود هزار و صد دریانورد، در طرح تخلیه سازمان ملل متحد، از تنگه هرمز عبور کرده‌اند.
+
+🔸بر اساس این اطلاعات، ۱۲ کشتی در روز سه‌شنبه، ۳۲ کشتی در روز چهارشنبه و ۱۳ کشتی در روز پنج‌شنبه از آبراه حیاتی تنگه هرمز گذشتند.
+
+🔸سازمان بین‌المللی دریانوردی، وابسته به سازمان ملل، روز چهارشنبه سوم تیر اعلام کرده بود کشتی‌ها تحت طرح جدید این سازمان برای تخلیه شناورهایی که به دلیل درگیری‌ها در تنگه هرمز گرفتار شده بودند، عبور از این آبراه را آغاز کرده‌اند.
+
+🔸این طرح که نهایی شدن آن ماه‌ها زمان برده است، به صدها کشتی و حدود ۱۱ هزار دریانورد گرفتار در خلیج فارس امکان خواهد داد از تنگه هرمز عبور کنند.
+
+🔸این کشتی‌ها در پی آغاز جنگ آمریکا و اسرائیل علیه ایران در اسفند سال گذشته و اقدام ایران به بستن تنگه هرمز در بخش غربی این آبراه گرفتار شده بودند.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158743
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درخواست اضافه‌بودجهٔ ۸۸ میلیاردی دولت آمریکا با محوریت جنگ و «برنامه هسته‌ای ایران»
+
+🔸دولت آمریکا از کنگرهٔ این کشور خواست بودجه‌ای اضافی به مبلغ نزدیک به ۸۸ میلیارد دلار را تصویب کند که عمدتاً برای تأمین «نیازهای ضروری» مرتبط با جنگ آمریکا و ایران است.
+
+🔸بر اساس گزارش‌های منتشرشده در این باره، بیش از ۶۷ میلیارد دلار از این اضافه‌بودجهٔ درخواستی به وزارت دفاع این کشور مربوط می‌شود که از جمله شامل ۲۱ میلیارد دلار مربوط به جایگزینی مهمات مصرف‌شده، تقویت صنایع نظامی و کمک به قابلیت‌های حساس ارتش آمریکا است.
+
+🔸دفتر مدیریت و بودجهٔ کاخ سفید روز چهارشنبه درخواست رسمی این بودجه را در نامه‌ای به مایک جانسون، رئیس مجلس نمایندگان، ارسال کرد.
+
+🔸در این نامه، با اشاره به جنگ ایران، آمده است: «بخش عمدهٔ این درخواست به نیازهای فوری مربوط به عملیات "خشم حماسی" اختصاص خواهد یافت.»
+
+🔸این درخواست از جمله شامل حدود ۳۰۰ میلیون دلار برای تقویت امنیت سفارتخانه‌ها و مراکز دیپلماتیک ایالات متحده در خاورمیانه و جنوب آسیا، پس از حمله به برخی از آن‌ها در اوایل جنگ، است.
+
+🔸 گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 158742
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ادیب قربانی، آهنگساز و موسیقی‌دان، اثر تازه‌ای به نام «سرو جوان» به یاد کشته‌شدگان دی‌ماه منتشر کرده که با شعری از پویان مقدسی و اجرای جمعی از هنرمندان داخل ایران ضبط شده است.
+
+🔸آقای قربانی در مورد این اثر نوشته است: «به یاد کشته‌شدگان دی‌ماه و تقدیم به خانواده‌های داغدار این جاویدنامان. این سرود قبل از جنگ ساخته و آماده انتشار شده بود. توسط جمعی از هنرمندان بی‌نام در ایران ضبط شد، ولی انتشارش تا امروز به تعویق افتاد.»
+
+🔸پیش از این نیز ادیب قربانی با همکاری جمعی از دانشجویان موسیقی، سرودهایی چون «راه کوچه»، «قسم» و «سرود نافرمان» را منتشر کرده‌ بود.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 23262
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شاهزاده رضا پهلوی:
+
+هرگز برای من پیش نیامده که برای یک پست یا مقام کاندید شوم. اما من به طور منحصر به فردی در جایگاهی هستم که می‌توانم عامل تغییر و گذار باشم. به بنده اعتماد شده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23261
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسماعیل قاآنی :
+
+اسرائیلی‌ها باید سراسر لبنان را ترک کنند،. اگر آن‌ها امروز با اختیار خودشان عقب‌نشینی نکنند، فردا با خواری و شکست ناگزیر به فرار خواهند شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23260
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23260_1782388392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+‌واو! سنا همین الان رأی خود در مورد ایران را از ۵۰-۴۸ مخالف، به ۵۰-۴۷ موافق تغییر داد. رند پال و بیل کسیدی رأی خود را تغییر دادند. با تشکر از رهبر اکثریت جان تون، لیندسی گراهام، برنی مورنو و همگی. این رأی هشداری جدی به ایران است!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23259
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23259_1782388393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر خزانه‌داری آمریکا:
+
+لغو تحریم‌های نفتی ایران مثل دادن هویج به آنهاست.
+این یک هویج می‌باشد که ما همیشه می‌توانیم آن‌را پس بگیریم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23258
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23258_1782388394.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه اسرائیل:
+
+اسرائیل به آمریکا دستور داد که بیا و هواپیماهای سوخت‌رسان خودتو از فرودگاه بن‌گوریون خارج کن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23257
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23257_1782388395.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این هم پزشکیان در هیئت عزاداران تبریز.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23256
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23256_1782388396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## IranianMinds — post 23255
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23255_1782388398.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در هر صورت،موشعلی به چسعلی تبدیل شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23254
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_23254_1782388399.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هیئت عزاداری دیشب در الیگودرز.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23253
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖤عزاداری آمل برای جاویدنام ها با لباس سفید.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 23252
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_23252_1782388400.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖤عزاداری جلوی در خونه جاویدنام میلاد لواسانی.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 285013
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285013_1782388400.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نهاد کشتیرانی سازمان ملل: در سه روز گذشته ۵۷ کشتی با ۱۱۰۰ خدمه از تنگه‌هرمز عبور کردند
+
+بر اساس آمار منتشر شده از سوی سازمان بین‌المللی دریانوردی، وابسته به سازمان ملل،‌ طی سه روز گذشته در مجموع ۵۷ کشتی گرفتار شده در تنگه هرمز با حدود ۱۱۰۰ خدمه از تنگه هرمز عبور کردند.
+
+این نخستین آمار منتشر شده از سوی نهاد بین‌المللی دریانوردی سازمان ملل درباره این طرح است که از روز دوشنبه برای خارج کردن بیش از ۱۱ هزار دریانورد گرفتار در تنگه هرمز آغاز شده است.
+
+این کشتی‌ها و سرنشینان آن از زمان جنگ آمریکا و اسرائیل با ایران و محدود شدن رفت‌وآمد در تنگه هرمز در این منطقه سرگردان بوده‌اند.
+
+سازمان بین‌المللی دریانوردی گفته بود که عملیات خارج‌سازی این دریانوردان، در همکاری نزدیک با همه کشورهای منطقه و آمریکا خواهد بود.
+
+بر اساس آمار منتشر شده در صبح روز پنجشنبه ۲۵ ژوئن/ ۴ تیرماه، ۱۲ کشتی، روز چهارشنبه ۳۲ کشتی و روز سه‌شنبه ۱۳ کشتی از تنگه هرمز عبور کردند.
+
+📷Reuters
+
+تازه‌ترین تحولات را از لینک ⬇️ دنبال کنید.
+https://bbc.in/4vweKZW
+@BBCPersian
+</div>
+
+## BBCPersian — post 285012
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻روبیو: وضع عوارض در تنگه هرمز خطر هرج‌ومرج کامل در دیگر آبراه‌های جهان را دارد
+
+مارکو روبیو، وزیر خارجه آمریکا در بحرین است و امروز در نشست شورای همکاری خلیج فارس حاضر می شود.
+
+اینک آقای روبیو در سخنرانی این نشست، هشدار داد که وضع احتمالی عوارض از سوی ایران برای کشتی‌هایی که از تنگه هرمز عبور می‌کنند، به دیگر آبراه‌های جهان نیز گسترش خواهد یافت.
+
+وزیر خارجه آمریکا می‌گوید: «آبراه‌های بین‌المللی به هیچ کشور خاصی تعلق ندارند. این یک اصل بنیادین در جهان امروز است؛ اصلی که بدون آن، دنیا با هرج‌ومرج کامل مواجه خواهد شد.»
+
+آقای روبیو افزود: «اگر بپذیریم که می‌توان برای استفاده از یک آبراه بین‌المللی، صرفا به این دلیل که در نزدیکی قلمرو یک کشور قرار دارد، پول دریافت کرد، آن وقت این موضوع مانند یک بیماری واگیردار در سراسر جهان گسترش خواهد یافت.»
+@BBCPersian
+</div>
+
+## BBCPersian — post 285011
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻افت قیمت نفت به سطح پیش از جنگ
+
+قیمت نفت خام به سطح قبل از جنگ کاهش یافته و حدود ۷۲ دلار معامله می‌شود.
+
+در طول درگیری نظامی آمریکا و اسرائیل با ایران، هر بشکه نفت خام برنت در مقطعی به بیش از ۱۱۰ دلار رسید.
+
+با اعلام توافق ۶۰ روزه آتش‌بس میان آمریکا و ایران که هفته گذشته در سوئیس صورت گرفت، قیمت نفت به سرعت کاهش یافته است.
+
+از سوی دیگر نفتکش‌های گرفتار در تنگه هرمز، اکنون دوباره در حال حرکت هستند.
+
+برخی از ناظران صنعت نفت می‌گویند که احتمال دارد قیمت نفت خام بیشتر از این کاهش یابد.
+@BBCPersian
+</div>
+
+## BBCPersian — post 285010
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بحرین از ایجاد یک مسیر تازه از سوی عمان در تنگه هرمز استقبال کرد
+
+بحرین که یکی از کشورهای حاشیه خلیج فارس است، از ایجاد یک مسیر تازه در تنگه هرمز از سوی عمان استقبال کرده است.
+
+عبداللطیف بن راشد زیانی، وزیر خارجه بحرین، امروز استقبال کشورش از این مسیر تازه را اعلام کرد.
+
+وزیر خارجه بحرین این اظهارات را در حالی بیان کرد که ریاست نشست شورای همکاری خلیج فارس را در جریان سفر مارکو روبیو، وزیر خارجه آمریکا، به این کشور بر عهده دارد.
+
+عمان به تازگی از ایجاد یک مسیر امن برای عبور کشتی‌ها از تنگه هرمزخبر داد اما نیروی دریایی سپاه پاسداران امروز در بیانیه‌ای هشدار داد که «تنها مسیر مجاز برای عبور از تنگه هرمز همان مسیر های اعلام شده از طرف جمهوری اسلامی ایران است.»
+
+در بیانیه سپاه گفته شده که «بدون اطلاع و هماهنگی با جمهوری اسلامی ایران از طرف برخی مراجع مسیر جدیدی برای تردد کشتی‌ها در تنگه هرمز اعلام شده که این مسیر غیر قابل قبول و کاملاً خطرناک است.»
+
+تنگه هرمز میان دو کشور ایران عمان قرار دارد.
+https://bbc.in/4vvg1AJ
+@BBCPersian
+</div>
+
+## BBCPersian — post 285009
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_285009_1782388400.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دو زلزله متوالی شدید در ونزوئلا رخ داده که دست‌کم ۳۲ کشته و بیش از ۷۰۰ زخمی بر جای گذاشته است. بزرگی این زمین‌لرزه‌ها ۷/۲ و ۷/۵ اعلام شده و لرزش آن‌ها تا بوگوتا، پایتخت کلمبیا، یعنی بیش از ۱۵۰۰ کیلومتر دورتر هم احساس شده است.
+
+فرودگاه اصلی شهر به‌شدت آسیب دیده و تعطیل شده است. در کاراکاس، پایتخت ونزوئلا، چندین ساختمان فروریخته و بعضی از برج‌های مسکونی کاملا ویران شده‌اند.
+
+گروه‌های امداد و داوطلبان همچنان در تلاش‌ هستند تا افراد گرفتار زیر آوار را نجات دهند. سازمان زمین‌شناسی آمریکا هشدار داده که احتمال افزایش تعداد قربانیان وجود دارد.
+
+دلسی رودریگز، رئیس‌جمهور موقت ونزوئلا، در این کشور وضعیت اضطراری اعلام کرده است.
+
+https://bbc.in/4vFonpl
+@BBCPersian
+</div>
+
+## BBCPersian — post 285008
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285008_1782388402.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بقا صادق‌اف‌، کارگردان سرشناس تاجیک، شب گذشته در ۸۵سالگی در آلمان درگذشت.
+
+او در سال ۱۹۹۳ از تاجیکستان به ازبکستان مهاجرت کرد و سال پیش از آن‌جا راهی آلمان شد.
+
+این کارگردان تاجیک از سال ۱۹۶۷ تا ۱۹۹۳در «تاجیک‌فیلم» فعالیت داشت.
+
+فیلم‌های «گردباد»، «بخارای شریف»، «جاسوس»، «جزیره» و مستندهای «اول بودن دشوار است» و « آدونیس ۱۴» از جمله آثار او است. برخی از این فیلم‌ها جوایز جشنواره‌های بین‌المللی را نیز از آن خود کرده‌اند.
+
+بقا صادق‌اف عضو اتحادیه سینماگران اتحاد جماهیر شوروی، برنده جایزه دولتی تاجیکستان به نام ابوعبدالله رودکی و هنرمند شایسته تاجیکستان بود.
+
+به گفته بستگانش، مراسم تشییع و خاکسپاری این کارگردان در آلمان برگزار خواهد شد.
+
+
+📷Muhiddin Alempour
+@BBCPersian
+</div>
+
+## BBCPersian — post 285007
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285007_1782388403.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اظهارات یکی از مقام‌های وزارت خارجه هند مبنی بر اینکه داشتن گذرنامه این کشور به‌تنهایی مدرک اثبات شهروندی نیست، جنجال گسترده‌ای به پا کرده است.
+
+این اظهارات با محکومیت گسترده روبه‌رو شده و منتقدان می‌گویند که چنین موضعی می‌تواند اعتبار گذرنامه هند را به‌عنوان سند هویت و تابعیت زیر سؤال ببرد.
+
+دولت هند اما می‌گوید که گذرنامه هیچ‌گاه به‌تنهایی مدرک اثبات شهروندی نبوده و وزارت خارجه صرفا قوانین موجود را روشن‌تر بیان کرده است.
+
+این جنجال در حالی بالا گرفته که پیش‌تر گزارش‌هایی درباره احتمال محروم‌شدن میلیون‌ها نفر در هند از حق رأی، به دلیل ناتوانی در اثبات شهروندی، منتشر شده بود.
+@BBCPersian
+</div>
+
+## BBCPersian — post 285006
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_285006_1782388403.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻کاخ سفید از کنگره آمریکا خواسته است که ۸۷/۶ میلیارد دلار را برای به‌طور عمده «نیازهای فوری» مرتبط با جنگ علیه ایران تصویب کنند.
+
+این درخواست یک روز پس از قطعنامه‌ محکومیت اقدام نظامی دولت آمریکا است، که در کنگره تصویب شد.
+
+کاخ سفید اعلام کرد که ۶۷ میلیارد دلار از این بودجه برای وزارت دفاع است که ۲۱ میلیارد دلار برای مهمات، ۱۷/۳ میلیارد دلار برای هزینه‌های عملیاتی و ۱۲/۱ میلیارد دلار برای برنامه‌های محرمانه را شامل می‌شود.
+
+بقیه مبلغ درخواستی برای اقدامات غیرمرتبط از جمله ۱۱ میلیارد دلار برای کشاورزان آمریکایی و ۱/۴ میلیارد دلار برای مقابله با شیوع ابولا در آفریقای مرکزی است.
+
+با این همه احتمال می‌رود که این پیشنهاد با توجه به عدم محبوبیت جنگ علیه ایران میان رای‌دهندگان و نزدیک شدن به انتخابات میان‌دوره‌ای نوامبر ۲۰۲۶، در کنگره با چالش سختی روبرو است.
+
+دفتر مدیریت و بودجه کاخ سفید درخواست رسمی این بودجه را روز چهارشنبه ۲۴ ژوئن (۳ تیر) در نامه‌ای به مایک جانسون، رئیس کنگره، ارسال کرد.
+ادامه از:
+https://bbc.in/4alZVRh
+📷AFP via Getty
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 393064
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری آغاز عملیات مشترک عمر ابن سعد و شمر ابن ذی الجوشن در حمایت از مردم کوفه @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393060
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 چالشی که جدیدا بین دخترا راه افتاده، وقتی چند سال پیش با حجاب بودن و الان حجابشون رو برداشتن.
+
+چقدر فرق میکنن!!!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393059
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393059_1782388404.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تراپی
+خاطره گویی میثم مطیعی از موشعلی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393058
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ بنی امیه:
+آژیر خطر در سراسر کاخ یزید به گوش می‌رسد
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393057
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یزید در تروث سوشال: کمک در راه است. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393056
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یزید در تروث سوشال: کمک در راه است.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393055
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری
+
+آغاز عملیات مشترک عمر ابن سعد و شمر ابن ذی الجوشن در حمایت از مردم کوفه
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری صدا سیما زد به سیم اخر:
+هنوز ۴ ماه نیست از قتل رهبرمون گذشته اونو پر پر کردن کلی جوون پر پر شدن بعد میاید میگید اگه کیفیت محصولات امریکا خوب باشه اونارو میخریم؟ به یه جاییتون برنمیخوره اینطور باهاتون رفتار میشه؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393053
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393053_1782388405.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوادارای بوسنی توی بازی دیشب تیمشون داخل جام‌جهانی. شیر یه ایران رو میتونن تامین کنن..
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393052
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_393052_1782388406.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشی ها چند سال پیش:
+
+شاه بی عرضه، پول نفت رو میداد به امریکا و باهاش آهن قراضه‌های (هواپیما و ماشین) امریکایی وارد میکرد او یه امریکاییه.
+
++حالا خودشون دارن پول میدن به امریکا که کاه و یونجه امریکایی وارد کنن :)
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393051
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393051_1782388406.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خدا مامانتو حفظ کنه انشالله 🤲🤲
+شما فقط وقتی حواسش نیست فیلم بگیرید ممنون
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 393050
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/393050" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#پیشبینی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## Dirty_Kids — post 393049
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_393049_1782388407.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱 روش‌های پرداخت موجود در ریتزوبت
+
+
+▪️ Hot Voucher
+
+▪️ Utopia Voucher
+
+▪️ Premium Voucher
+
+▪️ Crypto (کاملاً امن! 
+🔒)
+
+▪️Bank ( کارت به کارت )
+
+
+⚡️ بالا ترین نرخ خرید هات ووچر در تمامی وب سایت ها ریتزوبت میباشد
+🔥
+
+
+⚠️ نکته : برای دسترسی به ووچر و کارت به کارت ، واحد پول حسابتون در سایت رو ریالی بزارید
+
+
+🎯 دانلود اپلیکیشن بدون فیلتر اندروید
+
+🎯 لینک ورود به ریتزوبت
+
+💎 امکان شارژ حساب با کریپتو ، انواع ووچر و کارت بانکی. 
+✅
+
+🌍 ریتزوبت؛ همراه شب‌های فراموش ‌نشدنی جام جهانی 2026
+R4
+🆔 @RitzoBet_ir
+</div>
+
+## Hranews — post 113833
+
+<div align="center">
+  <img src="telegram/content/Hranews_113833_1782388407.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان فرانت لاین دیفندرز حکم صادره علیه جواد علیکردی را محکوم کرده و آن را مرتبط با فعالیت‌های مسالمت‌آمیز حقوق بشری او از جمله وکالت زندانیان سیاسی و پیگیری پرونده مرگ برادرش، خسرو علیکردی، دانست. این سازمان خواستار لغو فوری محکومیت، آزادی او و پایان فشارهای قضایی شد.
+
+فرانت لاین دیفندرز همچنین نسبت به قانون «تشدید مجازات جاسوسی» و تأثیر آن بر جرم‌انگاری فعالیت وکلا و مدافعان حقوق بشر ابراز نگرانی کرد و خواستار تحقیقات مستقل درباره مرگ خسرو علیکردی شد.
+
+هرانا پیشتر گزارش داد که جواد علیکردی به ۱۸ سال حبس، انفصال دائم از وکالت، تبعید و ممنوعیت خروج از کشور محکوم شده است.
+#خسرو_علیکردی #جواد_علیکردی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## manototv — post 106234
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرتضی مشفق کاظمی در مقالهٔ «قانون انتخابات» انتخابات ایران در سال ۱۳۰۳ را نه فقط مسئله‌ای حقوقی، بلکه بحرانی فرهنگی و سیاسی می‌دید؛ بحرانی برآمده از رأی‌فروشی، عوام‌فریبی، نفوذ ثروت و ناآگاهی عمومی.
+
+او هشدار می‌داد دموکراسی بدون آموزش و آگاهی، می‌تواند به ابزار فریب تبدیل شود؛ جایی که صندوق رأی به‌جای انتخاب آگاهانه، راه ورود معامله‌گران سیاسی به قدرت می‌شود.
+</div>
+
+## alonews — post 130165
+
+<div align="center">
+  <a href="telegram/content/alonews_130165_1782388407.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: فروش جنگنده‌های اف-۳۵ به ترکیه در دست بررسی است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130164
+
+<div align="center">
+  <a href="telegram/content/alonews_130164_1782388408.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر جنگ اسرائیل: جنگ اقتصادی علیه ایران یکی از جبهه‌های مهم نبرد برای امنیت اسرائیل است‌‌ و ما نباید به دستاوردهای خود در ایران بسنده کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130163
+
+<div align="center">
+  <a href="telegram/content/alonews_130163_1782388408.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مارکو روبیو در مورد ایران: آن‌ها افرادی در شاخه‌های سیاسی دارند که به نظر می‌رسد منعطف‌تر و مایل‌تر به همکاری با ما هستند.
+
+
+🔴 آن‌هایی که با آن‌ها مذاکره می‌کنیم، همین افراد هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130162
+
+<div align="center">
+  <a href="telegram/content/alonews_130162_1782388409.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پلیس آمریکا دو نفر را با کیفی پر از موادمخدر که روی آن نوشته شده بود "قطعاً این یه کیف پر از موادمخدر نیست" دستگیر کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130161
+
+<div align="center">
+  <a href="telegram/content/alonews_130161_1782388409.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو: با نیروهای نیابتی ایران صلح و ثباتی در منطقه وجود نخواهد داشت/ ایران با حمایت از حزب‌الله و حوثی‌ها در امور کشورها دخالت می‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130160
+
+<div align="center">
+  <a href="telegram/content/alonews_130160_1782388410.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو وزیرامور خارجه آمریکا: ما با کشورهای خلیج فارس در مورد موضوع ایجاد صندوق بازسازی برای ایران صحبت نکردیم‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130159
+
+<div align="center">
+  <a href="telegram/content/alonews_130159_1782388410.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر جنگ اسرائیل: جنگ اقتصادی علیه ایران از جبهه‌های مهم نبرد است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130158
+
+<div align="center">
+  <a href="telegram/content/alonews_130158_1782388410.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گفت‌وگوی تلفنی وزرای خارجه ایران و سلطنت عمان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130157
+
+<div align="center">
+  <a href="telegram/content/alonews_130157_1782388410.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تاج: برنامه‌های مرتبط با حمایت از همجنس‌گرایان در بازی با مصر لغو شد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130156
+
+<div align="center">
+  <a href="telegram/content/alonews_130156_1782388410.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر نفت: امنیت غرب آسیا و ثبات انرژی جهان تنها با خروج بیگانگان از منطقه تامین می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130155
+
+<div align="center">
+  <a href="telegram/content/alonews_130155_1782388411.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر امور خارجه عمان: ترتیبات آینده برای تنگه هرمز شامل دریافت عوارض عبور نخواهد بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130154
+
+<div align="center">
+  <a href="telegram/content/alonews_130154_1782388411.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس‌جمهور موقت ونزوئلا از افزایش شمار کشته‌های زلزله و سونامی در این کشور به ۱۶۴ نفر خبر داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130153
+
+<div align="center">
+  <a href="telegram/content/alonews_130153_1782388411.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اردوغان می‌خواست برای کمک به ایران وارد جنگ شود، من نگذاشتم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130152
+
+<div align="center">
+  <a href="telegram/content/alonews_130152_1782388413.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع العربیه: توافق اصولی بین لبنان و اسرائیل بر سر «مناطق نمونه»
+
+
+🔴انتظار می‌رود امروز پس از دستیابی لبنان و اسرائیل به پیش‌نویس پیشرفته، «اعلام تمایل» صورت گیرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130151
+
+<div align="center">
+  <a href="telegram/content/alonews_130151_1782388413.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سرویس اطلاعات خارجی روسیه اعلام کرد که غرب به اشتباه خویشتن‌داری روسیه را به عنوان ضعف تلقی می‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130150
+
+<div align="center">
+  <a href="telegram/content/alonews_130150_1782388413.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حدود ۷۰ کشتی در ۳۶ ساعت گذشته از تنگه هرمز عبور کرده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130149
+
+<div align="center">
+  <a href="telegram/content/alonews_130149_1782388413.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پلاکارد دیده‌شده در یکی از تجمعات و حمله به مذاکره‌کنندگان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130148
+
+<div align="center">
+  <a href="telegram/content/alonews_130148_1782388413.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تاج: برنامه‌های مرتبط با حمایت از همجنس‌گرایان در بازی با مصر لغو شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130147
+
+<div align="center">
+  <a href="telegram/content/alonews_130147_1782388413.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روبیو: امیدوارم تهران رفاه مردم خود را در اولویت قرار دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 130146
+
+<div align="center">
+  <a href="telegram/content/alonews_130146_1782388414.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پراید صفر ۱.۲ میلیارد تومان!
+
+
+🔴پراید با وجود اینکه از خط تولید خارج شد اما همچنان نمونه‌های صفر کیلومتر آن در بازار یافت می‌شود.
+
+
+🔴در برخی موارد نمونه‌های صفر این خودرو تا قیمت ۱.۲ میلیارد تومان آگهی شده است.
+
+
+🔴اگر یک کارگر با حقوق پایه ۱۶ میلیون تومان بخواهد این خودرو را بخرد باید حدود ۷۵ ماه پس انداز داشته باشد.
+
+
+🔴آنطور که به نظر می‌رسد خرید یک خودرو از رده خارج مثل پراید هم برای بسیاری حالا تبدیل به آرزو شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/04/04 12:44
 ---
 
