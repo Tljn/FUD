@@ -7,6 +7,846 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/04/04 05:48
+---
+
+## VahidOOnLine — post 247229
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247229_1782353928.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در سخنرانی خود در واشینگتن دی‌سی با دفاع از حمله آمریکا به جمهوری اسلامی گفت جهان اکنون امن‌تر شده و برنامه هسته‌ای ایران برای همیشه متوقف خواهد ماند. او همچنین گفت توان نظامی جمهوری اسلامی به‌شدت تضعیف شده و خاورمیانه در مسیر صلح قرار گرفته است.
+
+ترامپ گفت: «از زمان حمله آمریکا به جمهوری اسلامی، جهان جای امن‌تری شده است. سلاح هسته‌ای برای مدتی بسیار طولانی، در واقع برای همیشه، از ایران دور خواهد ماند.»
+
+او افزود: «به لطف قدرت و مهارت نیروهای مسلح آمریکا، امروز جمهوری اسلامی دیگر نیروی دریایی، نیروی هوایی، توان پدافند هوایی، پرتابگرهای موشکی یا توان تولید ندارد و رهبری آن نابود شده است.»
+
+ترامپ همچنین گفت: «برای نخستین بار در سه هزار سال، سرانجام قرار است در خاورمیانه صلح برقرار شود. ما در خاورمیانه صلح خواهیم داشت.»
+
+او در پایان گفت: «از زمان توافق با جمهوری اسلامی، بازار سهام و حساب‌های بازنشستگی شما به‌شدت رشد کرده‌اند، قیمت نفت به‌طور چشمگیری کاهش یافته و به‌زودی قیمت هر گالن بنزین به ۲ دلار و ۵۰ سنت و حتی کمتر از آن خواهد رسید.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247228
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️چارلز سوم، پادشاه بریتانیا، چهارشنبه سوم تیرماه، با اعضای تیم کریکت زنان پناهجوی افغانستان در کاخ کلارنس در لندن دیدار کرد و در جریان این دیدار، یک چوب کریکت تزیین‌شده و یک پیراهن صورتی امضاشده از آنان هدیه گرفت.
+به گزارش رویترز، تیم کریکت زنان پناهجوی افغانستان که اکنون در استرالیا مستقر است، برای برگزاری تور تابستانی خود به بریتانیا سفر کرده و قرار است چند مسابقه کریکت بیست‌اور برگزار کند. اعضای این تیم همچنین ۱۴ تیرماه در دیدار نهایی جام جهانی کریکت بیست‌اور حضور خواهند یافت.
+این تیم همچنین ششم تیرماه در ورزشگاه تاریخی «فنرز» کمبریج، در دیداری دوستانه به مصاف تیم زنان باشگاه کریکت دانشگاه کمبریج خواهد رفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247227
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ویدیوی رسیده به ایندیپندنت فارسی، روز چهارشنبه سوم تیرماه، مادر جاویدنام علی ایازی، فوتبالیست کشته‌شده در اعتراضات ملی دی‌ماه ۱۴۰۴، را در مراسم عزاداری تاسوعا در شهرضای اصفهان نشان می‌دهد؛ او با در دست داشتن تصویر فرزندش در این مراسم حضور یافته است.
+جاویدنام علی ایازی، فوتبالیست ۱۹ ساله که سابقه بازی در تیم‌های پایه و امیدهای سپاهان اصفهان را داشت، پنجشنبه شب ۱۸ دی‌ماه ۱۴۰۴، در جریان اعتراضات ملی ایرانیان، در خیابان بزرگمهر اصفهان بر اثر شلیک گلوله جنگی نیروهای سرکوبگر جمهوری اسلامی کشته شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247226
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247226_1782353929.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز گزارش داد مارکو روبیو، وزیر خارجه آمریکا، در سفر به کویت به کشورهای خلیج فارس اطمینان داد که واشینگتن در مذاکرات با جمهوری اسلامی برای دستیابی به توافق نهایی درباره جنگ خاورمیانه، منافع و امنیت آن‌ها را در نظر خواهد گرفت.
+
+روبیو گفت آمریکا در مذاکرات با تهران «کاملا با شرکای خود در خلیج فارس هماهنگ» خواهد بود و آن‌ها را در جریان تصمیم‌های مرتبط قرار می‌دهد. او افزود: «واشینگتن کاری نخواهد کرد که امنیت متحدانش را تضعیف کند.»
+
+این اظهارات در حالی مطرح شد که دونالد ترامپ، رییس‌جمهوری آمریکا، در دیدار با مارک روته، دبیرکل ناتو، گفت مذاکرات آمریکا با جمهوری اسلامی «خیلی خوب» پیش می‌رود.
+
+وزیر خارجه آمریکا همچنین بر حفظ عبور آزاد کشتی‌ها از تنگه هرمز بدون دریافت عوارض تاکید کرد و گفت هیچ کشوری را نمی‌شناسد که از دریافت عوارض برای استفاده از این آبراه حمایت کند.
+
+ترامپ نیز دریافت هرگونه هزینه از کشتی‌های عبوری از تنگه هرمز را «غیرقابل قبول» خوانده است. در مقابل، جمهوری اسلامی اعلام کرده است قصد دارد همراه با عمان کنترل تنگه هرمز را حفظ کند و برای عبور کشتی‌ها آنچه را «هزینه خدمات دریایی» می‌خواند، دریافت کند
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247225
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247225_1782353930.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در یک سخنرانی در واشینگتن دی‌سی گفت: «به دستاوردی رسیدیم که هیچ رییس‌جمهوری پیش از این نتوانسته بود به آن دست یابد. جمهوری اسلامی هرگز به سلاح هسته‌ای دست نخواهد یافت. این پرونده تمام شده است. و این دستاورد به لطف قدرت و مهارت نیروهای مسلح آمریکا حاصل شد.»
+ترامپ گفت: «هفته گذشته، ما توافقی تاریخی برای پایان دادن به درگیری با ایران امضا کردیم، تنگه هرمز را به‌طور کامل برای عبور و مرور باز کردیم و به دستاوردی رسیدیم که هیچ رییس‌جمهوری پیش از این نتوانسته بود به آن دست یابد.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247223
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247223_1782353931.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، قرار است در کاخ سفید با مدیران شرکت‌های بزرگ تولیدکننده مهمات و تسلیحات دیدار کند. این نشست با هدف افزایش تولید جنگ‌افزارها پس از کاهش ذخایر نظامی آمریکا در جنگ با جمهوری اسلامی برگزار می‌شود.
+به گزارش رویترز، دولت ترامپ از پیمانکاران صنایع دفاعی خواسته است تولید موشک‌ها و سامانه‌های پدافندی را به سرعت افزایش دهند. همزمان، وزارت دفاع آمریکا قراردادی تا سقف ۳۵ میلیارد دلار با شرکت لاکهید مارتین برای افزایش تولید رهگیرهای سامانه تاد امضا کرده است.
+رویترز گزارش داد توافق‌های اولیه دولت آمریکا با شرکت‌های دفاعی شامل سه برابر شدن تولید رهگیرهای پاتریوت، چهار برابر شدن تولید رهگیرهای تاد و افزایش تولید موشک‌های تاماهاوک و امرام است. اجرای این برنامه‌ها به تصویب بودجه از سوی کنگره وابسته است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247222
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️۲ زمین‌لرزه قدرتمند به بزرگی ۷,۱ و ۷,۵، روز چهارشنبه ۳ تیرماه، مناطق غربی کاراکاس، پایتخت ونزوئلا، را لرزاند و موجب فروریختن شماری از ساختمان‌ها و وارد آمدن خسارت‌های گسترده شد.
+به گزارش رویترز، سازمان زمین‌شناسی آمریکا هشدار داد که این زمین‌لرزه‌ها به احتمال زیاد تلفات انسانی و خسارت‌های گسترده‌ای بر جای گذاشته‌اند و برآورد اولیه این نهاد، شمار جان‌باختگان را بین ۱۰ هزار تا ۱۰۰ هزار نفر تخمین می‌زند.
+مقام‌های ونزوئلا تا زمان انتشار این خبر آمار رسمی از کشته‌ها و مجروحان منتشر نکرده‌اند، اما وزیر کشور این کشور از فروریختن ساختمان‌ها و منازل مسکونی در کاراکاس خبر داد. تصاویر منتشرشده نیز عملیات امداد و نجات در میان آوار را نشان می‌دهد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247221
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247221_1782353932.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ماجد الانصاری، سخنگوی وزارت خارجه قطر، چهارشنبه سوم تیرماه در گفتگو با «العربیه» اعلام کرد تیم‌های فنی کار روی جزئیات مربوط به توافق میان ایالات متحده و ایران را آغاز کرده‌اند.
+
+سخنگوی وزارت خارجه قطر تاکید کرد امنیت تنگه هرمز و ثبات عرضه انرژی مسئولیتی مشترک است و بر ضرورت حفظ امنیت کشتیرانی در منطقه تاکید کرد. او همچنین گفت کشورهای خلیج فارس موضعی متحد در مخالفت با اعمال عوارض بر عبور از تنگه هرمز اتخاذ کرده‌اند.
+
+الانصاری افزود هماهنگی میان کشورهای عضو شورای همکاری خلیج فارس همچنان در بالاترین سطوح ادامه دارد و گفتگوی منطقه‌ای باید بر پایه اصول حسن همجواری استوار باشد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247220
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_247220_1782353933.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زمین‌لرزه‌ای شدید به بزرگی ۷.۱ بعدازظهر چهارشنبه در غرب کاراکاس، پایتخت ونزوئلا، رخ داد و لرزش آن در کلمبیا نیز احساس شد. ساکنان کاراکاس به خیابان‌ها گریختند و گزارش‌ها از خسارت به ساختمان‌ها و اختلال در برق و اینترنت حکایت دارد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 247219
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_247219_1782353935.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم ملی فوتبال برزیل با درخشش وینیسیوس جونیور، موفق شد با نتیجه ۳ بر صفر اسکاتلند را شکست دهد و به عنوان صدرنشین گروه سوم (C) با اقتدار راهی مرحله حذفی جام جهانی ۲۰۲۶ شود. در این مسابقه که در میامی برگزار شد، مهاجم پرانرژی رئال مادرید در دقیقه هفتم از اشتباه خط دفاعی اسکاتلند استفاده کرد و گل اول را به ثمر رساند. او در وقت‌های تلف‌شده نیمه اول نیز با ضربه سر دبل خود را کامل کرد تا در نهایت ماتئوس کُنیا در دقیقه ۶۰ گل سوم سلسائو را وارد دروازه حریف کند.
+این دیدار متمایز علاوه بر صعود مقتدرانه برزیل، با بازگشت نیمار به ترکیب این تیم پس از غیبتی طولانی همراه بود. با توجه به پیروزی ۴ بر ۲ مراکش مقابل هائیتی در بازی دیگر این گروه، برزیل به عنوان صدرنشین راهی هیوستون شد تا روز دوشنبه آینده به مصاف یکی از تیم‌های هلند، ژاپن یا سوئد برود. در مقابل، اسکاتلند با این شکست چشم‌انتظار نتایج سایر گروه‌ها ماند تا شاید بتواند به عنوان یکی از هشت تیم برتر رده سومی راهی مرحله بعد شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 343393
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+🇺🇸 WATCH: American airpower takes to the skies as the F-35s fly over Freedom 250.
+</div>
+
+## FoxNewsTwitter — post 343392
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343392_1782353936.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump rallies the nation toward a unified, historic destiny, declaring that the country is bound for an unmatched future.
+
+"This is our history, and this is the destiny of America to be the greatest, most incredible country ever to grace the earth.”
+
+“We are one people, one nation, marching into one magnificent future under our great American flag that we love and respect so much."
+</div>
+
+## FoxNewsTwitter — post 343391
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+🇺🇸 WATCH: American airpower takes to the skies as the F-16 Viper Demo Team flies over Freedom 250.
+</div>
+
+## FoxNewsTwitter — post 343390
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343390_1782353938.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: President Trump draws a direct line between the patriots of 1776 and his administration's fight against the political establishment.
+
+“We have reclaimed our sovereignty, regained our liberty, restored our prosperity, and we have saved our country in all things."
+
+"We are once again putting a thing called America first."
+</div>
+
+## FoxNewsTwitter — post 343389
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_343389_1782353941.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+🇺🇸 MUST WATCH: America's iconic fighter jets and bombers roar overhead during the Freedom 250 kickoff celebration.
+
+The flyovers showcased U.S. military strength and America's freedom as thousands looked to the sky in awe, including the B-2 Spirit stealth bomber.
+</div>
+
+## FoxNewsTwitter — post 343388
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343388_1782353941.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+President Trump breaks into his signature dance as the U.S. Marine Band plays "Y.M.C.A." at the conclusion of the Great American State Fair kickoff on the National Mall.
+
+The event marked the start of the weeks-long America 250 celebration, honoring the nation's upcoming 250th anniversary with a focus on patriotism, history and national unity.
+</div>
+
+## FoxNewsTwitter — post 343387
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343387_1782353944.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump announces the creation of the "National Garden of American Heroes" in West Potomac Park, a massive new monument dedicated to the country's legacy. The site is set to feature hundreds of statues celebrating the greatest figures in American history.
+
+"In West Potomac Park, we are creating the National Garden of American Heroes, featuring 250 or more statues of the greatest Americans who have ever lived."
+
+"And next week at Freedom Plaza, we will unveil the spirit of 76 exhibition honoring the heroes and martyrs of the American Revolution."
+</div>
+
+## FoxNewsTwitter — post 343386
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343386_1782353945.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump delivers a powerful tribute to the founding of America, honoring the “eternal truths” laid out by the Founding Fathers in Philadelphia..
+
+"In 1776, our founding fathers met in Philadelphia and changed the world forever and ever with a thing called the Declaration of Independence.
+
+“They proclaim the eternal truths that we are endowed by our creator with the rights to life, liberty, and the pursuit of happiness we all made.”
+
+“And you know that free and equal by the hand of Almighty God. Those timeless American principles did not just win a revolution, but they built us into the greatest, strongest, and most exceptional nation the world has ever known."
+</div>
+
+## FoxNewsTwitter — post 343385
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343385_1782353948.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+🇺🇸 The B-2 Spirit bomber lit up the skies over the Great American State Fair during a flyover in a moment to remember at the Freedom 250 event.
+</div>
+
+## FoxNewsTwitter — post 343384
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343384_1782353951.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+🇺🇸 The iconic B-2 Spirit stealth bomber performs a patriotic flyover to mark the kick-off of the Great American State Fair.
+
+The long-range stealth bomber, which was used during Operation Epic Fury, made a dramatic pass over the celebration, drawing eyes skyward.
+
+It's one of the U.S. Air Force's most recognizable aircraft and a centerpiece of America's long-range strike capability.
+</div>
+
+## FoxNewsTwitter — post 343383
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343383_1782353954.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump walks out at the Great American State Fair as Freedom250 celebrates America's milestone 250th anniversary.
+</div>
+
+## FoxNewsTwitter — post 343382
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343382_1782353958.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"What gives us purpose? We should look for love, get married and have lots of kids!"
+
+Transportation Secretary Sean Duffy encouraged the crowd to embrace family life as he spoke at President Trump's Great American State Fair kickoff on the National Mall.
+
+Duffy delivered the message during the opening celebration for the America 250 festivities, a weeks-long event honoring the nation's 250th anniversary with a focus on patriotism, history and national unity.
+</div>
+
+## FoxNewsTwitter — post 343381
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343381_1782353961.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: Honor guard lays wreaths in a solemn tribute honoring the courage, service, and sacrifice of America's fallen heroes.
+</div>
+
+## FoxNewsTwitter — post 343380
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_343380_1782353964.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The iconic B-2 Spirit stealth bomber flies overhead during the kick-off to the Great American State Fair. ✈️🇺🇸
+</div>
+
+## FoxNewsTwitter — post 343376
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Crowds gather on the National Mall as President Trump kicks off the Great American State Fair ahead of America's 250th anniversary.
+
+The weeks-long event, which runs through July 10, celebrates patriotism, American history and national unity as the country prepares to mark 250 years of independence.
+
+Thousands turned out for the opening festivities and a rally featuring President Trump as the nation begins commemorating the milestone.
+</div>
+
+## pm_afshaa — post 94778
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:یک هفته ایران عملاً تمام شده بود. در یک ساعت، ونزوئلا تمام شد.
+
+و فکر می‌کنم چیزهای دیگری هم در راه داریم، اما نمی‌خواهیم زیاده‌روی کنیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94777
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:تحت رهبری ما، آمریکا همچنین کشوری خواهد بود که جرات می‌کند دوباره رویاپردازی کند و بسازد. ما می‌خواهیم دوباره بسازیم و دوباره رویاپردازی کنیم
+
+رویای آمریکایی دوباره زنده است. این چیزی است که هیچ‌کس فکر نمی‌کرد در چهار سال گذشته ناکارآمدی (دولت بایدن) بگوید
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94776
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:دنیا جای بسیار امن‌تریه ما مجبور بودیم آن سفر کوتاه به ایران را انجام دهیم تا کاری را که کردیم، انجام دهیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94775
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:به لطف قدرت و مهارت نیروهای مسلح ایالات متحده، امروز ایران نیروی دریایی، نیروی هوایی، ظرفیت ضد هوایی، پرتاب موشک، تولیدی ندارد و رهبری آن نابود شده
+
+برای اولین بار در 3000 سال، ما بالاخره صلح را در خاورمیانه خواهیم داشت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94774
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:هفته گذشته، ما یک توافق تاریخی برای پایان دادن به درگیری با ایران امضا کردیم، تنگه هرمز را کاملاً باز کردیم و کاری را انجام دادیم که هیچ رئیس‌جمهوری قبلاً نتوانسته بود انجام دهد.
+
+ایران هرگز سلاح هسته‌ای نخواهد داشت. این موضوع تمام شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:با خوشحالی اعلام می‌کنم که آمریکا بازگشته،ما مورد احترام همه هستیم. دیگر هیچ‌کس به ما نمی‌خندد. دو سال پیش به ما می‌خندیدند. حالا ما در هر جای دنیا بیشترین احترام را داریم. دو سال پیش ما یک شوخی بودیم. حالا دیگر شوخی نیستیم 
+💧 Rainbet.com the #1 Non…
+</div>
+
+## pm_afshaa — post 94772
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:با خوشحالی اعلام می‌کنم که آمریکا بازگشته،ما مورد احترام همه هستیم. دیگر هیچ‌کس به ما نمی‌خندد. دو سال پیش به ما می‌خندیدند. حالا ما در هر جای دنیا بیشترین احترام را داریم.
+
+دو سال پیش ما یک شوخی بودیم. حالا دیگر شوخی نیستیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94771
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حملات پهپادی اوکراین به مسکو
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94770
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیروگاه حرارتی بالاکلاوا در کریمه توسط پهپادهای اوکراینی مورد حمله قرار گرفت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94766
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94766_1782353967.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت اخر زمانی ونزوئلا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94765
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94765_1782353968.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خرابی های گسترده در کاراکاس
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 94761
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_94761_1782353971.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زلزله 7.5 ریشتری در ونزوئلا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 344234
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344234_1782353974.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در سخنرانی خود در واشینگتن دی‌سی با دفاع از حمله آمریکا به جمهوری اسلامی گفت جهان اکنون امن‌تر شده و برنامه هسته‌ای ایران برای همیشه متوقف خواهد ماند. او همچنین گفت توان نظامی جمهوری اسلامی به‌شدت تضعیف شده و خاورمیانه در مسیر صلح قرار گرفته است.
+
+ترامپ گفت: «از زمان حمله آمریکا به جمهوری اسلامی، جهان جای امن‌تری شده است. سلاح هسته‌ای برای مدتی بسیار طولانی، در واقع برای همیشه، از ایران دور خواهد ماند.»
+
+او افزود: «به لطف قدرت و مهارت نیروهای مسلح آمریکا، امروز جمهوری اسلامی دیگر نیروی دریایی، نیروی هوایی، توان پدافند هوایی، پرتابگرهای موشکی یا توان تولید ندارد و رهبری آن نابود شده است.»
+
+ترامپ همچنین گفت: «برای نخستین بار در سه هزار سال، سرانجام قرار است در خاورمیانه صلح برقرار شود. ما در خاورمیانه صلح خواهیم داشت.»
+
+او در پایان گفت: «از زمان توافق با جمهوری اسلامی، بازار سهام و حساب‌های بازنشستگی شما به‌شدت رشد کرده‌اند، قیمت نفت به‌طور چشمگیری کاهش یافته و به‌زودی قیمت هر گالن بنزین به ۲ دلار و ۵۰ سنت و حتی کمتر از آن خواهد رسید.»
+https://iranintl.com/202606258770
+</div>
+
+## IranIntlTV — post 344233
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344233_1782353975.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نیمار جونیور، بهترین گل‌زن تاریخ برزیل، امشب با ورود به بازی برزیل-اسکاتلند به عنوان بازیکن جایگزین، برای چهارمین دوره پیاپی، در جام جهانی بازی کرد.
+
+🔹همچنین او پس از حدود سه سال، برای برزیل بازی می‌کند؛ آخرین بازی نیمار برای تیم ملی برزیل به اکتبر ۲۰۲۳ و دیدار مرحله مقدماتی جام جهانی مقابل اروگوئه بازمی‌گردد. آخرین تاثیر مستقیم او روی گل‌های برزیل نیز گلزنی برابر بولیوی در سپتامبر ۲۰۲۳ بود.
+
+🔹نیمار دو بازی نخست برزیل در جام جهانی ۲۰۲۶ را به دلیل مصدومیت از ناحیه ساق پا که ۲۷ اردیبهشت و در جریان بازی برای سانتوس دچار آن شد، از دست داد.
+
+🔹در ابتدا پیش‌بینی شده بود او دو تا سه هفته از میادین دور باشد، اما دیدار برزیل-اسکاتلند، تقریبا یک ماه پس از آخرین بازی او برگزار شد.
+
+🔹نیمار با ۷۹ گل، بهترین گلزن تاریخ تیم ملی برزیل است. در کشوری که مهاجمان بزرگی مانند روماریو، رونالدو و پله را به فوتبال جهان معرفی کرده، نیمار در صدر جدول گلزنان تاریخ تیم ملی قرار دارد.
+
+🔹او با حضور در جام‌های جهانی ۲۰۱۴ (برزیل)، ۲۰۱۸ (روسیه) ۲۰۲۲ (قطر) در مجموع ۸ گل برای تیم ملی برزیل به ثمر رساند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 344232
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344232_1782353976.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز گزارش داد مارکو روبیو، وزیر خارجه آمریکا، در سفر به کویت به کشورهای خلیج فارس اطمینان داد که واشینگتن در مذاکرات با جمهوری اسلامی برای دستیابی به توافق نهایی درباره جنگ خاورمیانه، منافع و امنیت آن‌ها را در نظر خواهد گرفت.
+
+روبیو گفت آمریکا در مذاکرات با تهران «کاملا با شرکای خود در خلیج فارس هماهنگ» خواهد بود و آن‌ها را در جریان تصمیم‌های مرتبط قرار می‌دهد. او افزود: «واشینگتن کاری نخواهد کرد که امنیت متحدانش را تضعیف کند.»
+
+این اظهارات در حالی مطرح شد که دونالد ترامپ، رییس‌جمهوری آمریکا، در دیدار با مارک روته، دبیرکل ناتو، گفت مذاکرات آمریکا با جمهوری اسلامی «خیلی خوب» پیش می‌رود.
+
+وزیر خارجه آمریکا همچنین بر حفظ عبور آزاد کشتی‌ها از تنگه هرمز بدون دریافت عوارض تاکید کرد و گفت هیچ کشوری را نمی‌شناسد که از دریافت عوارض برای استفاده از این آبراه حمایت کند.
+
+ترامپ نیز دریافت هرگونه هزینه از کشتی‌های عبوری از تنگه هرمز را «غیرقابل قبول» خوانده است. در مقابل، جمهوری اسلامی اعلام کرده است قصد دارد همراه با عمان کنترل تنگه هرمز را حفظ کند و برای عبور کشتی‌ها آنچه را «هزینه خدمات دریایی» می‌خواند، دریافت کند
+</div>
+
+## IranIntlTV — post 344231
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344231_1782353976.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در یک سخنرانی در واشینگتن دی‌سی گفت: «به دستاوردی رسیدیم که هیچ رییس‌جمهوری پیش از این نتوانسته بود به آن دست یابد. جمهوری اسلامی هرگز به سلاح هسته‌ای دست نخواهد یافت. این پرونده تمام شده است. و این دستاورد به لطف قدرت و مهارت نیروهای مسلح آمریکا حاصل شد.»
+ترامپ گفت: «هفته گذشته، ما توافقی تاریخی برای پایان دادن به درگیری با ایران امضا کردیم، تنگه هرمز را به‌طور کامل برای عبور و مرور باز کردیم و به دستاوردی رسیدیم که هیچ رییس‌جمهوری پیش از این نتوانسته بود به آن دست یابد.»
+
+https://iranintl.com/202606259386
+</div>
+
+## IranIntlTV — post 344230
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344230_1782353977.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در یک سخنرانی در واشینگتن دی‌سی گفت: «به دستاوردی رسیدیم که هیچ رییس‌جمهوری پیش از این نتوانسته بود به آن دست یابد. جمهوری اسلامی هرگز به سلاح هسته‌ای دست نخواهد یافت. این پرونده تمام شده است. و این دستاورد به لطف قدرت و مهارت نیروهای مسلح آمریکا حاصل شد.»
+ترامپ گفت: «هفته گذشته، ما توافقی تاریخی برای پایان دادن به درگیری با ایران امضا کردیم، تنگه هرمز را به‌طور کامل برای عبور و مرور باز کردیم و به دستاوردی رسیدیم که هیچ رییس‌جمهوری پیش از این نتوانسته بود به آن دست یابد.»
+
+https://iranintl.com/202606259386
+</div>
+
+## IranIntlTV — post 344229
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344229_1782353978.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، قرار است در کاخ سفید با مدیران شرکت‌های بزرگ تولیدکننده مهمات و تسلیحات دیدار کند. این نشست با هدف افزایش تولید جنگ‌افزارها پس از کاهش ذخایر نظامی آمریکا در جنگ با جمهوری اسلامی برگزار می‌شود.
+به گزارش رویترز، دولت ترامپ از پیمانکاران صنایع دفاعی خواسته است تولید موشک‌ها و سامانه‌های پدافندی را به سرعت افزایش دهند. همزمان، وزارت دفاع آمریکا قراردادی تا سقف ۳۵ میلیارد دلار با شرکت لاکهید مارتین برای افزایش تولید رهگیرهای سامانه تاد امضا کرده است.
+رویترز گزارش داد توافق‌های اولیه دولت آمریکا با شرکت‌های دفاعی شامل سه برابر شدن تولید رهگیرهای پاتریوت، چهار برابر شدن تولید رهگیرهای تاد و افزایش تولید موشک‌های تاماهاوک و امرام است. اجرای این برنامه‌ها به تصویب بودجه از سوی کنگره وابسته است.
+
+https://iranintl.com/202606245443
+</div>
+
+## IranIntlTV — post 344228
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_344228_1782353979.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زمین‌لرزه‌ای شدید به بزرگی ۷.۱ بعدازظهر چهارشنبه در غرب کاراکاس، پایتخت ونزوئلا، رخ داد و لرزش آن در کلمبیا نیز احساس شد. ساکنان کاراکاس به خیابان‌ها گریختند و گزارش‌ها از خسارت به ساختمان‌ها و اختلال در برق و اینترنت حکایت دارد.
+</div>
+
+## IranIntlTV — post 344227
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_344227_1782353981.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم‌های ملی فوتبال برزیل و مراکش با پیروزی بر اسکاتلند و هائیتی در سومین دیدار خود در جام جهانی ۲۰۲۶، هر دو با ۷ امتیاز، به عنوان تیم‌های اول و دوم گروه C مسابقات، به مرحله حذفی صعود کردند. اسکاتلند هم با سه امتیاز در رده سوم و هائیتی بدون امتیاز در رده چهارم قرار گرفتند.
+
+🔹در بازی برزیل-اسکاتلند، وینیسیوس جونیور با استفاده از یک پاس رو به عقب اشتباه از اسکات مک‌کنا، گل نخست برزیل را به ثمر رساند و سپس با یک ضربه سر، گل دوم خود را نیز وارد دروازه اسکاتلند کرد. ماتئوس کونیا نیز پس از حرکت زیبای برونو گیمارش، سومین گل برزیل را به ثمر رساند.
+
+🔹در دیگر دیدار مراکش، قهرمان آفریقا در ابتدای مسابقه برابر هائیتی دو بار از حریف عقب افتاد، اما در پایان نیمه نخست بازی را به تساوی کشاند. در نیمه دوم نیز گل‌های بازیکنان تعویضی، سفیان رحیمی و گسیم یاسین، پیروزی را برای مراکش رقم زد.
+
+🔹برزیل در مرحله یک‌سی‌ودوم نهایی به مصاف تیم دوم گروه F خواهد رفت که در حال حاضر ژاپن محتمل‌ترین گزینه برای این جایگاه است.
+
+🔹مراکش نیز با صدرنشین گروه F، که فعلا هلند محتمل‌ترین گزینه آن محسوب می‌شود، روبه‌رو خواهد شد.
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 221802
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221802_1782353982.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سیاتل؛ نگین شمال‌غرب آمریکا در انتظار ایران و مصر
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221801
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221801_1782353984.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رئيس جمهوری آمریکا، تصویری از پرواز روز چهارشنبه یک بمب‌افکن بی-۲ آمریکایی در آسمان واشنگتن را در شبکه اجتماعی ایکس بازنشر کرد. بمب‌افکن‌های بی-۲ در عملیات «چکش نیمه‌‌شب» علیه تاسیسات اتمی جمهوری اسلامی مورد استفاده قرار گرفتند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هفتصد میلیون دلار ارز دارو کجاست؟ فساد تنیده در نظام سلامت در ایران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221798
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دو زمین لرزه ۷.۲ و ۷.۵ ریشتری باعث خرابی‌های گسترده در ونزوئلا شد؛ بزرگترین زمین‌لرزه در این کشور از سال ۱۹۰۰
+
+◾️دو زمین‌لرزه بسیار شدید ونزوئلا از جمله پایتخت آن، کاراکاس را چهارشنبه ۳ تیر به‌لرزه در آورد و گزارش‌های اولیه از ریزش ساختمان‌ها و قطع برق حکایت دارند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8164680.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221797
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221797_1782353984.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️احمد خبیری؛ فوتبالیستی که تصویر خمینی را در دست نگرفت
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221796
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221796_1782353985.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئيس جمهوری آمریکا، روز چهارشنبه در سخنرانی افتتاحیه «نمایشگاه کشور بزرگ آمریکایی» گفت: «ما هرگز به جایگاهی که اکنون به آن رسیده‌ایم، نرسیده بودیم. این میراث ما است. این تاریخ ما است. و این سرنوشت آمریکا است که به بزرگ‌ترین و شگفت‌انگیزترین کشوری تبدیل شود که تاکنون بر روی زمین وجود داشته است.»
+او در این سخنرانی خطاب به حاضران گفت: «ما یک ملتیم و یک کشوریم که زیر پرچم با عظمت آمریکا، که آن را بسیار دوست داریم و به آن احترام می‌گذاریم، به سوی آینده‌ای باشکوه گام برمی‌داریم.»
+او گفت: «و امشب خود را برای ورود به دویست‌وپنجاهمین سال حیات کشورمان آماده می‌کنیم. ما بیش از هر زمان دیگری مصمم هستیم که این جملات را به یاد داشته باشیم؛ جملاتی که بارها شنیده‌اید:
+آمریکا را دوباره قدرتمند خواهیم کرد. آمریکا را دوباره ثروتمند خواهیم کرد. آمریکا را دوباره سالم‌ خواهیم کرد. آمریکا را دوباره نیرومند خواهیم کرد. آمریکا را دوباره سرافراز خواهیم کرد. آمریکا را دوباره امن خواهیم کرد. و آمریکا را دوباره عظمت خواهیم بخشید. بسیار متشکرم. زادروزت مبارک، آمریکا.»
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221795
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اعضای پارلمان اروپا: تعامل با طالبان و رژیم ایران باید مشروط به رعایت حقوق زنان باشد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221794
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221794_1782353985.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️صعود کانادا و سوئیس؛ پایان بازی با شکست ۲-۱ کانادا- گزارش آرش ارا
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221793
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ: به لطف نیروهای مسلح آمریکا رهبری جمهوری اسلامی نابود شده است
+
+◾️دونالد ترامپ، رئيس جمهوری آمریکا، چهارشنبه شب در مراسم افتتاحیه «نمایشگاه کشور بزرگ آمریکایی» در واشنگتن گفت: «هفته گذشته، ما یک توافق تاریخی امضا کردیم تا به درگیری با [حکومت] ایران پایان دهیم، تنگه هرمز را به‌طور کامل باز نگه داریم و کاری را انجام دهیم که هیچ رئیس‌جمهوری پیش از این نتوانسته بود انجام دهد.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8164677.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بیروت در دوراهی حاکمیت
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221791
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_221791_1782353987.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«نمایشگاه کشور بزرگ آمریکا» در شهر واشنگتن صبح پنجشنبه برای عموم مردم افتتاح خواهد شد.
+
+این نمایشگاه ۱۶ روزه موضوعات مختلف تاریخ ایالات متحده را برجسته می‌کند.
+
+دونالد ترامپ، رئيس‌جمهوری آمریکا، عصر چهارشنبه با سخنرانی خود این نمایشگاه را آغاز می‌کند.
+
+به نوشته هیل، هر روز از این نمایشگاه حول یک موضوع متفاوت خواهد بود تا سنت آمریکایی را برجسته کند و پیش‌بینی‌هایی در مورد ۲۵۰ سال آینده این کشور ارائه دهد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221790
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221790_1782353988.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ایران و مصر؛ بازی بزرگ در سایه مراسم دگرباشان جنسی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نمایشگاه کشور بزرگ آمریکایی؛ پرواز جنگنده‌ها در آسمان واشنگتن
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حکم اعدام برای بازیگر تئاتر؛ نگاهی به کارنامه سرکوب، ممنوعیت از کار و مرگ هنرمندان در زندان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221787
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221787_1782353989.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ونکوور در تب بازی کانادا و سوئیس؛ گزارش امیرعلی پیروزبخش
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 221786
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_221786_1782353991.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️فاطمه حقیقت جو در برنامه تفسیر خبر: تفاهم «بسیار خوبی» بین آمریکا و جمهوری اسلامی امضا شده است
+@FarsiVOA
+</div>
+
+## BBCPersian — post 284969
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سپاه پاسداران: عبور ایمن از تنگه هرمز فقط با هماهنگی با ما و مسیرهای اعلامی ایران ممکن است
+
+بنابر گزارش رسانه‌ها در ایران،‌ نیروی دریایی سپاه پاسداران با «اعلام مسیری جدید برای تردد کشتی‌ها در تنگه هرمز» تاکید کرده است «این مسیر غیر قابل قبول و کاملا خطرناک است.»
+
+بنابر اطلاعیه سپاه پاسداران: «تنها مسیر مجاز برای عبور از تنگه هرمز همان مسیرهای اعلام شده از طرف جمهوری اسلامی ایران» است و کشتی‌ها باید تنها از «طریق کانال ۱۶» و هماهنگی با نیروهای نظامی ایران اقدام کنند.
+
+روز گذشته عمان اعلام کرد برای تسهیل و تسریع در تخلیه تنگه هرمز یک مسیر دریایی جدید باز کرده است اما در اطلاعیه سپاه پاسداران صراحتا اشاره نشده است که منظور همین مسیر جدید است.
+@BBCPersian
+https://bbc.in/4oUR7be
+</div>
+
+## BBCPersian — post 284968
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دو زمین لرزه قدرتمند که اولی به بزرگی ۷/۱ و دومی ۷/۵ بزرگی داشت ونزوئلا را لرزانده و خسارات فراونی برجای گذاشته است.
+
+زلزله اول حدود ساعت ۶ عصر به وقت کاراکاس روی داد که اوج ترافیک و شلوغی پایتخت این کشور است.
+
+تصاویر مخابره شده حکایت از خسارات فراوان به ساختمان‌هاست.
+
+بر اساس ارزیابی سازمان زمین‌شناسی آمریکا (USGS)، تلفات سنگین و خسارت‌های گسترده محتمل است و این نهاد اعلام کرده ۴۴ درصد احتمال دارد شمار جان‌باختگان از ۱۰ هزار نفر فراتر رود.
+
+در زمان وقوع زمین‌لرزه‌ها، ونزوئلا در حال برگزاری یک تعطیلی ملی بود و بسیاری از مردم هنگام وقوع این لرزش‌ها در ساعت ۱۸:۰۴ به وقت محلی در خانه‌های خود حضور داشتند.
+
+وزیر کشور ونزوئلا از شهروندان خواست در پی هشدار نشت گاز، خانه‌های خود را ترک کنند
+
+دیوسدادو کابیو، وزیر کشور ونزوئلا، از مردم خواسته است به طور موقت خانه‌های خود را ترک کنند. خبرگزاری فرانسه گزارش داده که این درخواست پس از بروز نگرانی‌ها درباره احتمال حوادث ناشی از نشت گاز مطرح شده است.
+
+کابیو گفت به عنوان یک اقدام پیشگیرانه، جریان سوخت و گاز در چندین ساختمان قطع شده است.
+
+🎥Reuters/ AFP / APtn
+</div>
+
+## BBCPersian — post 284967
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_284967_1782353992.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸در ادامه مسابقات آخر مرحله گروهی، برزیل با شکست راحت اسکاتلند (۳-صفر) با ۷ امتیاز صدرنشین گروه شد و مراکش هم که گل اول را از هائیتی دریافت کرده بود و تا اواسط نیمه دوم با این تیم ۲-۲ مساوی بود در نهایت با نتیجه ۴-۲ برنده شد و همچون برزیل ۷ امتیازی شد.
+
+برای برزیل ویسینیوس جونیور دبل کرد و نیمار هم بالاخره در یک ربع پایانی برای نخستین بار در ترکیب برزیل قرار گرفت.
+
+دو مسابقه به طور همزمان برگزار شد.
+
+ساعتی قبل از این هم دو مسابقه همزمان گروه ب برگزار شد که جزییات آن را ساعتی پیش برایتان گزارش کردیم. از آن گروه سوئیس با شکست کانادا صدرنشین شد و بوسنی هم با شکست قطر، بعد از کانادا در این گروه سوم شد.
+
+📷EPA
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/04/04 03:35
 ---
 
